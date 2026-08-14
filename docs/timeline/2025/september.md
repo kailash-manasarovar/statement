@@ -138,23 +138,34 @@ function googleTranslateElementInit() {
 - The last few times I saw her, sporadically, like once every five years maybe, she always has *something* to say to me and the energy of it is always *shaming*, somehow.
 - I wonder about her.
     
-## Richard at Newgrange 
+
+
+## Dublin Transforming Touch therapy with Steve
 
 - I travel to Dublin for trauma therapy: [Transforming Touch](#healing-process).
-- The day before the course starts, on Wednesday 24th September, Steve and I visit the [Newgrange monuments](https://www.newgrange.com/).
-- As we're walking up into the Knowth site, Steve tells me that the weirdest thing has just happened; one of the women on our tour looks *exactly* like someone who practices TT in the US. 
-- Minutes later, after we pass through the small yet significant constructions around the main mound, I see someone I recognize. 
+- It's module one of a new cohort.
+- They're all agents this time, and they've started to be really obvious about it too.
+- I suspect it's because of my [survival of yet another poisoning attempt at Lourdes](july.md#lourdes).
+- One woman even calls me *Saint Katharine* in a sort of point-at-the-freak type manner.
+- A man makes an extremely dodgy romantic move on me.
+- I feel very exposed, and not in a good way.
+
+### Newgrange 
+
+- The day before the course starts, on Wednesday 24th September, I take Steve in my poisoned and toxic car to visit the [Newgrange monuments](https://www.newgrange.com/); a place I love which I like to visit as much as I can when I'm in Ireland.
+- As we're walking up into the Knowth site on the tour, Steve tells me that the weirdest thing has just happened; one of the women on our tour looks *exactly* like someone who practices TT in the US. 
+- Seconds after he tells me this, after we pass through the small yet significant constructions around the main mound, I see someone I recognize. 
 
 ![Knowth gestationary periods](../../content/images/knowth.webp)
 
-- It's Richard, the man who [popped up in Glastonbury](../2001-to-2010/2005.md#richard-works-for-the-criminal-gangs) way back in 2005 just after I had received the Lockerbie compensation and the [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) was beginning in earnest.
+- It's Richard, the man who [popped up in Glastonbury](../2001-to-2010/2005.md#richard-works-for-the-criminal-gangs) way back in 2005 just after I had received the Lockerbie compensation and the [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) had begun in earnest.
 - The man who had been tasked with stalking me by North London criminal gangs.
 - I'm so startled; I'm staring right at him.
 - It's his profile, exactly.
 - He's the right age, about 60.
 - Same height, same build.
-- Everything about the man is Richard, except when I look at him head-on, his face is rounder.
-- I guess that could happen over the years.
+- Everything about the man is Richard, except when I look at him head-on, his face is rounder - cotton wool in the gums maybe.
+- I also think that could happen over the years.
 - But then I hear him talk.
 - He has a wild Irish accent and it throws me completely off guard; too wild perhaps though.
 - Richard, although apparently Welsh, had spoken the King's English, well.
@@ -166,8 +177,45 @@ function googleTranslateElementInit() {
 - In the queue at the cafeteria, he is right in front of us.
 - It could be Richard, apart from the accent. Could he be putting it on?
 - I ask him; "Are you a guide?"
-- He looks at me and appears to be a bit nervous.
+- He looks at me and starts to appear nervous.
 - He says, grinning, "No, I'm not a guide, I just like talking a lot."
+- It's Richard.
+- They've done this countless times with protagonists in this police statement and in August 2026 I know why.
+- They've been distracted me, pretending they're investigating, to keep me from thinking about it too deeply, but at the same time they have shown ZERO interest in my health and wellbeing and couldn't care less if I died or not.
+- My life has been like this since after [the poisoning attempt in July 2025](july.md#lourdes), as if one criminal gang replaced another, but the new one had millions to spend and were able to access bonafide criminals I am describing here and cart them round the world to show me.
+
+### Whitefriars Church
+
+- After we return to Dublin in my toxic vehicle, Steve and I go for a walk in Dublin.
+- Steve had told me he was drawn to visit [Whitefriars Church](https://whitefriarstreetchurch.com/) the day before and was surprised to find relics of St Valentine there.
+- I had found this information triggering for some reason, and quietly vowed to visit myself on the 29th September, my one free day after the course ends and I head home, incidentally Saint Michael's feast day.
+- It turned out Steve and I ended up there on our walk anyway.
+- To my surprise, I found that the statue of St Valentine reminded me of [the trumpet teacher](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel); but I could look straight at him - not in glances like the animal-training they had subjected me to under sedation so that I would only be able to look [the seven devils](../../crimes/protagonists/vidal-sastre.md#seven-devils) in glances, and they could therefore add a horse into the group at the stage they were ready to finish me off.
+- At Whitefriars, I was still under the impression that there was only one trumpet teacher, not [eight](../../crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher).
+- As I stood looking at the statue of St Valentine, and having this powerful remembering of the Dénia conservatory trumpet teacher, I thought it was just because the psychological attack had been so intense, I was triggered by the idea of romance, but there was something more.
+- The statue looked, to me, like it was real; a real human being.
+- At the time, it was so weird I didn't understand it.
+- I told Steve statue reminded me of a real human; *it's a real human*, I told him and went back to look again at it.
+- A few days later, on the therapy table, I realized.
+- Valentine reminded me of [all the trumpet teachers](../../crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher) in fact, but [one of them](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel) way way more than all the others.
+- There is, in fact, a true and uncanny resemblance. You have to admit friends; No?
+- The statue in Whitefriars Church looks like the trumpet teacher who had [cried in my arms in my bed](../2023/march.md#valentine) in what I had thought was a dream but I am now certain it was not.
+- On the 29th September, Michaelmas, I visit again, attend St Michael's mass, and take some photos.
+
+![Valentine](../../content/images/valentine/valentine-1.jpeg)
+![Valentine](../../content/images/valentine/valentine-3.jpeg)
+![Valentine](../../content/images/valentine/valentine-relics.jpeg)
+![Valentine](../../content/images/valentine/valentine-crying.jpeg)
+
+#### St Michael's mass
+
+- It feels to me like the end of Archangel Michael's mission; [the task he gave me in Lourdes in 2020](../2021/january.md#archangel-michael-gives-me-an-assignment).
+- I write a note for Anthony in the church book beside the statue, and I leave a red Kotel thread in the page.
+- Like the mandrake and hallucinogens - a plant which switcheroo-ed to work for God alone - Valentine stood behind and beside me, supporting me, on God's side.
+- Imagine him looking like that… it’s as if the story was written hundreds of years ago, drawing in sculptors, musicians, and filmmakers on the way. #GreatRay
+- I keep a picture close to my heart, especially when I do my ACIM study, for months on end until [they batter me psychologically so effectively online while I'm in Thailand in December](https://github.com/kailash-manasarovar/statement/commit/9da7b22e6291892ee020ae1b1503f966caf638c2), I decide to remove this section.
+- That was a mistake; except it never is a mistake is it.
+- The timing is always spot on.
 
 ## Weddings at the church
 

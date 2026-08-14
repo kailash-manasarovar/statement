@@ -60,7 +60,7 @@ function googleTranslateElementInit() {
     1. Spiritual training through Israeli TV special, Shtisel. I loved this show so much.
     1. Spiritual training from Mary and her angels, all day every day.
 
-## A dream
+## Archangel Michael gives me an assignment
 
 - I had an interesting dream shortly after my aunt Mairead died.
 - A cherub - that reminded me of something in Dénia, and I even went looking for it when I moved back - flew in through the door and picked me up in its arms and we flew over to the rock at Massabielle and went inside.

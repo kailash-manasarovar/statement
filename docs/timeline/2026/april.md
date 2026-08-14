@@ -98,6 +98,10 @@ function googleTranslateElementInit() {
 
 ## Dublin TT
 
+### Steve is having chemo, but doesn't have cancer
+
+- wip
+
 ### Un oeuf est un oeuf
 
 - My little *oeuf*.
@@ -117,6 +121,10 @@ function googleTranslateElementInit() {
 - And I remember a BIG dream from when I was so small, in Ireland again, and it was about a giant egg on the wall... I can see it now. I said Humpty Dumpty.
 - And more recently a dream of the future where I am with a grown up woman who I feel is my daughter, but I thought that might be squirrel's daughter, if he has one.
 - Will Davina be coming round one day when my little oeuf realizes the truth and she looks exactly like me?
+
+### I stepped in the chili sauce
+
+- Agents everywhere we go.
 
 ### A first roasting
 
