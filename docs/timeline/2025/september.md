@@ -199,7 +199,8 @@ function googleTranslateElementInit() {
 
 - I want to know if Steve has a strong connection with any of the disciples.
 - The reason I ask this is because just after being poisoned, and while I was on a hike up to the auberge Oulettes at the mountain, I had a really strange sensation of being cut in half.
-- When I got back to my holiday let, I looked up if any of the disciples had been cut in half, and indeed one of them is said to have been, Simon the Zealot.
+- I also felt like God was as close to me as He could possibly be, so I was thinking the feeling might be biblical in nature.
+- When I got back to my holiday let in Cauterets, I looked up if any of the disciples had been cut in half, and indeed one of them is said to have been, Simon the Zealot.
 - So I wondered if Steve had had any similar thoughts.
 - He said immediately, Peter.
 - Of course it is!

@@ -212,7 +212,7 @@ function googleTranslateElementInit() {
 - As if there was something more important.
 - Bananas!
 
-#### My sense of direction is temporarily healed
+### My sense of direction is temporarily healed
 
 - I've had a couple of glasses of wine when I leave Steve.
 - He actually tells me to stop following him around as he walks away, which is a bit strange, but I think he's cross with me for wondering if he and Yvonne aren't a little bit in love.
@@ -223,8 +223,17 @@ function googleTranslateElementInit() {
 - So the gigue is up.
 - Sadly, it was only a temporary healing, but it fills me with confidence.
 
+### I have some questions for Steve about the course
+
+- It was an assumption of mine that Steve would have been as obsessed about the course as I am.
+- It turns out I was wrong, and he is a staunch catholic and found my questions a bit offensive.
+- So that was interesting.
+- He had done the workbook exercises one time, however, if I remember rightly.
+
 ## I'm signing
 
 - A friend tells me I'm signing.
 - I don't know what they mean.
 - Over the next few weeks, I catch myself making strange hand gestures to people and I realize I am actually signing! Well, God is.
+- I have no idea what I'm communicating, but that's also true of much that I say and write too.
+- I expect I only get about 5% of what's really being said.
