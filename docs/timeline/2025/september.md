@@ -285,7 +285,7 @@ function googleTranslateElementInit() {
     - Why are they all so keen to silence me? What are they hiding?
     - In late November, in Bangkok near Lupini Park, someone told me I would never, ever have to return to this hideous environment that has always sought to destroy me.
     - I believed this - my pathological inability to see the bad in people and groups projecting goodness onto them.
-    - This was the online chatter I was being subjected to endlessly..., along with continuous prompts that I would be meeting my love the trumpet teacher every day, and that arrangements had been made for my safety once a week probably, at the time I was in a traumatized state from just having found out about my dad and so I believed it all, hung onto it even.
+    - This was the online chatter I was being subjected to endlessly..., along with continuous prompts that I would be meeting my love the trumpet teacher every day, and that arrangements had been made for my safety once a week probably (the multiple collapsing bridges), at the time I was in a traumatized state from just having found out about my dad and so I believed it all, hung onto it even.
     - All lies.
 
 ### Also at TT training this month...
