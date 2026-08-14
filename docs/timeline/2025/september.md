@@ -202,10 +202,10 @@ function googleTranslateElementInit() {
 - The statue in Whitefriars Church looks like the trumpet teacher who had [cried in my arms in my bed](../2023/march.md#valentine) in what I had thought was a dream but I am now certain it was not.
 - On the 29th September, Michaelmas, I visit again, attend St Michael's mass, and take some photos.
 
-![Valentine](../../content/images/valentine/valentine-1.jpeg)
-![Valentine](../../content/images/valentine/valentine-3.jpeg)
-![Valentine](../../content/images/valentine/valentine-relics.jpeg)
-![Valentine](../../content/images/valentine/valentine-crying.jpeg)
+![Valentine](../../content/images/valentine-whitefriars/valentine-1.jpeg)
+![Valentine](../../content/images/valentine-whitefriars/valentine-3.jpeg)
+![Valentine](../../content/images/valentine-whitefriars/valentine-relics.jpeg)
+![Valentine](../../content/images/valentine-whitefriars/valentine-crying.jpeg)
 
 #### St Michael's mass
 
