@@ -18,6 +18,17 @@ function googleTranslateElementInit() {
 - WRONG!!!!
 - Aaaaaaaahhhhhhhhhhhhh.
 
+## A man tests me for the effects of poisoning
+
+- At Fitkoh, a man starts chatting with me.
+- I'm struggling with the co-ordination of the boxing moves we're practicing.
+- I tell him I was poisoned and have some brain-damage.
+- He's a physio of some sort and works with stroke victims.
+- He does some tests, like coordination tests.
+- I fail spectacularly.
+- I ask if he can help me.
+- He's an agent though, so he doesn't speak to me again.
+
 ## Thailand fasting and detox clarity
 
 - It's day seven of the fast and detox program.
