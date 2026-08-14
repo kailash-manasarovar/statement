@@ -113,6 +113,11 @@ function googleTranslateElementInit() {
 
 - Hotel-cum-CIA training centre and egg-extraction lab for two weeks.
 
+#### The abomination of desolation
+
+- All unconsented-to activities undertaken on a person while they're sedated.
+- Massive attack on the Golden Rule.
+
 ### I see Auggie Augustus
 
 - You remember [Ugly from 2001](../2001-to-2010/2001.md#asking-brian-if-he-remembered-ugly-in-2024) and then again in [August 2024](../2024/august.md#ugly).
@@ -179,6 +184,10 @@ function googleTranslateElementInit() {
 - Anyway.
 - Clearly intending to get rid of me, drive me mad maybe, leave me desperate and unhappy, get the lab rat they need for some sick purpose, and let the rapists carry on killing and maiming.
 - Lovely.
+
+#### I thought I'd talk about something important with the group
+
+- Then decided not to due to incoming attacks.
 
 ### I'm signing
 

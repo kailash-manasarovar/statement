@@ -183,6 +183,20 @@ function googleTranslateElementInit() {
 - They've been distracted me, pretending they're investigating, to keep me from thinking about it too deeply, but at the same time they have shown ZERO interest in my health and wellbeing and couldn't care less if I died or not.
 - My life has been like this since after [the poisoning attempt in July 2025](july.md#lourdes), as if one criminal gang replaced another, but the new one had millions to spend and were able to access bonafide criminals I am describing here and cart them round the world to show me.
 
+### We talk about the forgivenet, the Golden Rule, and the disciples
+
+- I want to know if Steve has a strong connection with any of the disciples.
+- The reason I ask this is because just after being poisoned, and while I was on a hike up to the auberge Oulettes at the mountain, I had a really strange sensation of being cut in half.
+- When I got back to my holiday let, I looked up if any of the disciples had been cut in half, and indeed one of them is said to have been, Simon the Zealot.
+- So I wondered if Steve had had any similar thoughts.
+- He said immediately, Peter.
+- Of course it is!
+- Later, I found out Isaiah was also cut in half.
+- We've been so horribly violent with each other for so long haven't we.
+- We also spoke about the forgivenet and the Golden Rule and I explained the app is *rock-solid* on Golden Rule.
+- This is important to Steve, but I wondered if he realizes how most of what everyone in the world thinks and believes is anti-Golden Rule.
+- I often try to talk about these things with Steve, but something blocks me.
+
 ### Whitefriars Church
 
 - After we return to Dublin in my toxic vehicle, Steve and I go for a walk in Dublin.
