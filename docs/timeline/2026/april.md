@@ -204,13 +204,24 @@ function googleTranslateElementInit() {
 
 ### A waitress keeps interrupting us
 
-- Steve and I go for a drink one evening; I think it's the evening before the last night.
+- Steve and I go for a drink one evening; I think it's the evening before the last night of the first week's course.
 - There are agents all over the bar.
 - We talk.
 - I try to bring up the forgivenet and saving the world, again, and every single time I do, the waitress buts in with some inconsequential nonsense.
 - I think Steve set this up too, and is signalling to her every time I start to bring up the conversation about *let's save the world why don't we*.
 - As if there was something more important.
 - Bananas!
+
+#### My sense of direction is temporarily healed
+
+- I've had a couple of glasses of wine when I leave Steve.
+- He actually tells me to stop following him around as he walks away, which is a bit strange, but I think he's cross with me for wondering if he and Yvonne aren't a little bit in love.
+- Although, now I realize Yvonne is probably an agent sent to annoy and frustrate him, to keep him on his toes.
+- Anyway.
+- I walk back to CIA HQ, and it's about an hour's walk, and I feel like I have got my sense of direction back totally!
+- Since the poisoning in Denia for brain-damaged porn-star requirements, I have had no sense of direction at all, I'm more clumsy than I've ever been, ... in fact I have a list of brain-damage symptoms which, as I was mentioning, if anyone gave the tiniest sh*t about - in law-enforcement terms for evidence and because being brain-damaged is no fun - would have got me some healthcare from the people controlling my every move, don't you think?
+- So the gigue is up.
+- Sadly, it was only a temporary healing, but it fills me with confidence.
 
 ## I'm signing
 
