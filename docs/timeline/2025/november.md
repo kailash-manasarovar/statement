@@ -55,6 +55,21 @@ function googleTranslateElementInit() {
 
 ![Conservatory BAU](../../content/images/conservatory-bau.jpg)
 
+## Flight from Heathrow to Bangkok
+
+- Agents, everywhere.
+- One sitting at the end of my row, leaving a space in the middle.
+- One I meet outside the toilet when my stomach starts relaxing over India.
+- Others I cannot mistake.
+- Incredible.
+
+## Anantara
+
+- I've left earlier than planned so I stay at the Anantara for a bit.
+- Agents, everywhere.
+- They even set up a squirrel lookalike at the pool, which upset me and made me hopeful at the same time.
+- At the cafe they were serving a dessert called: *I love you strawberry much.*
+
 ## Staying next to the American Embassy in Bangkok
 
 - I stay for about 10 days in a lovely hotel right beside the embassy, booked online, of course, and in advance.
