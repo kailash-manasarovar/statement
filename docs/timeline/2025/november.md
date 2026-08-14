@@ -62,6 +62,8 @@ function googleTranslateElementInit() {
 - One I meet outside the toilet when my stomach starts relaxing over India.
 - Others I cannot mistake.
 - Incredible.
+- It feels like protection, but I wonder if it was, rather, declaration of ownership.
+- Protection, for me, makes a nice change.
 
 ## Anantara
 
