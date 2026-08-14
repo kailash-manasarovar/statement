@@ -144,7 +144,7 @@ function googleTranslateElementInit() {
 
 ## DESO
 
-- On Saturday 12th April, I create a DESO account for *Forg*, the world-saving lucky frog that can't spell.
+- On Saturday 12th April, I create a DESO account for *Forg*, the world-saving lucky frog that can't spell (the poor spelling is you Peter, isn't it).
 
 ![DESO first post](../../content/images/deso/first-post.png)
 
