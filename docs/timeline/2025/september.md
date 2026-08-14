@@ -153,6 +153,7 @@ function googleTranslateElementInit() {
 - The numbers became overwhelming [in June 2026 after Tibet](../2026/june.md#kailash) where I suspect they used the most poisonous poisons ever known!
 - A German woman on the course even calls me *Saint Katharine* when she first meets me in a sort of point-at-the-freak type manner.
 - One of the men makes an extremely dodgy romantic move on me which he is tremendously embarrassed about the next time I see him in April 2026 - post switcheroo memories returning.
+- An excessively pro-Palestine woman sits next to me, and gives me bear hugs every time she sees me.
 - I feel very exposed, and not in a good way.
 - I'm starting to get clear about these people's budget for "me" which has become literally in the millions; but they won't lift a finger to actually help me personally, to ensure my safety, to help me out with healthcare, to tell me what's going on, nothing!
 - The inconsistency is disturbing and much like the activity of the porn-gangs of Dénia if not exactly the same but with a different end goal.
