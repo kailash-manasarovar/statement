@@ -82,6 +82,7 @@ function googleTranslateElementInit() {
 - It's amazing that they have put so much resource, time, and effort into the *Better Way* and then when it turned up, they decided they didn't like it much.
 - But expected.
 - So they'll be wanting to keep the violence and violation (hence my bizarrely unpleasant experiences of late), and to maintain the ancient hate and the murder of the mother (a tragedy of world-ending proportion), under the erroneous belief we humans are doing the right thing because, contrary to the glaringly obvious, we always think we do a better job than Him.
+- It seems to me the powers-that-be have decided that whatever political A-bomb I come with means the Instructions should be ignored; so I'm left with nothing to lose since [they salvaged whatever they could](april.md#un-oeuf-est-un-oeuf) from me and [made their boldest attempt yet on my life](june.md#kailash).
 - The definition of insanity (believing we're better than God, or that we can eliminate Him, or that we *are* Him) is attempting to prove it again and again and expecting a different outcome.
 - And that is why my widowhood is apparently never ending...
 - And why I'm still here.
