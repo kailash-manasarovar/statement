@@ -29,7 +29,7 @@ function googleTranslateElementInit() {
 - I ask if he can help me.
 - He's an agent though, so he doesn't speak to me again.
 
-## Another agent is devastated
+## A man is devastated on hearing what happened to me
 
 - I meet another man, cabin crew.
 - Seems like a lot of cabin crew double as kind of law-enforcement...
