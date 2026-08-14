@@ -193,7 +193,7 @@ function googleTranslateElementInit() {
 - They've done this countless times with protagonists in this police statement and in August 2026 I know why.
 - They've been distracting me endlessly, pretending they're investigating crimes, to keep me from thinking about the inconsistencies in their behavior.
 - They have shown ZERO interest in my health and wellbeing, and obviously couldn't care less if I died, and perhaps would find this preferable to my continued survival.
-- My life has been like this since after [the poisoning attempt in July 2025](july.md#lourdes) - as if one criminal gang replaced the other - but the new one had millions to spend and have power over the bonafide criminals I am describing here and can cart them round the world at the drop of a hat to show me.
+- My life has been like this since after [the poisoning attempt in July 2025](july.md#lourdes) - as if one criminal gang replaced the other - but the new one had millions to spend and has power over the bonafide criminals I am describing here, and can cart them round the world at the drop of a hat to show me to make me believe they give a shit, when they obviously don't.
 
 ### We talk about the forgivenet, the Golden Rule, and the disciples
 
@@ -206,7 +206,7 @@ function googleTranslateElementInit() {
 - Later, I found out Isaiah was also cut in half.
 - We've been so horribly violent with each other for so long haven't we.
 - We also spoke about the forgivenet and the Golden Rule and I explained the app is *rock-solid* on Golden Rule.
-- This is important to Steve, but I wondered if he realizes how most of what everyone in the world thinks and believes is anti-Golden Rule.
+- This is important to Steve, but I wondered if he realizes how most of what everyone in the world - including him - thinks and believes comes from anti-Golden Rule manipulation techniques.
 - I often try to talk about these things with Steve, but something blocks me.
 
 ### Whitefriars Church

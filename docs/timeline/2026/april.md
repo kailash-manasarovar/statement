@@ -202,7 +202,17 @@ function googleTranslateElementInit() {
 
 - Then decided not to due to incoming attacks.
 
-### I'm signing
+### A waitress keeps interrupting us
+
+- Steve and I go for a drink one evening; I think it's the evening before the last night.
+- There are agents all over the bar.
+- We talk.
+- I try to bring up the forgivenet and saving the world, again, and every single time I do, the waitress buts in with some inconsequential nonsense.
+- I think Steve set this up too, and is signalling to her every time I start to bring up the conversation about *let's save the world why don't we*.
+- As if there was something more important.
+- Bananas!
+
+## I'm signing
 
 - A friend tells me I'm signing.
 - I don't know what they mean.
