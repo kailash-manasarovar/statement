@@ -194,7 +194,7 @@ function googleTranslateElementInit() {
 !!! tip "Show and tell"
     - I now believe Paqui engineered this situation in order that her husband might see me, the target.
     - Does this mean Paqui's husband did not turn up at my house as part of the [switcheroo porn special](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero)?
-    - Or was he just curious to see how I was handling three-nights-a-week of sedated rape?
+    - Or was he just curious to see how I was handling three-nights-a-week of sedated gang-rape?
 
 ## Work stress
 
@@ -202,27 +202,51 @@ function googleTranslateElementInit() {
 - I believe most of this stress was manipulated online by Dénia hackers and cyber-stalkers, and exacerbated by poisons and drugging.
 - I quit my job with an amazing crypto company based in New York, Digital Asset, but I have another one lined up to go to immediately at zkSync.
 - A headhunter had reached out to me on LinkedIn at a moment I was feeling extraordinarily unhappy at DA.
-- The person I spoke to online about the role worked as an engineer at zkSync, but ended up not existing. 
+- I believe all this was staged.
+- The person I spoke to online about the role worked as an engineer at zkSync on LinkedIn, but he ended up not existing! 
 - I never saw him in any meetings, including the all hands.
+- He looked a little bit like my Spanish colleague living in the Canary Islands; but they were not the same people.
 - I did an extensive search for the person in the company data and found no reference.
 - I even asked my Spanish colleague who he was, and he didn't know him.
-- Then suddenly there was a reference to him on Slack, so I left it.
+- Then suddenly, just as I was getting suspicious, there was a reference to him on Slack, so I left it.
 - All the fake accounts stalking my professional life are in my LinkedIn account which will need to be subpoenaed as they banned me for life on someone at Polygon's request after [they fired me in October 2024, a few days before the porn-gangs tried to murder me at home](../2024/october.md#serious-poisoning-with-intent-to-kill).
-- In retrospect, Digital Asset was probably a safe space and I should have continued with them.
-- They offered me a month's stay in New York to learn their programming language but I declined due to my conservatory studies - which was insane!
+- In retrospect, Digital Asset was probably a safe space and I was mad not to have continued with them.
+- They offered me a month's stay in New York to learn their programming language but I declined due to my conservatory studies - total insanity!
 - I believe all my decisions were being controlled by online manipulation and emotional triggering coupled with drugging.
+
+## zkSync
+
 - I start my new role at zkSync.
-- Looking back, I'm certain some of the men at zkSync were aware of the [porn fatwa against me](../2001-to-2010/2003.md#porn-fatwa); perhaps not the full story or they might have taken pause.
+- Looking back, I'm certain some of the men at zkSync were subscribing to the spy-cam porn and were aware of [my sedated rape-porn history](../2001-to-2010/2003.md#porn-fatwa).
 - My role at zkSync was another fabulous job which turns sour the minute you walk through the door, really sour.
-- The men at zkSync build up the stress and tension, in-step with teachers and staff at the porn-school conservatory of Dénia, to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023), my "funeral".
+- The men at zkSync build up the stress and tension, in-step with teachers and staff at the porn-school conservatory of Dénia, to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023), my "funeral", after which I resign.
+- I believe my resignation was a requirement from the gangs, and expected, especially by [Bruno who was ready to make his move](june.md#sunday-18th-june-alicante-airport).
+- Were my colleagues at zkSync given the date I was expected to leave by the gangs themselves?
 - The week before the 12th June, the CTO, a British man living in California who knew Elon Musk closely from having worked with him at Tesla, pings me a gun emoji the day before a *firing day*.
-- I believe this ramping up of stress and tension was an integral part of the conspiracy, and likely aired on criminal-porn channels.
-- I expect many were itching to monitor my transition from female-tech-colleague-you-hate into a full time porn star from 12th June (no payment obviously); an abused, maimed, and extremely poor woman; eventually murdered for the worst sort of porn-addict subscriptions.
+- I believe this ramping up of stress and tension was an integral part of the conspiracy, and likely aired on the porn channels.
+- I expect many were itching to monitor my transition from *female-tech-colleague-you-hate* spy-cam sedated rape-porn star into a horse-porn and snuff victim, and probably kept up their subscriptions into [Bali's sedated rape extravaganza](../2024/may.md#bali).
 - Make no mistake, that was the plan; that's how it always has been for thousands of women like me in Dénia.
+
+### Alex and Jordi
+
+- Alex the CEO attends a crypto-conference and there are some live events we're advised to watch.
+- He's sitting on a sofa with three other stars of the crypto space.
+- One of them is Jordi Baylina from Polygon.
+- This seems to be incidental, doesn't it, except for Alex's expression throughout the chat.
+- It was as if someone had told him something extraordinary, something seedy and sexual, something he could hardly believe, and his face had contorted into a grinning snicker-smile that he couldn't control.
+- I'll never forget it.
+- It'll be available for viewing.
+- I wonder if Jordi had shown him something amazing. I wonder if it was me in one of my many appearances.
 
 ### Alex and Zoe 
 
-- At one of the all hands meetings, either in April or May of this year, Alex the CEO and his assistant, Zoe, are signing in from an offsite in New York, I believe it was.
+- At one of the all hands meetings, either in April or May of this year, Alex the CEO and his assistant, Zoe, are signing in from a management team offsite in New York, I believe it was.
+
+!!! tip "Offsites with zkSync"
+    - These were a requirement and it was made very clear that it would be frowned upon if you did not attend.
+    - There was one the week I started, which I declined to attend, and my absence was indeed frowned upon!
+    - I was one of three or four women working in a company of over a hundred men and there were no female engineers.
+
 - A few of the other managers were there with them; the British CTO who previously worked with Elon Musk, and there may have been some external company representatives there too.
 - Anyway, the regular company all-hands meeting has started, everyone is there waiting online, but there is no Alex or Zoe.
 - We're all waiting.
@@ -233,7 +257,7 @@ function googleTranslateElementInit() {
 - *Were they having sex?*, I wondered.
 - Everyone must have been thinking the same thing; it was a little obvious unless that's what they wanted us to think.
 - Gross, if they were, I thought, to be doing it right up to meeting everyone at the company all-hands.
-- My view, the only other woman in the business at that time, might not have been the common view however if the company was full of porn-addict engineers, as it well might be.
+- My view, one of the three women in the business at that time, might not have been the common view however if the company was full of porn-addict engineers, as it well might be.
 - I thought nothing more of it.
 - I did not know I was being drugged, poisoned, sedated, and broadcast live from my home on porn networks at that time.
 - I wonder now if the whole offsite *target-a-female-tech-colleague-in-a-threateningly-sexual-manner* thing has been going for years, just like [I experienced in Bali](../2024/may.md#bali).
@@ -244,6 +268,7 @@ function googleTranslateElementInit() {
 - Perhaps questions ascertaining a familiarity with and love of porn come up at engineer interview these days; to make sure they don't hire anyone sane who might raise the alarm.
 - I guess a descent into chaos like this is to be expected when young and unwise men are given millions and millions of dollars in funding to build systems that never see the light of day.
 - They must feel triumphant, important, and extremely bored.
+- Were they sedating Zoe too?
 
 ### One of my colleagues at zkSync calls me every Monday after chamber music class
 
