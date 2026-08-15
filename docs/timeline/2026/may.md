@@ -20,6 +20,7 @@ function googleTranslateElementInit() {
 
 ## Dénia team in France
 
+- Honestly, I think this must have been another game to keep me thinking the criminals in Denia were still very active.
 - Just like with [Ugly](../2024/august.md#ugly) popping up on my X feed all those years ago, then popping up in real life in Cauterets a few days later, a similar thing has happened yet again.
 - My other `JackChardwood` Facebook account - since the big one I was using was shut down by the pedo-protectors not so long ago - remains infested with criminal-gang hacks.
 - You can tell because all the stories have horror pictures in them, and they seem to be using fake groups - particularly those related to Anne Frank - to discuss who they're going to drop in it, just like they did with Ugly, when the time comes.
@@ -34,7 +35,7 @@ function googleTranslateElementInit() {
 - He was with a group of people.
 - The man has [that squirrel look](../2011-to-2020/2013.md#daniel) but he's fairer and fatter-faced. 
 - Yesterday evening, another couple of odd men I sort of maybe recognize are pointed out to me out-of-context on an Anne Frank Facebook group.
-- Are they up from Dénia to finish me off?
+- Are they up from Dénia to finish me off? I think they wanted me to think that.
 - My guess is they're not the only ones who want rid of me.
 - Funny how that repeats.
 - The bold rapists and pedophiles, terrified about being found out... well, everyone knows already and nobody seems to care.
@@ -42,6 +43,7 @@ function googleTranslateElementInit() {
 - It's difficult to assess total insanity objectively.
 - Oh, is he *the* Paco Sendra?
 - Is he handing himself in? Is he on the good's side now?
+- See how they got me in quite a spin. They do it all the time. Better to avoid social media completely if you're someone like me that everyone wants a slice of.
 
 ## Me and Steve were chatting
 
