@@ -19,6 +19,7 @@ function googleTranslateElementInit() {
 - It seems to me that given the amount of times I have survived poisoning now, seven I'm told but I think it's more, criminal gangs and international security services feel like trying to kill me by poison is a valid *challenge*.
 - Well, just STOP IT. I'm not asking.
 - They don't listen.
+- They think they know how to trick me with playing games around who I trust and who, they think, I don't trust.
 
 ### Kailash team - who dun it
 
@@ -37,9 +38,13 @@ function googleTranslateElementInit() {
 - Henry is the obvious one, but too obvious in fact, it's very easy to set Henry up as a poisoner.
 - After poisoning at Everest Base Camp, and over the next month or so on Substack (where I had started to talk directly to the CIA in Dublin in exactly the same way I spoke to criminal gangs on X and eventually got so sick of them deleted my account), Henry starts to get mentioned, a lot.
 - It's too easy to point the finger at Henry.
+- He's gypsy and so they think I'll be instantaneously suspicious of him, but they don't know I know how much the gypsy community love me and how I love them back.
+- I told Henry this, he went quiet on me, and looked sad.
+- Perhaps that's my next stop, Sainte Marie de le Mer, wdyt?
 - And the interesting thing about all the "chatter" about him while I was online in Bali was that they always used the name "Henry", but he had not used this name to introduce himself, not once.
 - He had called himself Luis - but originally told me a fuller story about how he was Henrique, but pronounced it as far away from the sound of the word "Henry" as you can get - and in the end we all called him Ricky!
 - So I'm very suspicious about them pointing the finger at him, and due to his gypsy background and his bag of drugs, his prostitute mother, and everything else he said, I believe they set him up as prime suspect in case it all went tits up.
+- No-one ever called him Henry, but because you have been, I will.
 
 #### The Indian
 
