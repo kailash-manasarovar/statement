@@ -288,3 +288,20 @@ function googleTranslateElementInit() {
     - I believed this - my pathological inability to see the bad in people and groups projecting goodness onto them.
     - This was the online chatter I was being subjected to endlessly..., along with continuous prompts that I would be meeting my love the trumpet teacher every day, and that arrangements had been made for my safety once a week probably (the multiple collapsing bridges), at the time I was in a traumatized state from just having found out about my dad and so I believed it all, hung onto it even.
     - All lies.
+
+### Shares in London with one of the agents
+
+- I arrange to do shares in London with one of the course attendees. An agent.
+- She lives in various flats housesitting while renting out her property on AirBnB.
+- I meet her at a flat in Islington where she is looking after a cat she calls Peter Parker.
+- I give her some TT.
+- We're considering her giving me some TT and then the cat starts coughing up a fur ball so we don't bother.
+- The cat likes me.
+- I see her once again in another flat where she does give me some TT.
+- On the shelf there is a giant book with the title Gisele.
+- I find myself getting a stammer talking to her, as if my words are blocked.
+- I do this with people in Bali too.
+- I realize I do this all the time with people who are lying to me.
+- It's like their deception blocks my thinking if it's not obvious.
+- When lies are more obvious, it can feel like walking around a dark room at night and bumping into the furniture.
+- Or maybe when that capacity is deadened for some reason (trauma reaction maybe), it shifts into a full communication block.
