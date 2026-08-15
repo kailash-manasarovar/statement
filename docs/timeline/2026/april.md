@@ -254,6 +254,7 @@ function googleTranslateElementInit() {
 - I got a blanket, sat behind the circle on the second line, put the blanket over myself and hid.
 - It's not the torture itself - I was everyone's breakfast, lunch, and dinner in Dénia for years, remember? - it's the fact that people you thought you could trust are doing it.
 - And what really got me, was the realization that something I thought I could always turn to as a safe space for healing just disappeared, poof!
+- The roasting [they give me in Bali](july.md#the-psychological-torture-begins) is exactly the same procedure but at a super enhanced level with more intense drugging.
 
 #### I thought I'd talk about something important with the group
 

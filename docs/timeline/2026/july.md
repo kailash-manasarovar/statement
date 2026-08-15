@@ -227,6 +227,14 @@ function googleTranslateElementInit() {
 - They leave soon after I arrive.
 - I never see either of them again.
 
+### Pretending to be someone you're not
+
+- I look around me and I see a multi-million dollar budget.
+- Every time they try to convince me they're someone else, I remember this.
+- I wonder why they wouldn't try to help me and instead give me such a hard time.
+- It takes a while to figure out and when I do I'm pretty astonished, and upset, and understand why God said what He did when He said it.
+- But, again, it's all His Plan, so I'm sure that all of this mess will serve some unique purpose of His we can't guess at, and we can get on with the world-saving.
+
 ## Yet another (fake) bridge collapses, again
 
 - What is the airspeed velocity of a coconut-laden scanning swallow?
