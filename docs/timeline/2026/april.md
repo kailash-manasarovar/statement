@@ -87,12 +87,15 @@ function googleTranslateElementInit() {
 - One night, after yoga - it may be a Friday after Penny's class - as I'm putting away my yoga things, I hear two voices I know well outside my door chatting.
 - It's Mrs Wasserman, and another man I don't know the name of.
 - I'm amazed; but what's more amazing is this loving warm feeling coming all over my body and inside too as I hear them chat about whether they're going to go to the procession, or whatever.
-- The feeling is the *exact feeling* I had when I found out I was pregnant when I was 18 with my first even proper-ish boyfriend Ben - just two years after repeated, sedated gang-rape - and just before my mother told me she and my dad would not support me at all if I had the child, and broke my spirit.
+- The feeling is the *exact feeling* I had when I found out I was pregnant when I was 18 with my first ever proper-ish boyfriend Ben - just two years after repeated, sedated gang-rape - and just before my mother told me she and my dad would not support me at all if I had the child, and broke my spirit.
 - It was like a warm glow of joy traveling through my body.
 - I'm so happy to hear these voices outside my door.
 - It's astonishing, though, and I know it's a trick, otherwise I would have ran out.
 - I feel like I'm being tricked endlessly these days, as well as throughout my life, and I don't like it.
-- What would be the purpose of doing something like that? I suppose they were doing as much as they could to make me believe they were on my side - and I did, of course, my projection about the trustworthiness of people - and so I'd certainly attend the two important (for them) weeks of TT in Dublin coming up.
+- What would be the purpose of doing something like that? 
+- I suppose they were doing as much as they could to make me believe they were on my side - and I did, of course, my projection about the trustworthiness of people - and so I'd certainly attend the two important (for them) weeks of TT in Dublin coming up, and feel dreadful when they turned on me as if they didn't like me anymore and weren't my friends.
+- From there, they can pretend to be anyone, they think.
+- It's very school playground isn't it.
 
 ## Facebook shuts me down
 
@@ -124,7 +127,7 @@ function googleTranslateElementInit() {
 
 ### They're playing Ray of Light while I wait for the taxi
 
-- I'm waiting for the taxi at a cafe I've been told to wait at by Booking.
+- I'm waiting for the taxi at a cafe I've been told to wait at by Booking which has been tailoring everywhere I stay for some time.
 - They're playing Madonna's Ray of Light as I stand there; bonafide #GreatRay.
 - The taxi driver calls to tell me where to go to meet him, and it's not here.
 - The mousses are flirting with me, buttering me up.
