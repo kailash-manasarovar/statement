@@ -21,9 +21,11 @@ function googleTranslateElementInit() {
 ## Dénia team in France
 
 - Just like with [Ugly](../2024/august.md#ugly) popping up on my X feed all those years ago, then popping up in real life in Cauterets a few days later, a similar thing has happened yet again.
-- The `JackChardwood` Facebook account I have left - since the big one I was using was shut down by the pedo-protectors not so long ago - remains infested with criminal-gang hacks.
+- My other `JackChardwood` Facebook account - since the big one I was using was shut down by the pedo-protectors not so long ago - remains infested with criminal-gang hacks.
 - You can tell because all the stories have horror pictures in them, and they seem to be using fake groups - particularly those related to Anne Frank - to discuss who they're going to drop in it, just like they did with Ugly, when the time comes.
 - Anyway.
+- I realize the internet is the Wild West, and if you're hacked at all you can be hacked by everyone. 
+- There doesn't seem to be any way to block every Tom, Dick, and Harry getting in if one group is already in.
 - A couple of weeks ago, an account popped up with a friend request with a man's photo on it.
 - It was a repeat too, i.e. I had seen the man's face on Facebook in another context not long before.
 - I have never consciously seen this man's face before and I do not recognize him.
@@ -86,16 +88,8 @@ function googleTranslateElementInit() {
 
 ![Shani dev](../../content/images/shani-dev.png)
 
-## Gemini
+## China and Tibet
 
-- I'm writing a song.
-- I've got a few lines:
-
-!!! quote
-    - You're the Woodstock to my Snoopy, the Mulder to my Scully, the Elvis to myyyy co-ol-o-nel.
-
-- It's country style Janis.
-- Inspired by Apples Snoopy and Friends on Flight 0202 from Paris to Beijing, and a recent music sesh.
-- Brilliant!
-- There is, after all, a wedding planned for June as per my understanding, is there not?
-- I guess we'll find out.
+- Kailash.
+- The Kailash team.
+- Who dun it.

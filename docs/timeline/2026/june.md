@@ -10,9 +10,97 @@ function googleTranslateElementInit() {
 
 ## Kailash
 
-- I'm starting to realize that being homeless, not being able to settle and work because of sedated rape-porn stardom, not having any support at all from anyone, and finding out exactly how much my family despise me, and for how long, is unsurprisingly taking a toll on my health and wellbeing.
-- Also, roaming relatively freely means anyone can have a pop at murdering me and perhaps, given recent miraculous events, certain folk might feel like trying is a valid *challenge*.
+- I'm starting to realize that being homeless, not being able to settle and work because of sedated rape-porn stardom, not having any support at all from anyone, and finding out exactly how much my family and the porn-loving world itself despises me, and for how long, is unsurprisingly taking a toll on my health and wellbeing.
+- You'd think that mass stalking by security services might prompt them to help me out.
+- But no, and this is getting weird now.
+- What are their intentions?
+- Being allowed to roam relatively freely in the world means anyone can have a pop at murdering me, or other sinister activities they may think justifiable given my inability to die from poisoning.
+- It seems to me that given the amount of times I have survived poisoning now, seven I'm told but I think it's more, criminal gangs and international security services feel like trying to kill me by poison is a valid *challenge*.
 - Well, just STOP IT. I'm not asking.
+- They don't listen.
+
+### Kailash team - who dun it
+
+- My trip to Kailash is attended by agents, as usual, and me.
+- They've got what they want from me now, and think they can replicate God through cells (which is utterly insane, let's hope they don't get the chance to find out to their detriment), and so they're going to give the poisoning a really good go this time.
+- They're not hiding much either; although they've all got their stories off pat, they're just too confident, too arrogant, too purposeful, and not like a normal group of random humans in any way at all.
+- But who done it?
+- The group is extraordinarily unusual, loud, over-the-top, distracting - like agents are often taught to be - and tailored for me personally in many ways.
+
+#### Henry
+
+- I meet Henry first in the airport as we're waiting for a car to take us to the city.
+- Henry is Brazilian, gay, gypsy, and has a bag full of illegal substances; hallucinogens, uppers, downers, you name it, and he's not afraid to tell everyone about it.
+- He has glasses which film video and he has no problem with getting connected to any app in China, which is extraordinary.
+- He's very rich after the death of his first husband.
+- Henry is the obvious one, but too obvious in fact, it's very easy to set Henry up as a poisoner.
+- After poisoning at Everest Base Camp, and over the next month or so on Substack (where I had started to talk directly to the CIA in Dublin in exactly the same way I spoke to criminal gangs on X and eventually got so sick of them deleted my account), Henry starts to get mentioned, a lot.
+- It's too easy to point the finger at Henry.
+- And the interesting thing about all the "chatter" about him while I was online in Bali was that they always used the name "Henry", but he had not used this name to introduce himself, not once.
+- He had called himself Luis - but originally told me a fuller story about how he was Henrique, but pronounced it as far away from the sound of the word "Henry" as you can get - and in the end we all called him Ricky!
+- So I'm very suspicious about them pointing the finger at him, and due to his gypsy background and his bag of drugs, his prostitute mother, and everything else he said, I believe they set him up as prime suspect in case it all went tits up.
+
+#### The Indian
+
+- There's an Indian man living in Canada, working for SAP he says - never stops working while on the trip.
+- He has a US mobile phone number.
+- Like Henry, he seems to have a bag full of remedies for everything, but they're more on the natural side.
+- Eventually I became convinced he was working directly for Elon, but who knows.
+- He traveled to India, stayed there, and told me his job was over soon after the trip.
+- He was always over-concerned about my health.
+- As I was getting really sick at Everest, he was fussing around me a lot.
+- That morning I had taken biscuits from him.
+- The group were sharing sweets and food around a lot, and we had stacks of water with us.
+- It could have been him, it could have been any of them.
+
+#### Jyotir, Vilde, the Norwegian, my room mate
+
+- Another agent.
+- She let me speak fairly freely about my experiences - until I started talking about the baby-rape pornographers drugging children in schools in Spain, then she told me to stop speaking, it was too much, like so many of the people around me do (I think this behavior is an agent symptom because no-one normal does that and I experience it *all the time*).
+- I was formally keeping quiet about my knowledge of the spies at that stage (not on X or other social media) and I just mentioned law-enforcement agencies like the FBI, Interpol, etc., when she asked me, directly, who I thought my security team was that was following me around all the time.
+- So I never said what I really thought.
+- It didn't seem appropriate to mention what was becoming more and more obvious, and I was still not sure what they have been actually intending all this time.
+- I guess that I was hoping that the "game" they had set up - whereby I was constantly fed information about the crimes I have described in this police statement, even to the extent of "showing" me they were working with some of the criminals I have described (such as Ugly, and a heap of others) was real.
+- But the sense of it being a "game" was also real, so I guess I was playing too, waiting to see what was really going on.
+- Until I got sick at Kailash, I was hoping and praying they were taking the dire state of our beautiful world seriously.
+- They weren't.
+- Jyotir could have done it, she had constant access to me and my belongings.
+- She said she had nearly been a flight attendant but decided she didn't want to fly everywhere for environmental reasons, and then ended up flying everywhere anyway, and neglected to tell me what her job had been or actually was.
+- She was off to stay at Amma's ashram in South India.
+
+#### Mani
+
+- A British Sikh from Nuneaton (who I had initially thought was Muslim and still wonder because of the accent).
+- We got on but he was trying it on a bit and he was obviously a spy.
+- He was sharing with Henry.
+- Mani and the Canadian became "available men" over the trip, and Jyotir made sure to tell me.
+- Yawn.
+
+#### The American and the Russian
+
+- I think I was supposed to think she had been sent to spy on me (the American) and she was the only one who had, and the Russian had been sent to mind her.
+- They were too exaggerated, and when the mask slipped too business like.
+- She was pro-trans and really vocal about it; it was quite painful to listen to.
+- She wrecked my nervous system. Was that her task?
+- When I said goodbye to her, I told her we should pray for justice for women and girls, and she looked so thoughtful and serious, like she was wondering if she'd been told to spy on (poison?) an Epstein victim and it didn't sit well with her.
+- She did that a few times after I said truthful things.
+- Which is nice.
+- Do you think I might be able to start a feet-on-the-ground mousse revolution?
+
+#### The Indians
+
+- wip
+
+#### The Germans 
+
+- wip
+
+#### The Frenchman
+
+- wip
+
+### Everest Base Camp and sickness
+
 - A sudden death at Everest Base Camp would be a good place to get rid of someone without question, I expect, and I wonder about how ill I got there.
 - I started feeling unwell on the journey up to Everest Base Camp from Shigatse.
 - My rib was playing up - weakened by continued drugging and poisoning over many years in Spain - and worsening every time I lifted my bag - it had re-opened during a yoga class just a week before which felt so totally unlucky to me.
@@ -29,8 +117,14 @@ function googleTranslateElementInit() {
 ![Me half dead at EBC](../../content/images/me-half-dead-at-everest-base-camp.jpg)
 
 - I gave up on my hopes for Kailash kora pretty quickly, but then it turned out the weather was so bad they closed the kora for everyone.
-- I don't feel I missed out on anything, I spent a good few days at the holy feet of God Himself, but I might return in my 60s God willing.
-- In any event, the chest infection started to remind me of [being smothered with pillows and my duvet at my home on 13th March 2024](../2024/march/13-end.md#the-pillow-game) and I realize that my legs must have been free while that was happening and I tried to free myself from being suffocated under the weight being pushed down on me... for sure Maria hontanilla was there... Bruno's younger brother, probably Gloria... another man or two to apply the weight to my face so I couldn't breathe ... while my legs went around and around trying to get free, and they all laughed at me, all these memories came back with the chest infection at Kailash.
+- My nervous system was shot to pieces also, everyone was shouting at each other, and I couldn't sit up without having to lie back down again.
+- Vilde comes into our room fussing and carrying on, packing my stuff, *we have to leave we have to leave* (the group is moving hotels for one night) and I'm saying no, the management told me I could stay, and she's getting really quite interestingly harsh with me (which made my eyebrows raise a bit) and I'm saying no, and she's packing my stuff up...
+- And eventually I realize I have to sort this out, so I go down and organize one extra night by myself at this hotel and the others go elsewhere.
+- So I stay, they all go, and the MINUTE I'm alone, I have MASSIVE diarrhea which was backing up since the day I took the biscuits or before. MASSIVE.
+- It's such a relief.
+- I haven't eaten for and eventually lose about 3-5kg. The guide insists the woman makes me breakfast in the morning before they come and get me and she does, and it's like nectar from heaven itself.
+- I don't feel I missed out on anything, I spent a good few days at the holy feet of God Himself recovering from a deadly poison attempt, so I think it's probably essential I return as much as possible and perhaps friendly nice people who haven't been instructed to murder me might come with me.
+- In any event, the chest infection started to remind me of [being smothered with pillows and my duvet at my home on 13th March 2024 - I was triggered to remember a murder attempt](../2024/march/13-end.md#the-pillow-game) (and another one too, I believe..) and I realize that my legs must have been free while that was happening and I tried to free myself from being suffocated under the weight being pushed down on me... for sure Maria hontanilla was there... Bruno's younger brother, probably Gloria... Paqui I think must have been there, another man or two to apply the weight to my face so I couldn't breathe ... while my legs went around and around trying to get free, and they all laughed at me, all these memories came back with the chest infection at Kailash.
 
 ![Kailash](../../content/images/kailash.jpg)
 
@@ -65,7 +159,7 @@ function googleTranslateElementInit() {
 - My view is that the Islamicists know very well the arrogance of the West and it's adherents' inability to admit to being tricked in this way, to it's continued detriment.
 - Very smart indeed from the Islamicists, and supported by their terrified attitudes towards their own women and children, hiding them away from everything, just in case the same might happen to them... I guess.
 
-### Brain-wipe
+### Brain-wipe total
 
 - Obsession has disappeared, I wonder if I imagined everything.
 - I guess I got a MASSIVE dose of something, again.
