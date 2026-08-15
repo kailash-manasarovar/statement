@@ -219,10 +219,38 @@ function googleTranslateElementInit() {
 - It was the second course, module 3, with [the cohort I had met in September](../2025/september.md#dublin-transforming-touch-therapy-with-steve).
 - Guilt expressed maybe?
 - A test to see how I might take a bit of psychological torture?
-- I didn't take it well. But it's not the torture itself - I was everyone's breakfast, lunch, and dinner in Dénia for years, remember? - it's the fact that people you thought you could trust are doing it.
+- Before they started in on me, just before the course started, I had received a query from the [Transforming Touch referral system](https://coregulatingtouch.com/) - where people can contact you if you want healing.
+
+![Co-regulating touch](../../content/images/co-regulating-touch.jpg)
+
+- I thought it was a genuine request initially from a woman calling herself *Joyce*.
+- I'm unable to access the email on the website where I was notified about it now, I don't know why, but I replied in any case telling the person I was not taking any clients, would they like a referral.
+- At the same time, I realize I need to change my profile details, but I'm unable to figure out how to do it.
+- I tell a woman on the course I might have a referral for her, and ask Gerardine how to access the site to make an edit again.
+- The woman responds in the meantime.
+
+![Reply to query](../../content/images/tt-bogus-declaration.jpg)
+
+- It's bogus.
+- This is the only query I have ever had on that site.
+- Here's my listing: https://coregulatingtouch.com/business-directory/dr-katharine-murphy-ttp-london-uk/ and I've just found out how to edit it too.
+- When the psychological terror-meme mentions started, including:
+    - Steve saying "switcheroo".
+    - The German woman who had called me "Saint Katharine" saying: In concert.
+    - This sort of thing..
+- The German woman mentions *Joy*, again and again, and I realize after a bit they're referring to the query email, and perhaps something broader too.
+- Later, I wonder if this *Joy* is referenced in [extremely early fake accounts on Twitter, right in the midst of fighting the porn-gangs of Dénia](../2024/may.md#hazel-smith-pretends-to-be-esteve-online) when I still thought everyone talking to me was mostly Hazel or Domingo.
+- See below "My name is Joy", in German!
+
+[![Esteve's pic](../../content/tweets/may-2024/hazel-posing-as-esteve.jpg)](https://x.com/ChoralSymphony)
+
+- I think the TT crowd wanted me to leave them. They must have.
+- I guess if they're a secret business, and I become extraordinarily famous, they'd risk everything keeping me on... but I'm sure there's kinder more loving ways to do something like this! Isn't it? A better way, maybe?
+- I didn't take it well. 
+- I started to shake and my wrist (where there's an unusual injury that could do with a scan and examination) because to quiver.
+- I got a blanket, sat behind the circle on the second line, put the blanket over myself and hid.
+- It's not the torture itself - I was everyone's breakfast, lunch, and dinner in Dénia for years, remember? - it's the fact that people you thought you could trust are doing it.
 - And what really got me, was the realization that something I thought I could always turn to as a safe space for healing just disappeared, poof!
-- I can't see what else they might have intended except to start the process of getting rid of me since they had gotten what they wanted already.
-- Lovely.
 
 #### I thought I'd talk about something important with the group
 
