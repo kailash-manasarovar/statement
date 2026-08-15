@@ -11,6 +11,7 @@ function googleTranslateElementInit() {
 ## Kailash
 
 - I'm starting to realize that being homeless, not being able to settle and work because of sedated rape-porn stardom, not having any support at all from anyone, and finding out exactly how much my family and the porn-loving world itself despises me, and for how long, is unsurprisingly taking a toll on my health and wellbeing.
+- (UPDATE: I haven't been this healthy in years since being by the mountain. FACTS!!!)
 - You'd think that mass stalking by security services might prompt them to help me out.
 - But no, and this is getting weird now.
 - What are their intentions?
