@@ -35,15 +35,17 @@ function googleTranslateElementInit() {
 - Henry is Brazilian, gay, gypsy, and has a bag full of illegal substances; hallucinogens, uppers, downers, you name it, and he's not afraid to tell everyone about it.
 - He has glasses which film video and he has no problem with getting connected to any app in China, which is extraordinary.
 - He's very rich after the death of his first husband.
-- Henry is the obvious one, but too obvious in fact, it's very easy to set Henry up as a poisoner.
-- After poisoning at Everest Base Camp, and over the next month or so on Substack (where I had started to talk directly to the CIA in Dublin in exactly the same way I spoke to criminal gangs on X and eventually got so sick of them deleted my account), Henry starts to get mentioned, a lot.
+- He's a witch, he declares and tells us story after story of spells he did, or the times he was possessed by Ganesha, and such and such... and I was thinking *this man has forgotten God* and I was a bit worried about him because of this especially because we were off to literally visit God.
+- Henry is the obvious one, but too obvious in fact, it's very easy to set Henry up as a poisoner and he may well be one already.
+- After poisoning at Everest Base Camp, and over the next month or so on Substack (where I had started to talk directly to the CIA in Dublin in exactly the same way I speak/spoke to criminal gangs on X and eventually got so sick of them deleted my account), Henry starts to get mentioned, a lot.
 - It's too easy to point the finger at Henry.
 - He's gypsy and so they think I'll be instantaneously suspicious of him, but they don't know I know how much the gypsy community love me and how I love them back.
-- I told Henry this, he went quiet on me, and looked sad.
-- Perhaps that's my next stop, Sainte Marie de le Mer, wdyt?
-- And the interesting thing about all the "chatter" about him while I was online in Bali was that they always used the name "Henry", but he had not used this name to introduce himself, not once.
+- I told Henry this, he went quiet on me and looked sad.
+- Was this behavior coming from an instruction in his ear?
+- And the interesting thing about all the "chatter" about him while I was online in Bali was that - it was coming in after I wrote about Tibet - they always used the name "Henry", but he had not used this name to introduce himself, not once.
 - He had called himself Luis - but originally told me a fuller story about how he was Henrique, but pronounced it as far away from the sound of the word "Henry" as you can get - and in the end we all called him Ricky!
 - So I'm very suspicious about them pointing the finger at him, and due to his gypsy background and his bag of drugs, his prostitute mother, and everything else he said, I believe they set him up as prime suspect in case it all went tits up.
+- He was nuts and I liked him. He may have been high quite a lot. I translated his Spanish for him a bit too. 
 - No-one ever called him Henry, but because you have been, I will.
 
 #### The Indian
@@ -79,8 +81,10 @@ function googleTranslateElementInit() {
 - A British Sikh from Nuneaton (who I had initially thought was Muslim and still wonder because of the accent).
 - We got on but he was trying it on a bit and he was obviously a spy.
 - He was sharing with Henry.
+- Henry introduced him as Gerald before anyone met him; he said Gerald had arrived already and was sleeping.
 - Mani and the Canadian became "available men" over the trip, and Jyotir made sure to tell me.
 - Yawn.
+- Mani and Henry get really sick at the end of the trip.
 
 #### The American and the Russian
 
@@ -268,6 +272,9 @@ function googleTranslateElementInit() {
 - Some of them got a bit excited at times - the Americans/Brits - and I had to tell them to stop fannying around, which was funny, everyone laughed.
 - They really outdid themselves with the Elon event they set up on the full moon, that was hilarious.
 - Was that actually Elon?
+- I think it was. Can you check?
+- What are they saying to us? We don't care about women, children, and babies, and here I am to prove it?
+- I think it's about time the revolution began, don't you?
 - But we all became good friends, I think, I hope.
 - The best thing was when all the agents did the water aerobics with me on our last day.
 - It was bananas!
