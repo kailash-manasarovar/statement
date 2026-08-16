@@ -284,12 +284,17 @@ function googleTranslateElementInit() {
 
 - I used to say that a lot on X. 
 - Remember.
-- It feels like God is a lost limb for so many. They don't even realize.
-- There's so much more I can tell you from these two weeks in Bali... but I'll leave it here.
-- I can tell you I paid nearly £3000 for the course and wouldn't dare ask for a refund!
+- It feels like God is a lost limb for so many.
+- They don't even realize.
+- There's so much more I can tell you from these two weeks in Bali... but I'll leave it here unless I get a compulsion.
+- I can tell you I paid nearly £3000 for the course and I wouldn't dare ask for a refund!
 - I mean, can you imagine them reaching a hand out after spending so many millions on me and getting what they wanted??
 - No, they don't operate this way: *loving and kind*.
-- The irony is that *loving and kind* is true strength - and that doesn't include saying *be kind* and never being kind - and violence and violation is a mighty declaration fo weakness.
+- The irony is that *loving and kind* is true strength - and that doesn't include saying *be kind* and never being kind.
+- Auto-violence and violation as core process is a mighty declaration of weakness.
+- In any case, they owe me billions since [Tanya (Tanya!! omg) recruited me for the intuitive program in April 2006](../2001-to-2010/2006.md#total-eclipse-of-the-sun), without my consent or conscious awareness, and I helped bring down a real thorn in their side while they knew I could be counted on to be raped, murdered, whatever... and no-one would give a damn.
+- Their files on me must fill a room.
+- Billions.
 
 ## The Justice Defense Fund reach out
 
