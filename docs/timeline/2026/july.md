@@ -293,9 +293,9 @@ function googleTranslateElementInit() {
 
 ## Re-membering
 
-- I used to say that a lot on X. 
+- I used to say that a lot on X to the porn-gangs.
 - Remember.
-- It feels like God is a lost limb for so many.
+- God *is* a lost limb for so many.
 - They don't even realize.
 - There's so much more I can tell you from these two weeks in Bali... but I'll leave it here unless I get a compulsion.
 - I can tell you I paid nearly £3000 for the course and I wouldn't dare ask for a refund!
