@@ -153,6 +153,10 @@ function googleTranslateElementInit() {
 - It's curious.
 - It's God.
 - I think he's annoyed with them.
+- I'm sober and continue going to classes, and they continue to do their horror meme triggering thing, and it just seems ridiculous.
+- I tell them so online later on; what did I say, something like it's just *trifles* really, and then later online I said *trifles* was euphemistic for a bit silly.
+- It stops.
+- Just like the Dénia porn-gangs, the manipulation needs drugging to work effectively.
 
 ### Walking into yoga class
 
@@ -160,7 +164,7 @@ function googleTranslateElementInit() {
 - I start to wave at them and make hearts. They don't turn up anymore.
 - There's robot birds, bees, a massive snake, and a lizard too. You can tell somehow, they're not quite right. I'm amazed.
 - On my way home from a walk to the beach one day, I see a cloud with an arrow in it, and another one with a heart.
-- I know it's robo-clouds because they're framed the same way, and God does do clouds like that.
+- I know it's robo-clouds because they're framed the same way, and God does *not* do clouds like that.
 - I'm amazed.
 - I message my captors telling them I'd be happy to talk to NASA but not for a few years; there's more important work to do first.
 - They're distracting me, flirting.
@@ -174,8 +178,10 @@ function googleTranslateElementInit() {
 - I dream my mother drowns (I'm not sure but she might have been murdered).
 - I find her body in a concrete vat of water. She's wearing her old brown coat. I try to pull her out, she's too heavy.
 - I wake up devastated, my heart thumping to the same rhythm as the music in a car parked outside the house.
-- I get up and email her to see if she's OK.
+- Close to the end of the dream I had also sensed two men in my bedroom and one of them is putting something up my rear end while I'm lying on my right side.
+- I get up and email her to see if my mother is OK.
 - I'm hoping she'll reply and tell me my dad's been arrested, but she doesn't, she replies they're all well.
+- My bottom feels like something strange happened - I *never* felt like this in Dénia. I think they must apply numbing creams or something.
 - Next morning God speaks directly to my captors, and says: *you stupid idiots*.
 - On the walk in to class, Saint Michael is in the clouds, fierce and furious, red and black as the sun rises. 
 - Anyone who has seen the angels in the clouds will know exactly what I'm talking about, there were some in Thailand at Christmas but they were loving and kind. This was war and fury.
@@ -187,7 +193,7 @@ function googleTranslateElementInit() {
 
 - I noticed this first in April in Dublin, a spot which doesn't squeeze like normal spots.
 - It had been quite painful.
-- It appears again and I pick it and it doesn't behave like a normal spot, you can't squeeze it, but it does become pussy over the next few days.
+- It appears again and I pick it and it doesn't behave like a normal spot, you can't squeeze it, but it is painful and does become pussy over the next few days.
 - Also a spot in my left groin reappears that I have not seen for a good while, maybe not since November the year before, although I guess it could have been January.
 - Again, it doesn't behave like the boils I usually get there at all, the skin is so thin all over this area from the strong cream I used for the boils in 2019 that any wounds in this area, and the healing of them, do not behave as expected.
 - My view is that all this is verifiable on examination.
@@ -230,12 +236,25 @@ function googleTranslateElementInit() {
 ### Pretending to be someone you're not
 
 - I look around me and I see a multi-million dollar budget.
-- Every time they try to convince me they're someone else, I remember this.
+- Every time they get close to convincing me they're someone else, I remember this and especially the robots.
 - I wonder why they wouldn't try to help me and instead give me such a hard time.
 - It takes a while to figure out and when I do I'm pretty astonished, and upset, and understand why God said what He did when He said it.
 - But, again, it's all His Plan, so I'm sure that all of this mess will serve some unique purpose of His we can't guess at, and we can get on with the world-saving.
 
-## Yet another (fake) bridge collapses, again
+### They show me some more recent porn
+
+- I keep asking them, telling them I'm ready to see it now.
+- Eventually, they show me a still with the details shadowed out.
+- I can see it's definitely me, however.
+- I'm naked and apparently sitting up, although the camera man could be taking the photo from above, I guess, with my head on a pillow.
+- I'm looking down my naked body - I'm not sure if my eyes are open but I guess they will be as that's how [the Dénia gang's sedating substances function - see Zoe's daughter Yasmin in 2008](../2001-to-2010/2008.md#yasmin-falls-asleep-with-her-eyes-open).
+- Around my groin and genital area is the back of a man's head. You can see messy hair.
+- I try to figure out the date of this outrage but it's too difficult as my face is in shadow.
+- I guess it could have been anytime up to [poisoning in October 2024](../2024/october.md#serious-poisoning-with-intent-to-kill) when I started to put excessive weight on around my vital organs, because I couldn't see any evidence of that.
+- I do remember the last time I really felt slim was in [Madrid in May 2024 just before Bali](../2024/may.md#bali) when I bought some small-size jeans which I now billow out of.
+- I wonder if the poisoning with intent to kill began straight after, and I started to develop inflammation around my liver area at that time which suddenly made my yoga practice deteriorate and has similarities to [Maria's horrific experiences in Dénia too](../2011-to-2020/2015.md#vipasana-maria).
+
+### Yet another (fake) bridge collapses, again
 
 - What is the airspeed velocity of a coconut-laden scanning swallow?
 
@@ -245,7 +264,7 @@ function googleTranslateElementInit() {
 - How do you know so much about swallows?
 - Well, a king has to know about all sorts of things you know.
 
-## I decide to leave
+### I decide to leave
 
 - I hear "pack" in yoga class on the Saturday morning.
 - I've realized that the intuitive agent business can also plant ideas in people's heads, and this explains many of the thoughts I have which feel alien, and this one feels a bit alien too, but I like it.
@@ -260,6 +279,7 @@ function googleTranslateElementInit() {
 
 - I used to say that a lot on X. 
 - Remember.
+- There's so much more from these two weeks in Bali... but I''ll leave it here.
 
 ## BAU at the conservatory
 
