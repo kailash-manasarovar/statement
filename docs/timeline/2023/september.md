@@ -1056,6 +1056,7 @@ function googleTranslateElementInit() {
 - That's a very British term to use and I assume it came from the Smiths before I knew half of North London had a subscription to my spy-cam sedated sex-slavery.
 - I was alarmed to see his face in google searches like this. 
 - He looks scared, and it threw me off again thinking he was normal and uninvolved.
+- Or is that him at my home in Carrer Furs while I was there too?
 
 ## Piano classes
 
