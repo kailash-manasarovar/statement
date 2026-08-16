@@ -161,6 +161,9 @@ function googleTranslateElementInit() {
 ## Election campaign
 
 - I spend the rest of June in the UK running my general election campaign for Finchley and Golders Green.
+
+![Deeds not words](../../content/images/deeds-not-words.jpg)
+
 - It is one of the most exhilarating times of my life.
 - The Barnet Post runs an advertisement for all the candidates and I supply a short introduction to myself and why I'm standing.
 

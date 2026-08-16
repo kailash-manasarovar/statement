@@ -251,6 +251,11 @@ function googleTranslateElementInit() {
 - Around my groin and genital area is the back of a man's head. You can see messy hair.
 - I try to figure out the date of this outrage but it's too difficult as my face is in shadow.
 - I guess it could have been anytime up to [poisoning in October 2024](../2024/october.md#serious-poisoning-with-intent-to-kill) when I started to put excessive weight on around my vital organs, because I couldn't see any evidence of that.
+- The closest image to my head that I saw on this fake account pic on Substack was how I looked from about 2015-2019 I would say.
+
+![Image 15](../../content/images/face-15.jpg)
+
+- This image is now [in online search by formal and un-shadowy law-enforcement teams](#the-justice-defense-fund-reach-out).
 - I do remember the last time I really felt slim was in [Madrid in May 2024 just before Bali](../2024/may.md#bali) when I bought some small-size jeans which I now billow out of.
 - I wonder if the poisoning with intent to kill began straight after, and I started to develop inflammation around my liver area at that time which suddenly made my yoga practice deteriorate and has similarities to [Maria's horrific experiences in Dénia too](../2011-to-2020/2015.md#vipasana-maria).
 
@@ -285,6 +290,36 @@ function googleTranslateElementInit() {
 - I mean, can you imagine them reaching a hand out after spending so many millions on me and getting what they wanted??
 - No, they don't operate this way: *loving and kind*.
 - The irony is that *loving and kind* is true strength - and that doesn't include saying *be kind* and never being kind - and violence and violation is a mighty declaration fo weakness.
+
+## The Justice Defense Fund reach out
+
+- I receive an email from the [Justice Defense Fund](https://justicedefensefund.org/), an organization which is thank God going after the Big Porn crime scene, and it's saturation of online sex crimes.
+- They give me the details of two organizations that can help find evidence of the porn of unconsenting and sedated victims in the historic record.
+
+![Justice Defense Fund](../../content/images/justice-defense-fund-recommendations.jpg)
+
+- I contact them - even though I know the law-enforcers around me have the whole collection already, they're keeping quiet and they're too busy bullying me.
+
+### Sunset Portal by NCVIC
+
+- This website will do an online search for images of you in porn: https://sunset.ncvic.org/.
+- I have 15 images up now, from when I was 16 up to last year.
+
+![Online images](../../content/images/online-images.jpg)
+
+- And I added some porn names too (porn names: such a good joke and a laugh, snicker - I wonder if those marvelous men use them on the children and babies too).
+
+![Porn names](../../content/images/porn-names.jpg)
+
+### Alecto AI
+
+- I contact Alecto AI too.
+- As I'm browsing their website, I see a reference to *investor* OKX on their website.
+
+![OKX working with porn law enforcement, that's interesting](../../content/images/alecto-ai-friends-with-okx.jpg)
+
+- I remember [the OKX guy trying to grind with me at the Bali beach club](../2024/may.md#missing-time-at-the-beach-club) just after a mass-filmed sedated-gang-rape session with one victim, me.
+- I inform the JDF about this clear conflict of interest, and wonder if Breeze was at the beach club too.
 
 ## BAU at the conservatory
 
