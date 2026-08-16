@@ -178,7 +178,8 @@ function googleTranslateElementInit() {
 ![Javier Bardem lookalike](../../content/images/javier-bardem.webp)
 
 - I have no idea what any of this means.
-- I still don't but I suspect it's mousse activity. I'd better re-read the chapter now.. it's the one about the water I think, let's see...
+- I still don't but I suspect it's mousse activity.
+- I'd better re-read the chapter now.. it's the one about the water I think, let's see... no, it's not the water one, it's a mighty empires crashing to the ground one.
 
 ## Shoe Zone Harlow, Essex
 
