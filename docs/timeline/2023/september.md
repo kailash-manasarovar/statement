@@ -1020,36 +1020,41 @@ function googleTranslateElementInit() {
 ## Harmony classes
 
 - We have a new teacher, Alfonso, for harmony.
-- One afternoon I see him following me around Dénia, looking in shops, glancing at me, walking away, turning up somewhere else, the usual thing.
-- I have a feeling they do this to see if you'll recognize them so soon after they raped you while you were sedated.
-- I'd probably had a nap that afternoon.
+- One afternoon I see him following me around Dénia after lunch, looking in shops, glancing at me, walking away, turning up somewhere else, the usual thing.
+- I have a feeling they do this to see if you'll recognize them so soon after they raped you while you were sedated, just like [the Russian did in Bali](../2024/may.md#the-russian-porn-star).
+- I'd probably had a nap that afternoon, like most afternoons.
 - Did Alfonso enter my apartment while I was sedated that afternoon, and then hop around the town following me afterwards?
 - It's clear to me that everyone knows what's been going on and has been invited to join in terrorizing the female target of the moment.
-- I wear a funny t-shirt to class in an attempt to make light of it all and carry on with my studies.
+- I had no inkling they were all at it, that it was a free-for-all, essentially *everyone come and rape Katharine, she'll never know*!
+- I think it's just childish bullying.
+- I wear a funny t-shirt to class in an attempt to make light of it all and carry on in peace with my studies.
 
 ![Don't poke the bear](../../content/images/dont-poke-the-bear.png)
 
 - I still don't realize at this time that the gang stalkers, Domingo and his accomplices, intend nothing less than my total destruction.
-- And I still think that's somehow in the future rather than every night at my house.
+- And I still think that's somehow way off in the future rather than every afternoon and night at my house.
 - I wonder what they've been told about me that would make them so eager to terrorize me, or whether it's just something they enjoy doing to random people (women and girls) from time to time.
 - I wrote the last sentence before I even knew myself that they had all been told, and shown even, that I had been in gang-rape porn from 1989.
 
 !!! danger 
-    - I wrote most of this section before realizing they were all coming into my house(s) near enough every night while I was sedated, bringing their friends, their families, watching the fun on the local TV channel.
+    - I wrote most of this section before realizing they were all coming into my house(s) near enough every day and night while I was sedated; bringing their friends, their families, watching the fun on the local TV channel.
     - It's just extraordinary how evil people can become when they hate hard enough.
 
 - I believe there is a cultural abuse of women in Spain that everyone is familiar with and happy to take part in, and I believe that's what Alfonso thought was going on.
-- At some point, he must have realized that there was far more at stake.
-- I wonder if he became aware of the sexual grooming that I experienced with the trumpet teacher, seriously dodgy things going on at the conservatory, and the constant danger to minors especially girls.
+- I believe Spanish women are so familiar with it, there is a tacit agreement of silence about it because it is utterly abhorrent and shameful.
+- At some point, Alfonso must have realized that there was far more at stake.
+- How many other female students houses has he been in?
 - Alfonso's face came up on the `@jctot19` search results after I left my studies in fear for my life.
 
 ![Alfonso](../../content/images/harmony-teacher.png)
 
-- I saw this pic still there very recently, in 2025.
+- I saw this pic is still there very recently, in 2025.
 - Although he was persuaded initially to take part in the gang-stalking, he seemed reluctant as it continued on, and when I told him I was leaving because I was in fear of my life, he seemed to have some humanity towards me.
+- He was pretending to be normal.
 - Hackers called him a 'brat' online. 
-- That's a very British term to use and I assume it came from the Smiths.
-- I was alarmed to see his face in google searches like this. He looks scared.
+- That's a very British term to use and I assume it came from the Smiths before I knew half of North London had a subscription to my spy-cam sedated sex-slavery.
+- I was alarmed to see his face in google searches like this. 
+- He looks scared, and it threw me off again thinking he was normal and uninvolved.
 
 ## Piano classes
 
