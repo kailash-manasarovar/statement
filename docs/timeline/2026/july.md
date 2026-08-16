@@ -279,7 +279,12 @@ function googleTranslateElementInit() {
 
 - I used to say that a lot on X. 
 - Remember.
-- There's so much more from these two weeks in Bali... but I''ll leave it here.
+- It feels like God is a lost limb for so many. They don't even realize.
+- There's so much more I can tell you from these two weeks in Bali... but I'll leave it here.
+- I can tell you I paid nearly £3000 for the course and wouldn't dare ask for a refund!
+- I mean, can you imagine them reaching a hand out after spending so many millions on me and getting what they wanted??
+- No, they don't operate this way: *loving and kind*.
+- The irony is that *loving and kind* is true strength - and that doesn't include saying *be kind* and never being kind - and violence and violation is a mighty declaration fo weakness.
 
 ## BAU at the conservatory
 

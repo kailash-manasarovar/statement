@@ -273,10 +273,12 @@ function googleTranslateElementInit() {
 ### My sense of direction is temporarily healed
 
 - I've had a couple of glasses of wine when I leave Steve.
-- He actually tells me to stop following him around as he walks away, which is a bit strange, but I think he's cross with me for wondering if he and Yvonne aren't a little bit in love.
+- He actually tells me to stop following him around as he walks away, which is a bit strange, but I think he's cross with me for wondering out loud if he and Yvonne aren't a little bit in love.
 - Although, now I realize Yvonne is probably an agent sent to annoy and frustrate him, to keep him on his toes.
 - In fact, she's probably working for [the ONLY Spymaster there is](august.md#god-is-the-spymaster) to make sure that nothing can really f**k things up, no matter how hard they try.
-- She is, after all, somehow related to my dad's side of the family.
+- She is, after all, somehow related to my dad's mother's side of the family: *Margaret Murphy*.
+- She does something to him that makes him reveal to everyone a very ugly and oppressive side of himself; something I bore the brunt of in Israel one time too.
+- And then trying to get us together! Amazing. Someone's asleep at the wheel.
 - Anyway.
 - I walk back to CIA HQ, and it's about an hour's walk, and I feel like I have got my sense of direction back totally!
 - Since the poisoning in Dénia for brain-damaged porn-star requirements, I have had no sense of direction at all, I'm more clumsy than I've ever been, ... in fact I have a list of brain-damage symptoms which, as I was mentioning, if anyone gave the tiniest sh*t about - in law-enforcement terms for evidence and because being brain-damaged is no fun - would have got me analysed in detail and organized some healthcare, don't you think?
