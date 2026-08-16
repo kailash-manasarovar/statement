@@ -186,6 +186,7 @@ function googleTranslateElementInit() {
 - On the walk in to class, Saint Michael is in the clouds, fierce and furious, red and black as the sun rises. 
 - Anyone who has seen the angels in the clouds will know exactly what I'm talking about, there were some in Thailand at Christmas but they were loving and kind. This was war and fury.
 - I wonder what they did to me, and what He did to them.
+- The following morning, all my classmates seem sad. None of them want (or are instructed) to speak to me.
 - I look for any place they might get into my house while I'm in bed (unconscious) and block it off.
 - I sleep very well from then on and even the callous in my palm that I had been making while asleep starts to disappear.
 
