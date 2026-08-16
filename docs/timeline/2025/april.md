@@ -233,7 +233,7 @@ function googleTranslateElementInit() {
 - Speaking of criminal gangs pretending to be friends, sisters Susan and Sandra are there.
 - I had seen them both in [Aberdeen in March](march.md#let-women-speak-aberdeen) just before I got really high again.
 - Sandra was one of my [general electorion volunteers](../2024/june.md#volunteers-not-what-they-seem) in 2024.
-- Between seeing them in March and this event, I had remembered that Susan Hamill had [repeated a significant phrase from my police statement](../2023/may.md#chamber-music-concert) exactly [like teachers and staff had done at the conservatory of Dénia at the chamber music concert which was live-streamed onto porn networks](../2023/may.md#chamber-music-concert) and at [the final concert at the yacht club](../2023/june.md#june-9th-piano-concert) as part of their terror campaign.
+- Between seeing them in March and this event, I had remembered that Susan Hamill had repeated a significant phrase from my police statement exactly like [teachers and staff had done at the conservatory of Dénia at the chamber music concert which was live-streamed onto porn networks in May 2023](../2023/may.md#chamber-music-concert) and at [the final concert at the yacht club](../2023/june.md#june-9th-piano-concert) in June 2023.
 - So, I felt a little uneasy.
 - I explain to them as we walk towards the tree that I'm aware of multiple people we know who are regularly involved with the Let Women Speak movement being either police or police informants.
 - They say nothing. Susan changes the subject.
