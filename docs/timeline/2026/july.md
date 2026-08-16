@@ -296,6 +296,9 @@ function googleTranslateElementInit() {
 - And *that* is the main reason their attitude towards prevails and has wild tendrils leading me into fiery furnaces they cannot even have imagined back then; that I, an innocent tax-paying civilian that has done the impossible, am utterly worthless.
 - Their files on me must fill a room.
 - Billions.
+- May the mighty *Pit of the Salmon Mousses* be the last unprosperous weapon I have to deal with.
+
+![The Salmon Mousse](../../content/images/the-salmon-mousse.png)
 
 ## The Justice Defense Fund reach out
 
