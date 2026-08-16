@@ -300,6 +300,8 @@ function googleTranslateElementInit() {
 
 ![The Salmon Mousse](../../content/images/the-salmon-mousse.png)
 
+- I guess God is going to give me my babies back, and the house. We prayed for that, me and Tona-tone-tone.
+
 ## The Justice Defense Fund reach out
 
 - I receive an email from the [Justice Defense Fund](https://justicedefensefund.org/), an organization which is thank God going after the Big Porn crime scene, and it's saturation of online sex crimes.
