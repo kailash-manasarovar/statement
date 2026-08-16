@@ -182,6 +182,7 @@ function googleTranslateElementInit() {
 - I still don't but I suspect it's mousse activity.
 - I guess they were confirming that the trumpet-teacher gang (I still thought there was only one at this time) contains known serial killers. Tell us something we don't know!
 - I'd better re-read the chapter now.. it's the one about the water I think, let's see... no, no, it's not the water one, it's the mighty empire crashing to the ground one.
+- Who's the other geezer, I wonder?
 
 ## Shoe Zone Harlow, Essex
 
