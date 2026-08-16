@@ -66,7 +66,7 @@ function googleTranslateElementInit() {
 
 #### Getting to know everyone
 
-- It's a group of about twenty students.
+- It's a group of about twenty students, and every one of them has something for me.
 - In the next session, we have to pair up and find out about our partner.
 - Then, each person introduces their partner to the group.
 - As they go around, every student does and says thing in exactly the same way the students on the BAPA course at Middlesex did. They're all performing. 
@@ -205,10 +205,10 @@ function googleTranslateElementInit() {
 - It was funny though.
 - I'd be chatting to one of them, and they'd get a flea in their ear about something, and run off, or make excuses and stop the talk, or bring up something totally tangential for no reason.
 - Or another would be told how to act with me, and sometimes it was so ridiculous I found it quite amusing.
-- They were taking roles, and swapping them, and I think even the dogs were trained.
+- They were taking roles, and swapping them, and I think even the dogs were trained to move away from me, and towards a pen clicking I believe.
 - One of them was pretending to be an Israeli on the bus, and asking me questions as if I was seeking asylum.
 - Another was pretending to be a government official in charge of the "bridge". 
-- Another, Brit, was asking me about my intentions, would I ever come back to the UK, that sort of thing.
+- Another, Brit - who I have seen before and remembered where, then forgot - was asking me about my intentions, would I ever come back to the UK, that sort of thing.
 - They were all actors.
 - It was total bananas.
 - Anyway.
@@ -259,6 +259,17 @@ function googleTranslateElementInit() {
 - I do remember the last time I really felt slim was in [Madrid in May 2024 just before Bali](../2024/may.md#bali) when I bought some small-size jeans which I now billow out of.
 - I wonder if the poisoning with intent to kill began straight after, and I started to develop inflammation around my liver area at that time which suddenly made my yoga practice deteriorate and has similarities to [Maria's horrific experiences in Dénia too](../2011-to-2020/2015.md#vipasana-maria).
 
+### They're sure to tell me they know everything about me
+
+- Another conversation, another confirmation they know everything about me.
+- They would repeat my sentences verbatim back at me from blogs I wrote in 2013, ideas from my books, for example.
+- Another one was I have some injury in my solar plexus region which I have noticed for some years during yoga in certain poses.
+- Oh, I was talking about something completely different, liver inflammation, and she starts talking about the funny pain in her solar plexus region (verbatim) she's had for years that only happens in certain poses.
+- This must really freak people out who are not expecting it. 
+- Do they think they can control people like this?
+- Is that the core process, fear and domination?
+- I'm a bit like... *yawn*, now.
+
 ### Yet another (fake) bridge collapses, again
 
 - What is the airspeed velocity of a coconut-laden scanning swallow?
@@ -290,10 +301,11 @@ function googleTranslateElementInit() {
 - I can tell you I paid nearly £3000 for the course and I wouldn't dare ask for a refund!
 - I mean, can you imagine them reaching a hand out after spending so many millions on me and getting what they wanted??
 - No, they don't operate this way: *loving and kind*.
-- The irony is that *loving and kind* is true strength - and that doesn't include saying *be kind* and never being kind.
+- The irony is that *loving and kind* is true strength - and that doesn't include saying *be kind* to everyone and being quite the opposite.
 - Auto-violence and violation as core process is a mighty declaration of weakness.
 - In any case, they owe me billions since [Tanya (Tanya!! omg) recruited me for the intuitive program in April 2006](../2001-to-2010/2006.md#total-eclipse-of-the-sun), without my consent or conscious awareness, and I helped bring down a real thorn in their side, single-handedly, while they knew I could be counted on to be raped, murdered, whatever... and no-one would give a damn.
 - And *that* is the main reason their attitude towards prevails and has wild tendrils leading me into fiery furnaces they cannot even have imagined back then; that I, an innocent tax-paying civilian that has done the impossible, am utterly worthless.
+- Adams and the porn-gangs of Spain knew, didn't they, and that's why they were astronomically outrageous with me, isn't it.
 - Their files on me must fill a room.
 - Billions.
 - May the mighty *Pit of the Salmon Mousses* be the last unprosperous weapon I have to deal with.
