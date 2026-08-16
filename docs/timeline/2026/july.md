@@ -142,6 +142,16 @@ function googleTranslateElementInit() {
 - So I inform them I'm taking this decision and only coming to yoga in the morning.
 - It's what they intended.
 
+### Weird body positions
+
+- We're asked to make shapes you wouldn't be asked to make in actual yoga.
+- For example, put your fists between your knees to measure the correct distance between your open knees, with a demo from the teacher.
+- My knees are splayed, the whole pose would collapse like this.
+- This is no measurement.
+- I realize it was a position I was put in while sedated.
+- Other things like that.
+- Always something.
+
 ### Two or three days of this before the non-visual-hallucinogen wears off
 
 - I think it was Tuesday afternoon when I started to yawn excessively, the anxiety and dissociation dissipating.
