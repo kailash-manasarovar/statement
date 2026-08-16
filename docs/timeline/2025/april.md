@@ -229,36 +229,46 @@ function googleTranslateElementInit() {
 
 ## Let Women Speak April
 
-- I go to Hyde Park Let Women Speak on 27th April.
-- Speaking of criminal gangs posing as friends of the women's rights movement, Susan and Sandra are there.
-- I had seen them both in [Aberdeen in March](march.md#let-women-speak-aberdeen).
-- Sandra was an [electoral volunteer](../2024/june.md#volunteers-not-what-they-seem) of mine in 2024.
-- Between the previous time I saw them in March, and this event, I had remembered that Susan Hamill had [repeated a significant phrase from my police statement](../2023/may.md#chamber-music-concert) exactly like teachers and staff had done at the conservatory of Denia while terrorizing me.
-- I felt a little uneasy.
-- The first thing Susan says to me is, "oh do you want an icecream?", and she goes to get icecreams for her and Sandra.
-- I declined and thought there was something weird going on.
-- We went to the pub.
-- I buy Susan a pint for her birthday, and one for me.
+- I go to Hyde Park in London to attend the Let Women Speak rally on Sunday 27th April.
+- Speaking of criminal gangs pretending to be friends, sisters Susan and Sandra are there.
+- I had seen them both in [Aberdeen in March](march.md#let-women-speak-aberdeen) just before I got really high again.
+- Sandra was one of my [general electorion volunteers](../2024/june.md#volunteers-not-what-they-seem) in 2024.
+- Between seeing them in March and this event, I had remembered that Susan Hamill had [repeated a significant phrase from my police statement](../2023/may.md#chamber-music-concert) exactly [like teachers and staff had done at the conservatory of Dénia at the chamber music concert which was live-streamed onto porn networks](../2023/may.md#chamber-music-concert) and at [the final concert at the yacht club](../2023/june.md#june-9th-piano-concert) as part of their terror campaign.
+- So, I felt a little uneasy.
+- I explain to them as we walk towards the tree that I'm aware of multiple people we know who are regularly involved with the Let Women Speak movement being either police or police informants.
+- They say nothing. Susan changes the subject.
+- I mention [my suspicions about Little Steve](../2024/june.md#volunteers-not-what-they-seem).
+- After we get to the tree, the first thing Susan says to me is, "Do you want an ice cream?".
+- It's weird. I decline.
+- Off she goes to get ice creams for her and Sandra.
+- After the rally, packed full of spies and agent provocateurs, we all went to the pub.
+- As we go into the pub, Sandra wants to know why I would still enjoy the company of someone I thought was a police information - in reference to what I had told them about Steve.
+- I can't remember what I said, or if I had time to answer.
+- My explanation now is that everyone deserves a fair trial don't they, and suspicions don't add up to condemnations. So, let's wait and see who's who and where they stand. That's always been my view on the unscrupulous. You never know what's driving them. Anyway...
+- I buy Susan a pint for her birthday - in Aberdeen they had invited me to go out with them for her birthday celebrations but I was unable to, thank goodness!
 - We sit down.
-- I'm talking to other people.
-- I have drunk a few sips of my pint and suddenly Susan says, "do you want a chaser?".
+- I'm talking to other people, the twins.
+- I have drunk just a few sips of my pint.
+- Suddenly Susan butts in to our conversation and says, "Do you want a chaser?".
 - I'm a bit surprised and say no.
-- A few minutes later, while I'm chatting with someone, she puts a full pint down before me which I don't really want but I feel I've no choice but to accept.
-- Susan and Sandra leave. 
+- A few minutes later, while I'm still chatting with one of the twins, about a fifth of my pint gone, she puts a full pint down before me which I don't really want but I feel I've no choice but to accept and eventually drink.
+- Susan and Sandra then leave the pub. 
 - When I get home that night I become extremely unwell.
 - I spend two days in bed vomiting profusely.
 - My whole family also get sick in the same way which is particularly concerning.
-- My father was first to get sick, on the Friday evening after we had fish and chips in Muswell Hill.
-- The following Monday, Susan posts a picture of a single pint on a pub table with no-one around on the LWS WhatsApp group chat.
+- My father was first to get sick, on the Friday evening after we had fish and chips in Muswell Hill - I had left him in the car for about 20 minutes while I went to the chip shop so something could have happened during that time... perhaps he'll let us know one day.
+- The following Monday, while I'm projectile vomiting every twenty minutes, I see that Susan has posted a picture of a single pint on a pub table with no-one around on the LWS WhatsApp group chat!
 - The next time I see Sandra at LWS in May, I'm extremely standoffish.
 - On X, I see a post that evening, "Don't be rude".
+- Are they with North London's finest? Or the Metropolitan police?
 - I respond a week later after thinking about it.
 
 ![Support the pedo rape gangs](../../content/tweets/support-pedo-rape-gangs.png)
 
-- It feels to me that certain vested interests are very keen for me to not attend Let Women Speak rallies, to be afraid to go, to feel in fear for my safety.
+- It feels to me that certain vested interests are keen for me to never attend Let Women Speak rallies, to be afraid to go, to feel in fear for my safety.
 - I assume those vested interests must be somehow protecting the pedophile rape gangs that stole my life from me and countless other women and girls, and men and boys too no doubt.
-- Sometimes, at Let Women Speak rallies, it feels like the only people attending are spies.
+- Sometimes, at Let Women Speak rallies, it feels like the only people there are spies.
+- Women speaking you know, brrrrrrr... a silencing budget of billions, signed off in a nano-second, no doubt.
 
 ## Ireland
 
