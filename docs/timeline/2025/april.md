@@ -166,11 +166,12 @@ function googleTranslateElementInit() {
 
 ### The lookalikes up the road
 
-- One day, a good few months after I start this project, I generate a photo of a man who looks exactly a man I keep seeing sitting in his front garden outside his house, in my road but a few houses up the road from mine at 31.
+- One day, a good few months after I start this project, I generate a photo of a man who looks exactly like a man I keep seeing sitting in his front garden outside his house.
+- It's a house in my road but a few houses up the road from mine at 31 and I've been seeing him whenever I walk or drive by.
 
 [![Man up the road in his front garden](../../content/images/the-man-in-his-front-garden.webp)](https://desocialworld.com/posts/24e84af5125cc2208f05a843d683213dca4f05c9b5f2d66fb194acca49e6dfb5?tab=posts)
 
-- The related bible chapter is Ezekiel 31.
+- The related bible chapter on DESO is [Ezekiel 31](https://desocialworld.com/posts/24e84af5125cc2208f05a843d683213dca4f05c9b5f2d66fb194acca49e6dfb5?tab=posts).
 - I mention this on X at some point.
 - I think my laptop does something weird, crashes inexplicably maybe.
 - The next time I walk past this house, there's another man there, and he looks like Javier Bardem in his serial killer role.
@@ -179,7 +180,8 @@ function googleTranslateElementInit() {
 
 - I have no idea what any of this means.
 - I still don't but I suspect it's mousse activity.
-- I'd better re-read the chapter now.. it's the one about the water I think, let's see... no, it's not the water one, it's a mighty empires crashing to the ground one.
+- I guess they were confirming that the trumpet-teacher gang contains known serial killers.
+- I'd better re-read the chapter now.. it's the one about the water I think, let's see... no, no, it's not the water one, it's the mighty empire crashing to the ground one.
 
 ## Shoe Zone Harlow, Essex
 
