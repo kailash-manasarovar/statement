@@ -258,6 +258,7 @@ function googleTranslateElementInit() {
 - This image is now [in online search by formal and un-shadowy law-enforcement teams](#the-justice-defense-fund-reach-out).
 - I do remember the last time I really felt slim was in [Madrid in May 2024 just before Bali](../2024/may.md#bali) when I bought some small-size jeans which I now billow out of.
 - I wonder if the poisoning with intent to kill began straight after, and I started to develop inflammation around my liver area at that time which suddenly made my yoga practice deteriorate and has similarities to [Maria's horrific experiences in Dénia too](../2011-to-2020/2015.md#vipasana-maria).
+- I also found out about what happened to Lorraine Blackbourn that caused her to commit suicide, and they even demonstrated the rope ties on a snoopy video tailored just for me. There was a lot of those.
 
 ### They're sure to tell me they know everything about me
 
