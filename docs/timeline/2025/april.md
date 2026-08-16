@@ -164,6 +164,22 @@ function googleTranslateElementInit() {
 - We could get *prominent businessmen* to add to the victim's compensation fund... another couple of billion maybe.
 - Shall we add a billion or so from the Generalitat and Spanish government for knowingly putting (mostly foreign... but in Dénia it's clearly become a free for all) students at risk of poisoning, drugging, sedating, sex crimes, brain-damage, and murder?
 
+### The lookalikes up the road
+
+- One day, a good few months after I start this project, I generate a photo of a man who looks exactly a man I keep seeing sitting in his front garden outside his house, in my road but a few houses up the road from mine at 31.
+
+[![Man up the road in his front garden](../../content/images/the-man-in-his-front-garden.webp)](https://desocialworld.com/posts/24e84af5125cc2208f05a843d683213dca4f05c9b5f2d66fb194acca49e6dfb5?tab=posts)
+
+- The related bible chapter is Ezekiel 31.
+- I mention this on X at some point.
+- I think my laptop does something weird, crashes inexplicably maybe.
+- The next time I walk past this house, there's another man there, and he looks like Javier Bardem in his serial killer role.
+
+![Javier Bardem lookalike](../../content/images/javier-bardem.webp)
+
+- I have no idea what any of this means.
+- I still don't but I suspect it's mousse activity. I'd better re-read the chapter now.. it's the one about the water I think, let's see...
+
 ## Shoe Zone Harlow, Essex
 
 - I take my dad to a rehearsal near Harlow in Essex for the afternoon.
