@@ -165,6 +165,7 @@ function googleTranslateElementInit() {
 - I think he's annoyed with them.
 - I'm sober and continue going to classes, and they continue to do their horror meme triggering thing, and it just seems ridiculous.
 - I tell them so online later on; what did I say, something like it's just *trifles* really, and then later online I said *trifles* was euphemistic for a bit silly.
+- Fatuous is the better word.
 - It stops.
 - Just like the Dénia porn-gangs, the manipulation needs drugging to work effectively.
 
