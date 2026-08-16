@@ -304,10 +304,9 @@ function googleTranslateElementInit() {
 - The irony is that *loving and kind* is true strength - and that doesn't include saying *be kind* to everyone and being quite the opposite.
 - Auto-violence and violation as core process is a mighty declaration of weakness.
 - In any case, they owe me billions since [Tanya (Tanya!! omg) recruited me for the intuitive program in April 2006](../2001-to-2010/2006.md#total-eclipse-of-the-sun), without my consent or conscious awareness, and I helped bring down a real thorn in their side, single-handedly, while they knew I could be counted on to be raped, murdered, whatever... and no-one would give a damn.
-- And *that* is the main reason their attitude towards prevails and has wild tendrils leading me into fiery furnaces they cannot even have imagined back then; that I, an innocent tax-paying civilian that has done the impossible, am utterly worthless.
+- And *that* is the main reason their attitude towards me prevails, while leading me into fiery furnaces they cannot even have imagined back then; that I, an innocent tax-paying civilian that has done the impossible, am utterly worthless.
 - Adams and the porn-gangs of Spain knew, didn't they, and that's why they were astronomically outrageous with me, isn't it.
 - Their files on me must fill a room.
-- Billions.
 - May the mighty *Pit of the Salmon Mousses* be the last unprosperous weapon I have to deal with.
 
 ![The Salmon Mousse](../../content/images/the-salmon-mousse.png)
