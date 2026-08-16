@@ -1049,6 +1049,7 @@ function googleTranslateElementInit() {
 ![Alfonso](../../content/images/harmony-teacher.png)
 
 - I saw this pic is still there very recently, in 2025.
+- I don't think he actually has a tattoo like this, I guess he might do but he wore t-shirts and we would have seen it, so perhaps it's AI-ed on.
 - Although he was persuaded initially to take part in the gang-stalking, he seemed reluctant as it continued on, and when I told him I was leaving because I was in fear of my life, he seemed to have some humanity towards me.
 - He was pretending to be normal.
 - Hackers called him a 'brat' online. 
