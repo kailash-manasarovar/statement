@@ -230,6 +230,9 @@ function googleTranslateElementInit() {
 ## Let Women Speak April
 
 - I go to Hyde Park in London to attend the Let Women Speak rally on Sunday 27th April.
+
+![April 2025 Let Women Speak](../../content/images/let-women-speak-april-25.jpg)
+
 - Speaking of criminal gangs pretending to be friends, sisters Susan and Sandra are there.
 - I had seen them both in [Aberdeen in March](march.md#let-women-speak-aberdeen) just before I got really high again.
 - Sandra was one of my [general electorion volunteers](../2024/june.md#volunteers-not-what-they-seem) in 2024.
@@ -267,8 +270,8 @@ function googleTranslateElementInit() {
 
 - It feels to me that certain vested interests are keen for me to never attend Let Women Speak rallies, to be afraid to go, to feel in fear for my safety.
 - I assume those vested interests must be somehow protecting the pedophile rape gangs that stole my life from me and countless other women and girls, and men and boys too no doubt.
-- Sometimes, at Let Women Speak rallies, it feels like the only people there are spies.
-- Women speaking you know, brrrrrrr... a silencing budget of billions, signed off in a nano-second, no doubt.
+- Sometimes, at Let Women Speak rallies, it feels like the only people there are spies. It's so nice it's all videoed for the record in perpetuity.
+- Women speaking you know, brrrrrrr... a silencing-budget of billions, signed off in a nano-second, no doubt.
 
 ## Ireland
 
