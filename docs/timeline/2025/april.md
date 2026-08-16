@@ -244,8 +244,8 @@ function googleTranslateElementInit() {
 - After we get to the tree, the first thing Susan says to me is, "Do you want an ice cream?".
 - It's weird. I decline.
 - Off she goes to get ice creams for her and Sandra.
-- After the rally, packed full of spies and agent provocateurs, we all went to the pub.
-- As we go into the pub, Sandra wants to know why I would still enjoy the company of someone I thought was a police information - in reference to what I had told them about Steve.
+- After the rally, packed full of spies and agent provocateurs, we all go to the pub.
+- As we go into the pub, Sandra wants to know why I would still enjoy the company of someone I thought was a police informant - in reference to what I had told them about Steve.
 - I can't remember what I said, or if I had time to answer.
 - My explanation now is that everyone deserves a fair trial don't they, and suspicions don't add up to condemnations. So, let's wait and see who's who and where they stand. That's always been my view on the unscrupulous. You never know what's driving them. Anyway...
 - I buy Susan a pint for her birthday - in Aberdeen they had invited me to go out with them for her birthday celebrations but I was unable to, thank goodness!
