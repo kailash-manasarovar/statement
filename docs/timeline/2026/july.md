@@ -148,7 +148,7 @@ function googleTranslateElementInit() {
 - For example, put your fists between your knees to measure the correct distance between your open knees, with a demo from the teacher.
 - My knees are splayed, the whole pose would collapse like this.
 - This is no measurement.
-- I realize it was a position I was put in while sedated.
+- I realize it was a position I was put in while sedated, so it's on film.
 - Other things like that.
 - Always something.
 
