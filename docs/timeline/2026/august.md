@@ -89,4 +89,4 @@ function googleTranslateElementInit() {
 
 ## What a world
 
-- 
+- Thank God for God.
