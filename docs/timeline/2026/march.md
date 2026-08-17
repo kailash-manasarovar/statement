@@ -58,6 +58,7 @@ function googleTranslateElementInit() {
 - What could be the reason?
 - Father. Are You having me collect the horrific scale of what's happened to men as a preliminary step for the tidal wave of healing to come?
 - Do you think men are just like... yeh, this is great, come on everyone, let's rape our mothers, wives, sisters, daughters, mate's girlfriends, children, babies etc... oh yeah, let's use the pets too... hehe... and we'll get the local postman to deliver them drugs so they'll never bother questioning us they'll be so high... and these men fail to notice how the world is literally about to end because of their pathetic actions.
+- No, in August 2026 after everything that's happened, I believe this sort of thing is organized by the mousses so that I wouldn't get comfortable anywhere, or sidetracked - I think I looked up rentals a few times in the town online as it was so nice there - so that my trajectory would continue to egg-extraction in Dublin.
 
 ### Thalazur Saint Jean de Luz
 
