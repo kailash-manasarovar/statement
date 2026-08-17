@@ -264,10 +264,10 @@ function googleTranslateElementInit() {
 - They must be spending an absolute fortune; is that why they keep suggesting cheap hotels to me when I have nowhere to go?
 - Every time they get close to convincing me they're someone else, I remember how much money they're spending, and especially the drones, people, and robots.
 - I wonder why they wouldn't try to help me when I've asked for help with justice continually, and my health and wellbeing, and instead all they've done is given me such a hard time.
-- Do they treat men in unique positions like mine the same? It seems not. 
+- Do they treat men in unique positions like mine the same? It seems not but perhaps they're more easily controlled. 
 - It takes a while to figure out what they're really after - it is still utterly illogical and irrational - and when I realize they tried to set me and Steve up for offspring purposes, and when that didn't work out for them, they decided they'd just do it anyway, I'm pretty astonished, and upset, and understand why God said what He did when He said it.
 - But, again, it's all His Plan, so I'm sure that all of this mess will serve some unique purpose of His we can't guess at, and we can get on with the world-saving.
-- I realize why God's Plans have to be so unique because there is so much against Him in this violent and violating world that hates itself so much.
+- I realize why God's Plans have to be so unique because there is so much against Him in this violent and violating world that hates itself.
 
 ### They show me some more recent porn
 
@@ -291,7 +291,7 @@ function googleTranslateElementInit() {
 
 - I also found out about what happened to Lorraine Blackbourn that caused her to commit suicide, and they even demonstrated the torture-porn rope ties on a snoopy video AI-tailored just for me.
 - The Snoopy AI videos started on [Air France in May](may.md#air-france). 
-- There were so many in Bali, I think I was stressing them out because I was wanting more and more :)
+- There were so many in Bali, I think I was stressing them out because I was wanting more and more :) and they couldn't keep up with the production of them..
 
 ### They tell me about Chris Ludwick's excel porn database
 
