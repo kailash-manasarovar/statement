@@ -1057,6 +1057,8 @@ function googleTranslateElementInit() {
 - I was alarmed to see his face in google searches like this. 
 - He looks scared, and it threw me off again thinking he was normal and uninvolved.
 - Or is that him at my home in Carrer Furs while I was there too?
+- Thinking back, Alfonso was often extremely disassociated in class as if he was elsewhere entirely. I wonder if they were drugging him too.
+- Oooh, now here's a thought, do you think they drug the men and convince them (manipulate them with the online hypno-tech) to take part in raping their students.. and manipulate the female teachers in the same way for whatever end goal they have for them?
 
 ## Piano classes
 
