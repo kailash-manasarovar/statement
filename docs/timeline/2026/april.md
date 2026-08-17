@@ -299,10 +299,21 @@ function googleTranslateElementInit() {
 
 ### I have some questions for Steve about the course
 
-- It was an assumption of mine that Steve would have been as obsessed about the course as I am.
+- It was an assumption of mine that Steve would have been as obsessed about the course (ACIM) as I am.
 - It turns out I was wrong, and he is a staunch catholic and found my questions a bit offensive.
 - So that was interesting.
 - He had done the workbook exercises one time, however, if I remember rightly.
+- So he doesn't know the course at all.
+
+### I'm leaving and someone makes me cry
+
+- One of my classmates as I'm leaving says something that makes me cry.
+- It's only now I realize how much they all despise me, just like the porn-gangs and billions of men around the world.
+- It's extraordinary.
+- One criminal gang took the place of another. 
+- The only difference was the budget.
+- The goal in content, although not form, is the same.
+- The Light really blinds doesn't it.
 
 ## I'm signing
 

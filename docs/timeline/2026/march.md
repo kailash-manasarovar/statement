@@ -28,6 +28,16 @@ function googleTranslateElementInit() {
 
 - The Italian, apparently, who looked very familiar, like a film star.
 
+### Battered online, feeling unwell, tired, want to go home
+
+- Over this time I was battered psychologically online and very much through the iPhone chip hack.
+- I thought it was the Spanish but in retrospect probably they haven't been attacking me like they used to at all, and it was all the mousses.
+- I didn't know this and kept thinking Carmen Lopez Cano was still harassing me and making me feel terrible.
+- I also felt unwell, tired, I was worried about my hip, and my rib, and I asked for help.
+- I said I just wanted to go home and that I probably need medical attention.
+- That night, I hear Mrs Wasserman's voice in the room.
+- I think they staged it through the iPhone.
+
 ## Thalazur Bandol
 
 - I stay a few days at the Thalazur Bandol before driving to Lourdes.
