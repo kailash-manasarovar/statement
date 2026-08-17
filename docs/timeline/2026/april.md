@@ -222,6 +222,9 @@ function googleTranslateElementInit() {
 - They confirm it, online.
 - At class, there is something going on with him and Steve, and Steve is saying to him: *we accept everyone on the course* while Adam's head is down and he's looking sad.
 - And honestly I don't know now if they've set it up and I missed something about who Adam is really working for.
+- There is one sure-fire way to tell if it's the mousses... they tell you to shut up if you start telling them something of your story.
+- Adam did that. A lot of people did that.
+- Normal people don't do that.
 
 ### A first roasting
 
