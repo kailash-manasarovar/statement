@@ -150,7 +150,11 @@ function googleTranslateElementInit() {
 - This is no measurement.
 - I realize it was a position I was put in while sedated, so it's on film.
 - Other things like that.
+- Body positions I made while masturbating in my bathroom with the lights on.
 - Always something.
+- It's so embarrassing, you cannot imagine.
+- I mean, when every man with a porn subscription has seen you doing these things, and would recognize you in the street, at your job, anywhere in the world, the embarrassment on its own due to the (snickery) attitudes they have about you from seeing you like this totally destroys your life; murder by embarrassment.
+- I think this justifies at least a billion more in compensation.
 
 ### Two or three days of this before the non-visual-hallucinogen wears off
 
