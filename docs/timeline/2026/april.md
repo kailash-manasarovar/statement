@@ -96,6 +96,7 @@ function googleTranslateElementInit() {
 - I suppose they were doing as much as they could to make me believe they were on my side - and I did, of course, my projection about the trustworthiness of people - and so I'd certainly attend the two important (for them) weeks of TT in Dublin coming up, and feel dreadful when they turned on me as if they didn't like me anymore and weren't my friends.
 - From there, they can pretend to be anyone, they think.
 - It's very school playground isn't it.
+- Except the feeling I got, I believe in retrospect, was God's way of telling me this is how He gets my babies back for me.
 
 ## Facebook shuts me down
 
