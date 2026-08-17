@@ -86,3 +86,7 @@ function googleTranslateElementInit() {
 - The definition of insanity (believing we're better than God, or that we can eliminate Him, or that we *are* Him) is attempting to prove it again and again and expecting a different outcome.
 - And that is why my widowhood is apparently never ending...
 - And why I'm still here.
+
+## What a world
+
+- 
