@@ -8,6 +8,42 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## TT intensive in Dublin
+
+- Ferry over from Liverpool.
+- On the way over I stay one night somewhere because the drive is so long.
+- On the way back, I stay in Wales one night and learn from the first time in my life how to say good morning in Welsh, bore da.
+
+### Hearing the bell in her earpiece
+
+- Of 8 of us in the circle, plus Steve, all said they were not able to hear the bell.
+- One other, including me, heard it.
+- wip
+
+### Adam has pain in his hands
+
+- So do I.
+- It's constant after driving long distances and I don't always wear gloves at this stage.
+- I'm still suffering from aches and pains from my pesticide-ridden clothing.
+- I complain about this online.
+- I've always thought Adam was working for Adams, since he turned up the year before and was seething.
+- He looks at his phone and then suddenly complains about the aches in his hands.
+- Steve asks him to come over and has a look at them.
+
+### They're putting ideas in my head
+
+- Sick ideas they want me to write about and get killed for doing so.
+- I don't.
+- Is that the true nature of the *intensives*?
+- I didn't know this at the time, but I kept have these bizarre thoughts throughout the course, and something stronger telling me to note it and not to worry about it.
+- It all clicked into place in [Bali in July 2026](../2026/july.md#loka-yoga) on the CIA psychological-torture intensive which also had very little effect on me and, I think now, rather helped me enormously.
+
+### Steve says he doesn't know when the courses are scheduled
+
+- I ask Steve on the last day when the next intensive is.
+- He says *I have no idea*, in a manner in which it sounds like he has no input whatsoever into his schedule.
+- I say goodbye and tell him I look forward to seeing him in Israel in a couple of weeks.
+
 ## Response to new content
 
 - As I undertake a first laborious and extremely triggering copy edit, I post new content describing what appear to be bona fide stalker accounts, possibly having live spy-cam-porn subscriptions, such as the Matthew account.
@@ -30,13 +66,17 @@ function googleTranslateElementInit() {
 
 ### Are you Welsh?
 
-- I send some content to an interested party, someone who works in education for the Generalitat Valenciana.
-- I start the email with a greeting in Welsh. I have never ever done that before in my life.
-- I do that because it's the day after I return from Ireland and I stayed in Wales one night and that's how they say good morning, bore dar.
-- Later that day, I take my dad out.
-- As we arrive at the library, we see an extremely weird guy sitting outside. He has an orange old bashed-up car with him.
-- The minute I open the door of my car, he jumps up and starts saying, "Oh, are you Welsh, are you Welsh".
-- I do not feel safe in North London.
+- I write to Ana Requena at the conservatory.
+- The email is from my `katharinejchardwood@gmail.com` account which North London's finest managed to get shutdown in January 2026 while deleting all my backups at the same time.
+- I can see why they might want to protect their interests at the music school; fish in a barrel, isn't it.
+- I've written to Ana quite frequently on other accounts.
+- I start the email with a greeting in Welsh: *bore da*.
+- I have never ever done that before in my life.
+- I do that because it's the very day after I return from Ireland, and I stayed in Wales one night on the way back, and that's how they were saying good morning to me, bore da.
+- Later that day, I take my dad to the library.
+- As we arrive at the library, we see an extremely weird guy sitting outside. He's old and has an orange old bashed-up car, wild hair, trampy clothes, and he looks very dodgy.
+- The minute I open the door of my car, he jumps up and starts saying to me, "Oh, are you Welsh, are you Welsh".
+- I do not feel safe in North London!
 
 ### Dancing man
 

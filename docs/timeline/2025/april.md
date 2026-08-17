@@ -296,7 +296,10 @@ function googleTranslateElementInit() {
 ## Ireland
 
 - I set off early in the morning to make the long drive to the ferry to Ireland.
-- I'm off to do a TEB advanced training focusing on the lymphatic system.
-- I get to the top of my road and there is a huge mean looking man standing glaring at me from across the road.
+- It's such a long drive to the ferry terminal, I'm stopping somewhere for the night and heading out early the following morning.
+- I'm off to do a Transforming Touch intensive training at the Avila centre in Dublin focusing on the lymphatic system.
+- I get to the top of my road and there is a huge mean-looking man standing glaring at me from across the road.
 - I ignore him.
 - He thinks I don't see him.
+- Something threatening like this is pretty much a daily occurrence in London.
+- Wait till you here what they did when [I got back from Wales in about a week's time](may.md#are-you-welsh).

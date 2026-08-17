@@ -216,6 +216,13 @@ function googleTranslateElementInit() {
 - I drop the chili sauce on the floor and as we're getting up to leave I step in it, and declare it.
 - I find this amusing. I wonder if he did.
 
+### Adam
+
+- I have told my "friends" online about my suspicions of Adam a lot.
+- They confirm it, online.
+- At class, there is something going on with him and Steve, and Steve is saying to him: *we accept everyone on the course* while Adam's head is down and he's looking sad.
+- And honestly I don't know now if they've set it up and I missed something about who Adam is really working for.
+
 ### A first roasting
 
 - Yeah, I didn't know why they turned on me on that course, but they certainly did.
