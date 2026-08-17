@@ -101,7 +101,8 @@ function googleTranslateElementInit() {
 - Snoopy AI videos
 - I upgrade and watch a Snoopy video.
 - Woodstock plays the trumpet and wears the hat we're just discussed the trumpet teacher wearing in 2013 and Paul van Gelder wearing in 2014.
-- Snoopy is a writer and it's all about how these two are friends but they argue a lot.
+- Snoopy is a writer and it's all about how these two are friends but they argue a lot and about how Snoopy brings everyone together, and all sort of specific stuff from my story.
+- In Bali, they create a Snoopy video which [demonstrates the torture-rape-porn carried out by family members and known men that Lorraine Blackbourn had endured that caused her to eventually kill herself](july.md#they-tell-me-what-happened-to-lorraine).
 
 ## Air China
 
