@@ -95,3 +95,18 @@ function googleTranslateElementInit() {
 - Kailash.
 - The Kailash team.
 - Who dun it.
+
+## Air France
+
+- Snoopy AI videos
+- I upgrade and watch a Snoopy video.
+- Woodstock plays the trumpet and wears the hat we're just discussed the trumpet teacher wearing in 2013 and Paul van Gelder wearing in 2014.
+- Snoopy is a writer and it's all about how these two are friends but they argue a lot.
+
+## Air China
+
+- In the Air China queue for Tibet someone is wearing a t-shirt making reference to the Snoopy videos.
+- It's all set up so I think the Americans aren't involved at all.
+- I trust no-one hinting and suggesting like this, so I wait.
+- They f*cking with me.
+- But it is quite fun and I'm caught in it so what else can I do but laugh, and wait.
