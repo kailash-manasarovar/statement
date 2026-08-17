@@ -1059,6 +1059,8 @@ function googleTranslateElementInit() {
 - Or is that him at my home in Carrer Furs while I was there too?
 - Thinking back, Alfonso was often extremely disassociated in class as if he was elsewhere entirely. I wonder if they were drugging him too.
 - Oooh, now here's a thought, do you think they drug the men and convince them (manipulate them with the online hypno-tech) to take part in raping their students.. and manipulate the female teachers in the same way for whatever end goal they have for them?
+- Or perhaps they give them something to make sure they can cope with sitting in a room with the woman they've just raped and a bunch of children for two hours.
+- Adrian was totally off his head the year before. I expect you can never be sure how people are going to take being spiked, and I thought Adrian seemed to have some trauma history that was leaking out a bit.
 
 ## Piano classes
 
