@@ -304,9 +304,9 @@ function googleTranslateElementInit() {
 - For the next year, I am stalked relentlessly by security services desperate to bite chunks out of me.
 - They make a few more attempts at murder; including [a really good try in Tibet in June](../2026/june.md#everest-base-camp-and-sickness).
 - I survive.
-- Their numbers increase exponentially.
-- I start to realize they have also been sedating me, but for other purposes.
-- They want my eggs, they want to create humans who survive poisoning.
+- Agent numbers increase exponentially after each failed attempt, and after Bali I'd put money on only ever meeting agents or bought locals.
+- I start to realize they have also been sedating me since the Autumn before, but for even more sinister purposes than rape-porn.
+- They want my eggs, they think they can create humans who survive poisoning.
 - They're insane. It's a gift from God and He decides who gets it and why, and He can take it away whenever He likes too.
 
 | Criminal gang type                            | Budget                                                     | Core process           | End goal                                                                                                     | Methods                                                                                      |
