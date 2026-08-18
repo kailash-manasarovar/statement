@@ -204,3 +204,4 @@ function googleTranslateElementInit() {
 - They're behind everything aren't they, every tiny evil machination, and all the giant ones too.
 - I'm 100% clear on this, the clarity has been a miracle of healing. 
 - I pray God can forgive them. I'm absolutely sure He's not going to let them off.
+- I'd have survived that dinner then, perhaps that's the WHOLE POINT OF THE MEME! Hooray!!
