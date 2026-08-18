@@ -268,12 +268,13 @@ function googleTranslateElementInit() {
 
 - The hotel was *packed* with agents, Americans, Australians, Brits, Indians, Israelis, my lovely Turkish friends.
 - I was wondering if they were going to run out of agents.
-- I did start seeing faces I've seen before.
+- I did start seeing faces I've seen before, and I'm certain some of the faces on the beach turned up the following week for yoga too.
 - Some of them got a bit excited at times - the Americans/Brits - and I had to tell them to stop fannying around, which was funny, everyone laughed.
 - They really outdid themselves with the Elon event they set up on the full moon, that was hilarious.
-- Was that actually Elon?
-- I think it was. Can you check?
-- What are they saying to us? We don't care about women, children, and babies, and here I am to prove it?
+- Except, was that actually Elon? It really looked like him sitting their grinning at me as the agents whooshed me past.
+- I think it was. Can someone check if he was in Bali that night?
+- What are they saying to us private tax-paying citizens?
+- We don't care about women, children, and babies, and here's Elon, our friend, to prove it?
 - I think it's about time the revolution began, don't you?
 - But we all became good friends, I think, I hope.
 - The best thing was when all the agents did the water aerobics with me on our last day.
