@@ -98,21 +98,22 @@ function googleTranslateElementInit() {
 
 ## Air France
 
-- Snoopy AI videos
-- I upgrade and watch a Snoopy video.
-- Woodstock plays the trumpet and wears the hat we're just discussed the trumpet teacher wearing in 2013 and Paul van Gelder wearing in 2014.
-- Snoopy is a writer and it's all about how these two are friends but they argue a lot and about how Snoopy brings everyone together, and all sort of specific stuff from my story.
-- They solve their differences with drinking big jugs of beer together on top of Snoopy's dog house.
-- In Bali, they create a Snoopy video which [demonstrates the torture-rape-porn carried out by family members and known men that Lorraine Blackbourn had endured that caused her to eventually kill herself](july.md#they-tell-me-what-happened-to-lorraine).
-- I watch lots of these in Bali; sometimes Snoopy and Woodstock are mixed up and Snoopy is the intuitive artist who they've given unlimited supplies to create with, and Woodstock never shuts up.
-- Oh, whole loads of information about my love: how he is clumsy at posh dinners, sad about something, is a father, has a life partner, all this madness and lies, just to keep me distracted...
+- This was the first time I saw one of their Snoopy AI videos.
+- It was impressive.
+- Woodstock plays the trumpet and wears [the hat we've just discussed the trumpet teacher wearing in 2013](../2011-to-2020/2013.md#daniel) and Paul van Gelder wearing in 2014.
+- Snoopy is a writer and the cartoon is all about how these two are friends but they argue a lot and about how Snoopy brings everyone together, is a land shark, and all sort of specific stuff from my story.
+- The two solve their differences with drinking big jugs of beer together on top of Snoopy's dog house.
+- In Bali, they create tons of these Snoopy videos.
+- I'm usually Snoopy but not always: sometimes Snoopy and Woodstock are mixed up and Snoopy is the intuitive artist who they've given unlimited supplies to create with, and Woodstock never shuts up.
+- One of the videos [demonstrates the torture-rape-porn carried out by family members and known men that Lorraine Blackbourn had endured that caused her to eventually kill herself](july.md#they-tell-me-what-happened-to-lorraine) assuring me that the evidence is solid and in hand.
+- Oh, and whole loads of information about my love: how he is clumsy at posh dinners, sad about something, is a father, has a life partner, all this madness and lies, just to keep me distracted... so I'd miss the crime of the millennia happening.
 
 ## Air China
 
-- In the Air China queue for Tibet someone is wearing a t-shirt making reference to the Snoopy videos.
+- In the Air China queue for Tibet someone is wearing a t-shirt that makes reference to the Snoopy videos.
 - It has the same two jugs of beer that Snoopy and Woodstock drink to stop arguing, and words saying *The Draft*.
-- It's all set up so I think the Americans aren't involved at all.
-- I trust no-one hinting and suggesting like this, so I'm going to have to wait and see.
+- It's all set up so I think the Americans aren't involved in what's happening at all.
+- I trust no-one hinting and constant suggestions like these are tiresome and clearly always dubious, so I'm going to have to wait and see.
 - What else can I do?
 - I sense they're f*cking with me though.
-- But it is quite fun and I'm caught in it so what else can I do but laugh, and wait.
+- But it is quite fun at this stage, and I'm caught in it so what else can I do but laugh, and wait.
