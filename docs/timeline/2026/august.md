@@ -78,6 +78,7 @@ function googleTranslateElementInit() {
 
 - My rock solid confidence in God and His Love for us, and how He has planned all of this to get *all of us* out of our gargantuan, apocalyptic, and most-recent inevitable mess as quickly as possible, does not extend to many humans.
 - As usual, I think they're probably appalled at what God has delivered; it doesn't fit expectations, it threatens a deep reverence for porn and sexual violence, it threatens a more modern belief based in the ancient hate that the mother can be switcheroo-ed and thus made unnecessary, and that - with zero evidence and contrary to everything God tells us - miracles are a function of the cells of the body and have nothing to do with faith or God at all!
+- I refer my readers to the following principle of miracles: *Miracles are everyone's right, but purification is necessary first.*
 - God's representatives don't look right, and even when they do, their miracles are so shocking they must be stymied and controlled.
 - It's amazing that they have put so much resource, time, and effort into the *Better Way* and then when it turned up, they decided they didn't like it much.
 - But expected.

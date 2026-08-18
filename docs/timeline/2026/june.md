@@ -24,7 +24,7 @@ function googleTranslateElementInit() {
 ### Kailash team - who dun it
 
 - My trip to Kailash is attended by agents, as usual, and me.
-- They've got what they want from me now, and think they can replicate God through cells (which is utterly insane, let's hope they don't get the chance to find out to their detriment), and so they're going to give the poisoning a really good go this time.
+- They've got what they want from me now, and think they can replicate God through cells (which is utterly insane, let's hope they don't get the chance to find out to their detriment - *Miracles are everyone's right, but purification is necessary first.* remember?), and so they're going to give the poisoning a really good go this time.
 - They're not hiding much either; although they've all got their stories off pat, they're just too confident, too arrogant, too purposeful, and not like a normal group of random humans in any way at all.
 - But who done it?
 - The group is extraordinarily unusual, loud, over-the-top, distracting - like agents are often taught to be - and tailored for me personally in many ways.
