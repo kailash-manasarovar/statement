@@ -304,9 +304,10 @@ function googleTranslateElementInit() {
 
 ![The Lord is still in](../../content/images/the-lord-is-still-in.png)
 
-- It's not the one I saw on [Air France to Beijing](may.md#air-france) that was a replica of the one [Daniel was wearing in 2013](../2011-to-2020/2013.md#daniel) and [Paul van Gelder was wearing in 2015](../2011-to-2020/2014.md#trip-to-london) when I introduced him to Domingo Lopez Cano.
+- It's not the one I saw on [Air France to Beijing](may.md#air-france) that was a replica of the one I remembered [Daniel was wearing in 2013](../2011-to-2020/2013.md#daniel) and [Paul van Gelder was wearing in 2015](../2011-to-2020/2014.md#trip-to-london) when I introduced him to Domingo Lopez Cano in Highgate.
 - On the beach, and around the hotel, agents often wore a hat just like this one.
 - In [Bali on the yoga course](july.md#they-tell-me-what-happened-to-lorraine) they use this hat discrepancy to continually pretend to me they're not who they seem to be.
+- It starts to wear thin.
 
 ## The victims
 
