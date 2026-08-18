@@ -102,12 +102,15 @@ function googleTranslateElementInit() {
 - I upgrade and watch a Snoopy video.
 - Woodstock plays the trumpet and wears the hat we're just discussed the trumpet teacher wearing in 2013 and Paul van Gelder wearing in 2014.
 - Snoopy is a writer and it's all about how these two are friends but they argue a lot and about how Snoopy brings everyone together, and all sort of specific stuff from my story.
+- They solve their differences with drinking big jugs of beer together on top of Snoopy's dog house.
 - In Bali, they create a Snoopy video which [demonstrates the torture-rape-porn carried out by family members and known men that Lorraine Blackbourn had endured that caused her to eventually kill herself](july.md#they-tell-me-what-happened-to-lorraine).
 
 ## Air China
 
 - In the Air China queue for Tibet someone is wearing a t-shirt making reference to the Snoopy videos.
+- It has the same two jugs of beer that Snoopy and Woodstock drink to stop arguing, and words saying *The Draft*.
 - It's all set up so I think the Americans aren't involved at all.
-- I trust no-one hinting and suggesting like this, so I wait.
-- They f*cking with me.
+- I trust no-one hinting and suggesting like this, so I'm going to have to wait and see.
+- What else can I do?
+- I sense they're f*cking with me though.
 - But it is quite fun and I'm caught in it so what else can I do but laugh, and wait.

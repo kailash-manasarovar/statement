@@ -170,6 +170,7 @@ function googleTranslateElementInit() {
 - He has lost an awful lot of weight since I saw him previously in September 2025.
 - He tells me it's not cancer but his physician has told me he has an extremely rare condition which only responds to chemotherapy which he's having once a week.
 - I find this upsetting.
+- They're poisoning him.
 
 ### Un oeuf est un oeuf
 
