@@ -92,5 +92,5 @@ function googleTranslateElementInit() {
 
 ## What a world!
 
-- Thank God for God and His patience because at this rate we're about to go round again with Him un-re-membered for another trillion years.
+- Thank God for God and His patience because at this rate we're about to go round again with Him un-re-membered for another trillion years; *if and only if* we survive the liar's most wicked self-destruction mechanism supporting the ancient hate which, I'm reliably told, isn't possible.
 - Well done everyone!
