@@ -70,3 +70,7 @@ function googleTranslateElementInit() {
 - I get a sudden onset chronic constipation and quite bad genital boils again.
 - I'm numb with horror.
 - Later, in December, I hurt my hip badly in an unusual manner and I wonder if it is like a projection of the pain... or something else.
+
+### And then, there was even more horror...
+
+- See 2026 entries for a full description of something even worse the world was able to justify.

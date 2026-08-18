@@ -197,7 +197,7 @@ function googleTranslateElementInit() {
 
 <iframe width="839" height="472" src="https://www.youtube.com/embed/7m1SXSdeWVY" title="Monty Pythons The Meaning Of Life - The Salmon Mousse" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-- The Salmon Mousses have obviously been all over me since November 2025, but I was suffering with the revelation about my father so had other things on my mind.
+- The Salmon Mousses have obviously been all over me since November 2025, but I was suffering with [the revelation about my father](../2025/october.md#my-father-the-pervert-amongst-all-this-other-horror-as-if-there-wasnt-enough-already) so had other things on my mind.
 - I may have mentioned them on X back then, but my account is unsearchable as I mentioned, so it's difficult to pinpoint the first time I used this title.
 - This month I start to realize they've been all over me for months and consciously notice them everywhere I go.
 - Just like at the conservatory in Dénia, I'm the star of multiple, intricate, choreographed and staged theatrical snippets, the meaning of which is usually anyone's guess.
