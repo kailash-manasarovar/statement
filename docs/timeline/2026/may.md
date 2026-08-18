@@ -104,6 +104,8 @@ function googleTranslateElementInit() {
 - Snoopy is a writer and it's all about how these two are friends but they argue a lot and about how Snoopy brings everyone together, and all sort of specific stuff from my story.
 - They solve their differences with drinking big jugs of beer together on top of Snoopy's dog house.
 - In Bali, they create a Snoopy video which [demonstrates the torture-rape-porn carried out by family members and known men that Lorraine Blackbourn had endured that caused her to eventually kill herself](july.md#they-tell-me-what-happened-to-lorraine).
+- I watch lots of these in Bali; sometimes Snoopy and Woodstock are mixed up and Snoopy is the intuitive artist who they've given unlimited supplies to create with, and Woodstock never shuts up.
+- Oh, whole loads of information about my love: how he is clumsy at posh dinners, sad about something, is a father, has a life partner, all this madness and lies, just to keep me distracted...
 
 ## Air China
 

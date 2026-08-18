@@ -299,6 +299,10 @@ function googleTranslateElementInit() {
 - I also found out about what happened to Lorraine Blackbourn that caused her to commit suicide, and they even demonstrated the torture-porn rope ties on a snoopy video AI-tailored just for me.
 - The Snoopy AI videos started on [Air France in May](may.md#air-france). 
 - There were so many in Bali, I think I was stressing them out because I was wanting more and more :) and they couldn't keep up with the production of them..
+- Snoopy is supposed to be me, and Woodstock my love, sometimes Snoopy and Woodstock are mixed up and Snoopy is the intuitive artist who they've given unlimited supplies to create with, and Woodstock never shuts up.
+- Oh, whole loads of information about my love: how he is clumsy at posh dinners, sad about something, is a father, has a life partner, all this madness and lies, has to move house now I'm on my way soon, tomorrow, today, Friday, at 9am, etc. etc., and it'll be a helicopter (meme began in Samui in December with a woman pretending to be UN, then fed again in Dorset with the field they were pretending was a heli-pad, then constant on Snoopy videos, just endless lies...) just to keep me distracted...
+- Extraordinary.
+- What TIME WASTERS!!
 
 ### They tell me about Chris Ludwick's excel porn database
 
