@@ -79,7 +79,7 @@ function googleTranslateElementInit() {
 - My rock solid confidence in God and His Love for us, and how He has planned all of this to get *all of us* out of our gargantuan, apocalyptic, and most-recent inevitable mess as quickly as possible, does not extend to many humans.
 - As usual, I think they're probably appalled at what God has delivered; it doesn't fit expectations, it threatens a deep reverence for porn and sexual violence, it threatens a more modern belief based in the ancient hate that the mother can be switcheroo-ed and thus made unnecessary, and that - with zero evidence and contrary to everything God tells us - miracles are a function of the cells of the body and have nothing to do with faith or God at all!
 - I refer my readers to the following principle of miracles: *Miracles are everyone's right, but purification is necessary first.*
-- God's representatives don't look right, and even when they do, their miracles are so shocking they must be stymied and controlled.
+- God's representatives don't look right, and even when they do - coming backed with a prerequisite level of violence in the nature - their miracles are so shocking they must be stymied and controlled (see about a million Indian gurus and holy men for more examples of this apparent contradiction).
 - It's amazing that they have put so much resource, time, and effort into the *Better Way* and then when it turned up, they decided they didn't like it much.
 - But expected.
 - So they'll be wanting to keep the violence and violation (hence my bizarrely unpleasant experiences of late), and to maintain the ancient hate and the murder of the mother (a tragedy of world-ending proportion), under the erroneous belief we humans are doing the right thing because, contrary to the glaringly obvious, we always think we do a better job than Him.
@@ -93,5 +93,5 @@ function googleTranslateElementInit() {
 
 ## What a world!
 
-- Thank God for God and His patience because at this rate we're about to go round again with Him un-re-membered for another trillion years; *if and only if* we survive the liar's most wicked self-destruction mechanism supporting the ancient hate which, I'm reliably told, isn't possible.
+- Thank God for God and His patience because at this rate we're about to go round again with Him un-re-membered for another trillion years; but *if and only if* we survive the liar's most wicked self-destruction mechanism to date, that which supports the ancient hate: a mechanism which, I'm reliably told, isn't possible to survive if left alone, covered up, hidden.
 - Well done everyone!
