@@ -198,4 +198,4 @@ function googleTranslateElementInit() {
 - The Salmon Mousses have obviously been all over me since November, but I was suffering with the revelation about my father so had other things on my mind.
 - I may have mentioned them on X but my account is unsearchable as I said so it's difficult to pinpoint the first mention.
 - It's really this month that I really start to realize they've been all over me for months and consciously notice them everywhere I go.
-- They're behind everything aren't they, every tiny evil machination and all the giant ones too. I pray God can forgive them.
+- They're behind everything aren't they, every tiny evil machination and all the giant ones too. I pray God can forgive them. I'm sure He's not going to let them off.
