@@ -11,7 +11,7 @@ function googleTranslateElementInit() {
 ## Loka yoga
 
 - YTT.
-- I decide to try and do productive things with my time while I'm stalked endlessly by international security services and criminal gangs (not so much criminal gangs anymore and certainly not in the Far East).
+- I decide to try and do productive things with my time while I'm stalked endlessly by international security services and criminal gangs.
 - I pick a month's long yoga teacher training course in Bali.
 - It's agents. Everyone there. Is an agent.
 - The whole thing is set up for me.
@@ -67,6 +67,8 @@ function googleTranslateElementInit() {
 #### Getting to know everyone
 
 - It's a group of about twenty students, and every one of them has something for me.
+- They've all obviously been through military training; they're tough and fit and strong, most have never done yoga before and can get into extremely advanced poses right off the bat.
+- Normally on a retreat like this, you would expect a few to quit early on, especially as the sessions during the day were pretty boring (without the psychological torture taken into account)... no-one quits. It's unprecedented.
 - In the next session, we have to pair up and find out about our partner.
 - Then, each person introduces their partner to the group.
 - As they go around, every student behaves in exactly the same way the students on the BAPA course at Middlesex did. They're all performing. 
@@ -225,6 +227,11 @@ function googleTranslateElementInit() {
 ### A meeting with someone important in Bali who knows what happened at the Hyatt in May 2024
 
 - They set up an event on our free day where we all went for a walk and had lunch.
+- I think they're doing this to give me *some small reason* for all their insane and criminal activity.
+- Perhaps they're trying to convince me that someone is going to do something about the baby-rape industrialists.
+- They've put millions into this lie. Millions and millions.
+- All this for my eggs? And then what. No doubt bad intentions.
+- The VIP they're targeting is also, incidentally, the owner of [the holiday housing estate I'm staying at, Cidana Putra](https://www.google.com/maps/place/Sadana+@+Ciputra+Beach+Resort/@-8.5932351,115.0780038,867m/data=!3m1!1e3!4m14!1m7!3m6!1s0x2dd239494be08af1:0x89c8ea0c1bf6dc31!2sLoka+Yoga+School!8m2!3d-8.5945877!4d115.0846235!16s%2Fg%2F11nym8642j!3m5!1s0x2dd2377225ebba59:0x3c00335d560f8679!8m2!3d-8.5937484!4d115.0758602!16s%2Fg%2F11h71kwypp?entry=ttu&g_ep=EgoyMDI2MDgxMi4wIKXMDSoASAFQAw%3D%3D); 22-7 lock up as it were.
 - The psychological nonsense went on all day; it was pretty intolerable except I had fallen in love with all of my classmates by then (from the morning classes) so it wasn't too bad.
 - It was funny though.
 - I'd be chatting to one of them, and they'd get a flea in their ear about something, and run off, or make excuses and stop the talk, or bring up something totally tangential for no reason.
@@ -236,7 +243,7 @@ function googleTranslateElementInit() {
 - They were all actors.
 - It was total bananas.
 - Anyway.
-- At lunch that day there was someone important in Bali who had known what had happened with Polygon at the Hyatt.
+- At lunch that day the important landowner in Bali who had known what had happened with Polygon at the Hyatt.
 - Did he organize Elon's visit that week?
 - And the lunch was all a bit cloak and dagger, and hush hush, and I was getting used to all this.
 - And all the yoga students (agents/actors) were prompting me to say things, and, we're sitting right beside this Bali VIP, and, never one to disappoint, after the man (my yoga chum aka agent) had told me, loudly, that he'd been unconscious for a whole week years before, and he didn't know what had happened to him during this time but he'd had PTSD ever since, I got very cross and said rather loudly: 
@@ -259,7 +266,7 @@ function googleTranslateElementInit() {
 
 ### Pretending to be someone you're not
 
-- I look around me and I see a multi-million dollar budget: houses, vehicles, yoga studios, people, it's astonishing.
+- I look around me and I see a multi-million dollar budget: houses, vehicles, yoga studios, intricate set ups with very rich people, it's astonishing.
 - I think probably 80% of occupants at the Holiday Inn while I was there were spies too.
 - They must be spending an absolute fortune; is that why they keep suggesting cheap hotels to me when I have nowhere to go?
 - Every time they get close to convincing me they're someone else, I remember how much money they're spending, and especially the drones, people, and robots.
@@ -311,6 +318,7 @@ function googleTranslateElementInit() {
 
 ### Yet another (fake) bridge collapses, again
 
+- The way they set things up to make me believe I was going to be taken to safety is criminal, oh wait, yeah sorry forgot. It's what they do.
 - What is the airspeed velocity of a coconut-laden scanning swallow?
 
 ![The bridge of death](../../content/images/coconut-answered-king-arthur.webp)
@@ -319,7 +327,7 @@ function googleTranslateElementInit() {
 - How do you know so much about swallows?
 - Well, a king has to know about all sorts of things you know.
 
-### Monty Python
+#### Monty Python
 
 - It's extraordinary how many of the sketches in Monty Python's Meaning of Life run through our story in hilarious ways.
 - I particularly like the deadly fluffy bunny.
@@ -334,6 +342,13 @@ function googleTranslateElementInit() {
 - She sees the confirmation email from the Israeli government, but minutes later the email has disappeared.
 - It went into all mail instead of my inbox, for some weird reason.
 - The angel sorts it all out for me, and I'm away.
+
+## Comparing the criminal porn-gangs with unscrupulous and insane security service activities
+
+| Criminal gang type | Core process           | End goal                                                                                                     | Methods                                                                                      |
+|--------------------|------------------------|--------------------------------------------------------------------------------------------------------------|----------------------------------------------------------------------------------------------|
+| Porn gang          | Violence and violation | Criminal porn production by any means necessary, always worsening in step with porn-addict appetites         | Sedation, drugging, poisoning, psychological torture, hacking, murder, serious sex offending |
+| Security services  | Violence and violation | Whatever they want, often nothing to do with security, mostly coming from insane logic based on core process | Sedation, drugging, poisoning, psychological torture, hacking, murder, clandestine surgeries |
 
 ## Re-membering
 

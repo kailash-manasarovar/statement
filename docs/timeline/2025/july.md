@@ -296,6 +296,26 @@ function googleTranslateElementInit() {
 - Could such a powerful feeling that never lets up be all from drugs and manipulation, I asked her?
 - She replied no, not all.
 
+## Everything changes
+
+- I won't realize until August 2026, but this marks the moment that criminal gangs are officially replaced by security services.
+- I do notice something has changed, but it's not clear what or why.
+- No-one helps me still and the silence about the blatant sex offending in Spain continues.
+- For the next year, I am stalked relentlessly by security services desperate to bite chunks out of me.
+- They make a few more attempts at murder; including [a really good try in Tibet in June](../2026/june.md#everest-base-camp-and-sickness).
+- I survive.
+- Their numbers increase exponentially.
+- I start to realize they have also been sedating me, but for other purposes.
+- They want my eggs, they want to create humans who survive poisoning.
+- They're insane. It's a gift from God and He decides who gets it and why, and He can take it away whenever He likes too.
+
+| Criminal gang type | Core process           | End goal                                                                                                     | Methods                                                                                      |
+|--------------------|------------------------|--------------------------------------------------------------------------------------------------------------|----------------------------------------------------------------------------------------------|
+| Porn gang          | Violence and violation | Criminal porn production by any means necessary, always worsening in step with porn-addict appetites         | Sedation, drugging, poisoning, psychological torture, hacking, murder, serious sex offending |
+| Security services  | Violence and violation | Whatever they want, often nothing to do with security, mostly coming from insane logic based on core process | Sedation, drugging, poisoning, psychological torture, hacking, murder, clandestine surgeries |
+
+- One criminal gang has been swapped for another, the only difference between them is in budget and end goal.
+
 ## More threats
 
 - I also see threatening pics on my mobile device which remind me very much of [the violent threats I received on X in March 2024](../2024/march/13-end.md#online-stalking-and-threats-over-this-period).

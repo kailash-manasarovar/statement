@@ -82,11 +82,15 @@ function googleTranslateElementInit() {
 - It's amazing that they have put so much resource, time, and effort into the *Better Way* and then when it turned up, they decided they didn't like it much.
 - But expected.
 - So they'll be wanting to keep the violence and violation (hence my bizarrely unpleasant experiences of late), and to maintain the ancient hate and the murder of the mother (a tragedy of world-ending proportion), under the erroneous belief we humans are doing the right thing because, contrary to the glaringly obvious, we always think we do a better job than Him.
-- It seems to me the powers-that-be have decided that whatever political A-bomb I come with means the Instructions should be ignored; so I'm left with nothing to lose since [they salvaged whatever they could](april.md#un-oeuf-est-un-oeuf) from me and [made their boldest attempt yet on my life](june.md#kailash).
+- It seems to me the powers-that-be have decided that whatever political A-bomb I come with means the Instructions should be ignored; so I'm left with nothing to lose since [they salvaged whatever they could](april.md#un-oeuf-est-un-oeuf) from me and already [made their boldest attempt yet on my life](june.md#kailash).
+- It's only a matter of time before they destroy the only thing that can truly save them; like they always do.
+- Perhaps that day'll be the Day of the Lord.
 - The definition of insanity (believing we're better than God, or that we can eliminate Him, or that we *are* Him) is attempting to prove it again and again and expecting a different outcome.
 - And that is why my widowhood is apparently never ending...
 - And why I'm still here.
+- p.s. all this sparked by the truth coming out (egg-extractions over the last year - maybe even bumping into someone involved that made me cry for no reason, in the street) and people getting very angry about the truth coming out, and asking me if i want to disappear like [Kathleen Love](../2011-to-2020/2020.md#kathleen-love), and telling me i have to die... so... i've nothing to lose it seems. You've both (see [criminal gang comparison chart](july.md#comparing-the-criminal-porn-gangs-with-unscrupulous-and-insane-security-service-activities)) taken everything from me already, and Anne Hathaway lookalikes at the Wall are really a pretty useless way to make me think you're on my side. You're opinion of me is as if I'm a speck of dust on your shoe. So, the gigue is up. Do whatever you like, I don't care.
 
 ## What a world
 
-- Thank God for God.
+- Thank God for God and His patience because at this rate we're about to go round again for another trillion years.
+- Well done everyone!
