@@ -309,10 +309,10 @@ function googleTranslateElementInit() {
 - They want my eggs, they want to create humans who survive poisoning.
 - They're insane. It's a gift from God and He decides who gets it and why, and He can take it away whenever He likes too.
 
-| Criminal gang type | Core process           | End goal                                                                                                     | Methods                                                                                      |
-|--------------------|------------------------|--------------------------------------------------------------------------------------------------------------|----------------------------------------------------------------------------------------------|
-| Porn gang          | Violence and violation | Criminal porn production by any means necessary, always worsening in step with porn-addict appetites         | Sedation, drugging, poisoning, psychological torture, hacking, murder, serious sex offending |
-| Security services  | Violence and violation | Whatever they want, often nothing to do with security, mostly coming from insane logic based on core process | Sedation, drugging, poisoning, psychological torture, hacking, murder, clandestine surgeries |
+| Criminal gang type | Budget                                                 | Core process           | End goal                                                                                                     | Methods                                                                                      |
+|--------------------|--------------------------------------------------------|------------------------|--------------------------------------------------------------------------------------------------------------|----------------------------------------------------------------------------------------------|
+| Porn gang          | Thousands - as little as possible, slave labour mostly | Violence and violation | Criminal porn production by any means necessary, always worsening in step with porn-addict appetites         | Sedation, drugging, poisoning, psychological torture, hacking, murder, serious sex offending |
+| Security services  | Multi-millions, thousands of salaried individuals      | Violence and violation | Whatever they want, often nothing to do with security, mostly coming from insane logic based on core process | Sedation, drugging, poisoning, psychological torture, hacking, murder, clandestine surgeries |
 
 - One criminal gang has been swapped for another, the only difference between them is in budget and end goal.
 
