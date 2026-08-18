@@ -337,6 +337,12 @@ function googleTranslateElementInit() {
 - They have thousands of men and women helping them: meeting people, gaining trust, hair and make up for the porn, setting up the spy-cam networks in schools, hotels, apartments; managing the manipulation tech across international hacked phones for specific targets, and fielding endlessly for new ones especially toddlers.
 - Porn gang operatives, male and female, *working directly with* targets online and offline to get them to *do stuff*.
 - A non-exhaustive list... of course.
+- Another good question is that given the similarities between porn-gang and security service methods - *exactly* the same - I wonder if the porn-gangs are actually running the secret service systems too? Or maybe they build and manage their platforms. It would not surprise me.
+
+| Criminal gang type                            | Budget                                                     | Core process           | End goal                                                                                                     | Methods                                                                                      |
+|-----------------------------------------------|------------------------------------------------------------|------------------------|--------------------------------------------------------------------------------------------------------------|----------------------------------------------------------------------------------------------|
+| Porn gang                                     | €/£ Thousands - as little as possible, slave labour mostly | Violence and violation | Criminal porn production by any means necessary, always worsening in step with porn-addict appetites         | Sedation, drugging, poisoning, psychological torture, hacking, murder, serious sex offending |
+| Security services aka The Mayor of Shark City | $/£ Multi-millions, thousands of salaried individuals      | Violence and violation | Whatever they want, often nothing to do with security, mostly coming from insane logic based on core process | Sedation, drugging, poisoning, psychological torture, hacking, murder, clandestine surgeries |
 
 ## Hastening home - lesson 226
 
