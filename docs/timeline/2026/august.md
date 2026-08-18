@@ -92,5 +92,5 @@ function googleTranslateElementInit() {
 
 ## What a world!
 
-- Thank God for God and His patience because at this rate we're about to go round again without Him for another trillion years.
+- Thank God for God and His patience because at this rate we're about to go round again with Him un-re-membered for another trillion years.
 - Well done everyone!
