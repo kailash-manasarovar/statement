@@ -193,6 +193,8 @@ function googleTranslateElementInit() {
 - I'm not sure why this sort of thing keeps happening repeatedly.
 - It's clear to me someone is *arranging* these lookalike events but I'm not sure who, or why.
 
-## Who are the Salmon Mousses
+## Who are the Salmon Mousses?
 
-- It's this month I really start noticing the Salmon Mousses everywhere I go.
+- The Salmon Mousses have obviously been all over me since November, but I was suffering with the revelation about my father so had other things on my mind.
+- I may have mentioned them on X but my account is unsearchable as I said so it's difficult to pinpoint the first mention.
+- It's really this month that I really start to realize they've been all over me for months and consciously notice them everywhere I go.
