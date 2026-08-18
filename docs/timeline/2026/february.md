@@ -192,3 +192,7 @@ function googleTranslateElementInit() {
 - She looks *exactly* like [Paqui Fornet](../../crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor), pedophile-porn-studio manager.
 - I'm not sure why this sort of thing keeps happening repeatedly.
 - It's clear to me someone is *arranging* these lookalike events but I'm not sure who, or why.
+
+## Who are the Salmon Mousses
+
+- It's this month I really start noticing the Salmon Mousses everywhere I go.

@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## A "date" in Barcelona
 
-- Word on the street is I had a "date" in Barcelona: meaning yet another sedated rape event I'm only now aware of having occurred.
+- Word on the street is I had a "date" in Barcelona (mousses pretending they care again!): meaning yet another sedated rape event I'm only now aware of having occurred.
 - I'm wondering when that could have been.
 - I was up and down to Barcelona so many times between 2005-2016 when I lived in Dénia and Madrid.
 - Let's list those visits here - as much as possible - and see which of them are the most likely.
