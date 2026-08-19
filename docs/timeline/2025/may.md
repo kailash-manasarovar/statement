@@ -38,7 +38,7 @@ function googleTranslateElementInit() {
 - They are in Dublin celebrating a 40th birthday party.
 - I'm quite amazed because it's so rare to hear Hebrew spoken in Ireland.
 - I don't think I ever heard it before outside of my Hebrew lesson at Queen's in Belfast in 2020 before Covid hit.
-- I ask them if they're from Israel, they confirm, and tell them how nice it is to hear Hebrew in Ireland.
+- I ask them if they're from Israel, they confirm, and I tell them how nice it is to hear Hebrew in Ireland.
 - I had to wonder about these ladies too.
 - This was early days in my *how-spies-operate* intensive training and I was being drugged continuously still so I really had no idea what was going on.
 - I felt extremely comforted seeing these women at the hotel, however, and it made me feel much safer against the unease with my neighbors on the 8th floor.
