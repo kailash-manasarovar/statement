@@ -134,3 +134,11 @@ function googleTranslateElementInit() {
 - Wait, I have it in my calendar here...
 - WRONG!!!!
 - Aaaaaaaahhhhhhhhhhhhh.
+
+## No hole in the knit
+
+- The knit itself is an indestructible problem-solving web of Love from God to His Children to remind us that He has not left us, nor has He ever left us, nor will He ever not provide for us.
+- A Great Ray.
+- Perhaps the greatest of them all, so far.
+
+![The Knit](../../content/images/the-knit.png)
