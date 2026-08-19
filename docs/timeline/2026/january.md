@@ -118,6 +118,7 @@ function googleTranslateElementInit() {
 
 ## My Gmail account is shutdown permanently
 
+- Another big hint that once they've got what they want, a clump-of-cells, it's curtains for me!
 - The minute I'm back in North London, my `katharinejchardwood` gmail account is inexplicably unreachable.
 - I had been using it daily while I was away, and while I was staying next to the American Embassy in Bangkok I made multiple backups of all the emails on this account.
 - These are gone too!
