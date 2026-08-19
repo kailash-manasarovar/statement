@@ -95,3 +95,5 @@ function googleTranslateElementInit() {
 
 - Thank God for God and His patience because at this rate we're about to go round again with Him un-re-membered for another trillion years; but *if and only if* we survive the liar's most wicked self-destruction mechanism to date, that which supports the ancient hate: a mechanism which, I'm reliably told, isn't possible to survive if left alone, covered up, hidden.
 - Well done everyone!
+
+![A lion and her cubs](../../content/images/a-lion-and-her-cubs.png)
