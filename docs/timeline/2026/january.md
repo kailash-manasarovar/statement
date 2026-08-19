@@ -42,6 +42,10 @@ function googleTranslateElementInit() {
 - That way, they might stop catastrophically f*cking everything up all the time. Don't you think.
 - What a waste of resources.
 - Anyone wanna tell me current budget spend on me while blocking me from heath care (which they know I need because they gave me a few scans while I was sedated), medical assistance, feeling safe enough to stay anywhere, doing anything about my poisoned car, etc? 
+- Do you think they went in without due consideration for my future and have messed up my inner workings in the process because they don't care about my future one bit.
+- Is it another billion in compensation right here? I'm pushing towards trillionaire at this rate.
+- I hope all secret services in all the world are reading this, including the gypsies too, so the whole world knows how outrageous this is and would maybe like to leak it, along with everything else, forthwith. 
+- HOW DARE THEY!
 - Ask me the questions, bridge-keeper. I am not afraid.
 - What is your favorite color?
 
