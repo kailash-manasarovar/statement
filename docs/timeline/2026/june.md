@@ -339,6 +339,7 @@ function googleTranslateElementInit() {
 - A non-exhaustive list... of course.
 - Another good question is that given the similarities between porn-gang and security service methods - *exactly* the same - I wonder if the porn-gangs are actually running the secret service systems too? Or maybe they build and manage their platforms. It would not surprise me.
 
+
 | Criminal gang type                            | Budget                                                     | Core process           | End goal                                                                                                     | Methods                                                                                      |
 |-----------------------------------------------|------------------------------------------------------------|------------------------|--------------------------------------------------------------------------------------------------------------|----------------------------------------------------------------------------------------------|
 | Porn gang                                     | €/£ Thousands - as little as possible, slave labour mostly | Violence and violation | Criminal porn production by any means necessary, always worsening in step with porn-addict appetites         | Sedation, drugging, poisoning, psychological torture, hacking, murder, serious sex offending |
