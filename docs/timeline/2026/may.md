@@ -57,6 +57,16 @@ function googleTranslateElementInit() {
 - One wonders if, while no-one cares about the porn-gangs destroying the world, populations of porn-gang targets (we must be in the millions by now) and of course Spain's honey-trap targets who cannot rely on healthcare and assume basic human rights, will drift away from society and form liminal-space communities as we have been, essentially, told we don't exist, that our lives don't matter. Seems a reasonable view into the future...
 - God reminds me that even if it is no fun at all; I have felt far worse for more inconsequential things, so that's good.
 
+## Putting my hands to my head while sleeping
+
+- It started in May in Cauterets.
+- While sleeping I will stretch my back and put my hands up to my head with the fingers curled.
+- It feels like I'm doing something someone else does.
+- I mention it online.
+- At first I thought it was Auggie, then someone online says it's my dad.
+- I think it's a child in the womb maybe? Or just been born? It's a movement a baby might make.
+- It continues. Hasn't stopped.
+
 ## Dreaming of Saint Michael on Ascension day
 
 - I'm lying in bed, drifting off to sleep, thinking about the wonderful, marvelous Saint Michael, and the stained-window of him at the church in Cauterets, and how amazing he is, and the best boss a person could have, always giving the right challenge, never too much, never too little, and how I love him so, and I'm going off into one and I can practically see his giant legs that go up into the sky.. then WHACK!!
