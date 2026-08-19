@@ -8,6 +8,16 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Pure evil - an angry rant on 19th August 2026
+
+How many children do I have? Or are on the way? HOW DARE THEY!!!! I would have been TOTALLY OK with all this, instead, they make it a crime of the millennia. This is bad karma like none other. Why would they do that unless they intend to murder me. Why do they think so little of me? Is it because of my political baggage, they don't want to upset anyone just like everyone else? There is no other explanation unless they think I'm stupid and I'd never know... and then in 20 years all these lookalike-mes start popping up with genetic proof and separation rage and law suits, ... how do you keep that secret? How to fuck things up catastrophically 101. Unbelievable. I'm so sad and angry. I don't think I'll get over this one. It's too obscene. It's as obscene as Elon's trip to Mars with everyone and no women arrive because they all went mad on the way and raped and killed them, and any they didn't murder committed suicide. Well, I can tell you something, offspring are an ABSOLUTE SECURITY AGAINST SUICIDE... so think again if you were planning something like that...
+
+![A lion and her cubs](../../content/images/a-lion-and-her-cubs.png)
+
+i was curious about this being God's Way of getting all permanently obsessively unhelpful folk OUT OF THE WAY!
+Whatever it takes Father, whatever it takes. I am your servant for all eternity.
+And if I'm right, that this is what this is all about, then You have answered our novena before we even started and I'm so happy. Thank you Father.
+
 ## Transforming Touch intensive in Dublin
 
 - I get the car ferry over to Dublin from Liverpool and stay from 30th April to 5th May.
