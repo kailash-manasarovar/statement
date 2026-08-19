@@ -38,6 +38,7 @@ function googleTranslateElementInit() {
 - All lies, but millions and millions of dollars of lies.
 - I don't see the bigger picture at all: I keep surviving poisoning, I may have healed a man with alzheimer's at Lourdes in January too - let me be clear, if this happened Mary did it through my hand and the Catholic church are so busy extracting my eggs they've kept it quiet - so everyone wants a slice of me thinking that if they could just get hold of a cell, or an egg, they might own it and control it.
 - I guess I'm familiar with this sort of thing being not all that exciting in places like India where at any time you might be able to find thousands of people, of the billion or so, with similar abilities.
+- The Indians will confirm that these abilities are never passed down to offspring, you can ask them.
 - If they wanted my advice, they probably don't, they'd be far better off putting all those hundreds of millions they've spent on stalking me since July 2025 into healing the minds of the people living in self-imposed insanity. That's them too.
 - That way, they might stop catastrophically f*cking everything up all the time. Don't you think.
 - What a waste of resources.
