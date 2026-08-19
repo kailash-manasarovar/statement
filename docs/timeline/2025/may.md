@@ -8,21 +8,56 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## Pure evil
+## Transforming Touch intensive in Dublin
 
-How many children do I have? Or are on the way? HOW DARE THEY!!!! I would have been TOTALLY OK with all this, instead, they make it a crime of the millennia. This is bad karma like none other. Why would they do that unless they intend to murder me. Why do they think so little of me? Is it because of my political baggage, they don't want to upset anyone just like everyone else? There is no other explanation unless they think I'm stupid and I'd never know... I just figured it out this morning though... and then in 20 years all these lookalike-mes start popping up with genetic proof and separation rage and law suits, ... how do you keep that secret? How to fuck things up catastrophically 101. Unbelievable. I'm so sad and angry. I don't think I'll get over this one. It's too obscene. It's as obscene as Elon's trip to Mars with everyone and no women arrive because they all went mad on the way and raped and killed them, and any they didn't murder committed suicide. Well, I can tell you something, offspring are an ABSOLUTE SECURITY AGAINST SUICIDE... so think again if you were planning something like that...
+- I get the car ferry over to Dublin from Liverpool and stay from 30th April to 5th May.
+- On the way back, I stay on Anglesey in Wales for one night and learn, for the first time in my life, how to say good morning in Welsh: *bore da*.
+- The intensive is two days (Saturday and Sunday) at the Avila centre and I stay at the Anantara for a few extra days because I want to relax away from the toxicity at home, and I would like to visit Newgrange with the car.
+- I'm high throughout this time, obsessing about the trumpet teacher, not feeling particularly relaxed, and feeling exposed.
+- I feel like there's people all around me in the hotel rooms beside mine who know me and are up to something. I can feel it very strongly.
+- Since I now know that this is *exactly* what they do, and have been doing very openly since after July 2025's poisoning attempt, I can say with certainty that there were agents all over me at the Anantara.
+- I assume in my ignorance that it is criminal gangs.
 
-![A lion and her cubs](../../content/images/a-lion-and-her-cubs.png)
+### Tanya Harding is in reception 
 
-i was curious about this being God's Way of getting all permanently obsessively unhelpful folk OUT OF THE WAY!
-Whatever it takes Father, whatever it takes. I am your servant for all eternity.
-And if I'm right, that this is what this is all about, then You have answered our novena before we even started and I'm so happy. Thank you Father.
+- One morning, I see Tanya Harding in reception.
+- She is sitting with a bunch of Americans as if part of a tour group.
+- She looks at me intently but does not say anything.
+- I note this.
+- Me and mum met Tanya on the [eclipse tour of 2006 in Egypt](../2001-to-2010/2006.md#total-eclipse-of-the-sun).
+- I believe today (August 2026, time of writing) that this is where I was first signed up without my knowledge or consent for the CIA's intuitive program whose main goal was to somehow deal with the criminal gangs of Dénia, a major thorn in their side.
+- I did a pretty good job too, it must be admitted.
+- Mum still has Tanya on her Facebook.
+- I wonder if her popping up like this is a sign from the FBI to tell me they're working on my case, but it's so top secret they can't speak to me directly.
+- Tanya had told us she lived in a town which I immediately linked to the FBI. I think I even told my mother this.
+- I also wonder now (time of writing) if the first surreptitious surgery took place at the Anantara.
 
-## TT intensive in Dublin
+### 40th birthday party
 
-- Ferry over from Liverpool.
-- On the way over I stay one night somewhere because the drive is so long.
-- On the way back, I stay in Wales one night and learn from the first time in my life how to say good morning in Welsh, bore da.
+- In the spa one day I hear a lot of women speaking Hebrew.
+- They are in Dublin celebrating a 40th birthday party.
+- I'm quite amazed because it's so rare to hear Hebrew spoken in Ireland.
+- I don't think I ever heard it before outside of my Hebrew lesson at Queen's in Belfast in 2020 before Covid hit.
+- I ask them if they're from Israel, they confirm, and tell them how nice it is to hear Hebrew in Ireland.
+- I had to wonder about these ladies too.
+- This was early days in my *how-spies-operate* intensive training and I was being drugged continuously still so I really had no idea what was going on.
+- I felt extremely comforted seeing these women at the hotel, however, and it made me feel much safer against the unease with my neighbors on the 8th floor.
+
+### Seagulls nesting
+
+- From my room, I can look out onto the roof of another building.
+- Seagulls have made their nests on the air outlets on the roof.
+- The female seagulls are sitting snugly in their giant nests, while the male is standing guard, or off to get dinner.
+- I find this marvelous, wonderful.
+- I'm really enthralled by them.
+
+### Can I leave my stuff in the centre
+
+- I remember asking Yvonne on the first day of the intensive if I could leave my stuff overnight in the Avila centre, and everyone looking at each other, she's looking at Steve to get confirmation, and then saying no.
+- I said, *oh has there been some theft here*, and they all looked at each other intently again, Yvonne and Steve, one of the others, and she said quietly, *yes*.
+- Interesting.
+
+...
 
 ### Hearing the bell in her earpiece
 
