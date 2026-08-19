@@ -14,6 +14,7 @@ How many children do I have? Or are on the way? HOW DARE THEY!!!! I would have b
 
 i was curious about this being God's Way of getting all permanently obsessively unhelpful folk OUT OF THE WAY!
 Whatever it takes Father, whatever it takes. I am your servant for all eternity.
+And if I'm right, that this is what this is all about, then You have answered our novena before we even started and I'm so happy. Thank you Father.
 
 ## TT intensive in Dublin
 
