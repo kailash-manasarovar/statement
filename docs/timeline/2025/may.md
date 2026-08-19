@@ -8,6 +8,10 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Pure evil
+
+How many children do I have? Or are on the way? HOW DARE THEY!!!! I would have been TOTALLY OK with all this, instead, they make it a crime of the century. This is bad karma like none other. Why would they do that unless they intend to murder me. There is no other explanation unless they think I'm stupid and I'd never know... and then in 20 years all these lookalikes start popping up with genetic proof and law suits, ... how do you keep that secret? How to fuck things up catastrophically 101. Unbelievable. I'm so sad and angry. I don't think I'll get over this one. It's too obscene. 
+
 ## TT intensive in Dublin
 
 - Ferry over from Liverpool.
