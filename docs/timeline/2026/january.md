@@ -42,6 +42,17 @@ function googleTranslateElementInit() {
 - WRONG!!!! It's purple.
 - Aaaaaaaahhhhhhhhhhhhh.
 
+## Not going to TT
+
+- I decide I'm not going to TT in January and cancel my attendance.
+- I'm finding something very oppressive about the Americans, and I feel like they're thinking of "guatanimo-ing" me in Dublin.
+- It's curious I'm thinking these things - I believe I tweeted these ideas around this time.
+- Payments are getting blocked on my card, I'm having hacky *we-know-you-know* conversations with "Heather", and it's clear they are controlling my Booking account and can block me from booking certain hotels.
+- They helped me out too with a dodgy place I booked online by cancelling it on the backend, something I would not have been able to do. I was grateful for that.
+- I realize they're luring me to places just like the porn-gangs do.
+- I keep thinking about my favorite film, *A Most Wanted Man* starring Philip Seymour Hoffman, and scenes from it: the scene where he meets the CIA woman and says, *I don't trust you*, goes around and around in my head, and when he reports back to his colleague and says, *Americans* and mock shivers.
+- Something switches in the field over the next months and I change my mind, in that marvelous Gemini (manipulated?) way and sign up to spend two weeks in Dublin in April, which I very much regret now.
+
 ## Could Brian have known who Ugly was back in 2001?
 
 - Pathologically inclined to think the best of everyone - not a bad thing - I start to wonder if the [weird occurrence with the ugly man](../2001-to-2010/2001.md) in Amsterdam in 2001 implies that Brian - my boyfriend at the time - knew who he was?
