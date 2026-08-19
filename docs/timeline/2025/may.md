@@ -53,9 +53,16 @@ function googleTranslateElementInit() {
 
 ### Can I leave my stuff in the centre
 
-- I remember asking Yvonne on the first day of the intensive if I could leave my stuff overnight in the Avila centre, and everyone looking at each other, she's looking at Steve to get confirmation, and then saying no.
+- I remember asking Yvonne on the first day of the intensive if I could leave my stuff overnight in the Avila centre, and everyone looking at each other - she's looking at Steve to get confirmation - and then saying no.
 - I said, *oh has there been some theft here*, and they all looked at each other intently again, Yvonne and Steve, one of the others, and she said quietly, *yes*.
 - Interesting.
+
+### Yvonne tells me Steve is giving her a hard time
+
+- Yvonne sits next to me in the circle.
+- At some point she complains about Steve giving her a hard time.
+- I can see that he does this, but I'm not sure what's going on with them.
+- I don't know how to help her, so I say nothing.
 
 ...
 
