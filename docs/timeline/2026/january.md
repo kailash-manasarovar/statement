@@ -40,7 +40,8 @@ function googleTranslateElementInit() {
 - I guess I'm familiar with this sort of thing being not all that exciting in places like India where at any time you might be able to find thousands of people, of the billion or so, with similar abilities.
 - The Indians will confirm that these abilities are never passed down to offspring, you can ask them.
 - India will also confirm raising from the dead is there.
-- Note the lack of an army of super hero holy men ever being set up cos, guess what, God doesn't function that way.
+- Thank you India, I adore you <3
+- Also note the lack of an army of superhero holy men ever being set up cos, guess what, God doesn't function that way.
 - If they wanted my advice, they probably don't, they'd be far better off putting all those hundreds of millions they've spent on stalking me since July 2025 into healing the minds of the people living in self-imposed insanity. That's them too.
 - That way, they might stop catastrophically f*cking everything up all the time. Don't you think.
 - What a waste of resources.
