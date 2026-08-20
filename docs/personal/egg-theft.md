@@ -83,3 +83,9 @@
 
 - Please God, let it be over.
 - I'm so ready for this to be over now.
+
+## Did they auction my eggs off?
+
+- They did didn't they.
+- It's the kind of thing they'd do.
+- Who gets paid, I wonder.
