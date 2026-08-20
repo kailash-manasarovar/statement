@@ -63,7 +63,9 @@
 
 - One wonders when and how they were going to finish me off, because that was a certainty, clearly.
 - No wonder they've been swarming around me here; threatening, ice cold American women.
-- People are aggressive, oppressive, and violent in ratio with their guilt levels about what they've done or are doing to you. It's a solid equation.
-- My guess the second two weeks of Bali is when they planned to put me on ice, as it were.
-- I've said it before, but I will say it again and again.
+- People are aggressive, oppressive, and violent in ratio with their guilt levels about what they've done or are doing to you.
+- It's a solid equation.
+- The more they hate you, the more they can justify the evil they're doing to you, and it's so obvious too with the taunting and veiled threats.
+- My guess the second two weeks of Bali is when they planned to put me on ice, as it were, and my senses telling me to pack and leave were life saving.
+- I've said it before, and I will say it again and again.
 - I may have been raped a thousand times by a thousand men while sedated - and remaining celibate - but this is infinitely more violating and I believe the whole world will agree with me.
