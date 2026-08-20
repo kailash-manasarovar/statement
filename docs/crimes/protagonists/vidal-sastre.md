@@ -150,6 +150,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - He called himself Mark and I believe that is his name.
 - I [found him attractive](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn), sitting right in front of my desk. He was flirting very gently with me.
 - I was working for Lorraine Blackbourn at the time, and this Mark looked a lot like her husband who she hadn't yet left.
+- He was [the child trafficker giving instructions to a small boy in the street in 2015](../../timeline/2011-to-2020/2015.md#the-child-traffickers-instructions).
 - I remember seeing this man numerous times at the conservatory during the switcheroo scam, including but not limited to the following examples:
 
     - He was the man involved in [poisoning me by overdose](../../timeline/2023/january.md#serious-poisoning-at-chamber-music-class) with the doctor who had a class scheduled before ours, but only came twice. Numbers [2.](#2-a-dashing-good-looking-bit-thick-younger-man-with-more-hair-than-the-rest-of-them) and [3.](#3-the-brother-of-the-woman-working-at-mercadona) were also at this class.
