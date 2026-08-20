@@ -12,19 +12,24 @@
 
 ## Babies born
 
-- I know a girl was born in May as I can feel her.
+- I know a girl was born in May 2026 as I can feel her.
+- I'm making the same movements she makes.
 - Word online confirms it.
-- This means egg-theft took place right after [poisoning in Lourdes](../timeline/2025/july.md#lourdes) while I was in Cauterets, and indeed the place was *swarming* with agents the whole time I was there.
+- This means egg-theft took place right after [poisoning in Lourdes](../timeline/2025/july.md#lourdes) while I was in Cauterets in August 2025, and indeed the place was *swarming* with agents the whole time I was there.
 - They would even tell me what I had been doing in the bathroom while I was at the shops: *cup cakes* in reference to my boobs popping out of the bubbles in the bath.
 - Interestingly, I had the last period I've had right after I got back from France.
 - My feeling is all this messing around with my body - sedated rape, sedated surgery - stopped them completely.
+
+## Dublin April 2025
+
+- I think this was the first time they did it... which means any offspring arising from surgeries happening in [my hotel room at the Anantara](../timeline/2025/may.md#transforming-touch-intensive-in-dublin) could be months old already.
 
 ## Dorset theft
 
 - They let the Brits have an egg or two too didn't they, which puts potential pregnancies from the eggs stolen in Dorset at the six months stage.
 - Let's assume that all the *chats*, the pictures of rams horns and squirrels, and the ever present suggestion a helicopter was coming to rescue me at the [Booking.com accommodation in Dorset](../timeline/2026/february.md#what-wait-another-fake-collapsible-bridge-again) was just intense distraction while egg-extraction took place.
-- While staying here I even had an ache in my left ovary.
-- I had said online on X that just the image of a squirrel, strawberries, and a ram made my ovaries fire.
+- While staying there I even had an ache in my left ovary, as I will do again in Bali in July 2025.
+- I had said online on X that just the image of a squirrel, strawberries, and a ram made my ovaries fire up.
 - They had responded back that I have ovarian cancer.
 - Nice bunch aren't they.
 
@@ -32,6 +37,8 @@
 
 - [April 2026 at the Beckett Locke hotel-cum-CIA-HQ](../timeline/2026/april.md#beckett-locke) more egg-theft took place.
 - That would make any potential pregnancies at the four months stage.
+- Being woken up by what sounded like people running down the corridor with a bag of ice cubes is quite interesting, medically.
+- Creating a callous in my hand while sleeping for no reason I can fathom is also marvelously explained.
 
 ## Bali theft
 
