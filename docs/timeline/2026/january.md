@@ -42,7 +42,7 @@ function googleTranslateElementInit() {
 - India will also confirm raising from the dead is there.
 - Thank you India, I adore you <3
 - Also note the lack of an army of superhero holy men ever being set up cos, guess what, God doesn't function that way.
-- If they wanted my advice, they probably don't, they'd be far better off putting all those hundreds of millions they've spent on stalking me since July 2025 into healing the minds of the people living in self-imposed insanity. That's them too.
+- If they wanted my advice, they probably don't, they'd be far better off putting all those hundreds of millions they've spent on stalking me since July 2025, and even earlier, into healing the minds of the people living in self-imposed insanity. That's them too.
 - That way, they might stop catastrophically f*cking everything up all the time. Don't you think.
 - What a waste of resources.
 - Scheming wretched muck-spreading bastards.
