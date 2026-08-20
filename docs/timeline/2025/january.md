@@ -930,6 +930,16 @@ function googleTranslateElementInit() {
 - The mission will undoubtedly make us a little uncomfortable from time to time - there's quotes about that too.
 - I wonder who Helen was. Marta maybe?
 
+### Steve mentions the CIA
+
+- He mentioned it pretty regularly after this first time.
+- He says his sons think he works for the CIA a lot.
+- He explained that *he had heard* that security services like to recruit people with severe trauma histories and I guess he meant for the intuitive programs.
+- Severe trauma over long periods, by obliterating psychological boundaries, can produce psychic abilities, and the gypsies will confirm it.
+- They will confirm too that, without the necessary abuse requirement, the ability remains latent.
+- For this reason, I expect my dad was severely abused as a child because he and I used to be able to have conservations without words, and I enjoyed it a lot.
+- I guess Steve was speaking to me alone amongst the group about this.
+
 ### An early dream about Helen and BKS
 
 - Some time after I had been drugged, attacked, and made famous in pedo-rape-porn in 1989 by North London's finest, I started to get into spiritual stuff; Castaneda, that sort of thing.
