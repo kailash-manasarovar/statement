@@ -64,7 +64,9 @@ function googleTranslateElementInit() {
 - I can see that he does this, but I'm not sure what's going on with them.
 - I don't know how to help her, so I say nothing.
 
-...
+### Stopping the intolerable political diatribes at break times
+
+- wip
 
 ### Hearing the bell in her earpiece
 
@@ -169,7 +171,9 @@ function googleTranslateElementInit() {
 - I wasn't planning on it.
 - I wonder what Chris's mates Des and Nikki would have said about all this.
 
-## A woman in Israel reacts normally to my story
+## Israel TT
+
+### A woman in Israel reacts normally to my story
 
 - I attend a Transforming Touch course in Israel where I'm assisting.
 - At one point, a woman and I are chatting in the kitchen, it's a break time, and she just so happens to ask me about my life and how I am, what's going on.
@@ -182,3 +186,20 @@ function googleTranslateElementInit() {
 - Her reaction is so powerful, it prompts me to write again to the police and the Baroness when I'm on detox in a few weeks time in Devon.
 - The second time someone reacts normally is in April 2026 on another TT course I'm attending as a student in Dublin.
 - There has not yet been a third time.
+
+### Steve falls
+
+- One night, Steve and I are out walking; I think we're heading for the Wall.
+- Steve says, come this way and starts heading to New Gate to enter the old city that way.
+- At that moment, a cockroach is running around my feet.
+- The way the cockroach is running around my feet makes me think that we should not go the New Gate way.
+- I tell Steve that I think we should go in via Jaffa Gate instead.
+- He says, no, no, it's fine, let's go to New Gate.
+- The cockroach is still running around my feet, I'm not kidding it was very peculiar.
+- I tell Steve I think the cockroach is telling me we shouldn't go that way.
+- He says don't be silly or something like that so off we go.
+- We enter the city at New Gate and we're walking through the narrow streets towards the Kotel and at one point Steve slips and falls.
+- I'm horrified, it's a hard fall, and I race over to see if he needs help.
+- He doesn't want help, he doesn't want to be touched.
+- We're both upset.
+- He gets up and we carry on as if none of it happened.
