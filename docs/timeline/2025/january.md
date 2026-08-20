@@ -932,13 +932,15 @@ function googleTranslateElementInit() {
 
 ### Steve mentions the CIA
 
-- He mentioned it pretty regularly after this first time.
-- He says his sons think he works for the CIA a lot.
-- He explained that *he had heard* that security services like to recruit people with severe trauma histories and I guess he meant for the intuitive programs.
+- He mentioned it pretty regularly to his classes after this.
+- He often tell us about how his sons think he works for the CIA.
+- This first mention, he explained that *he had heard* that security services like to recruit people with severe trauma histories and I guess he meant for the intuitive programs.
+- I guess Steve was speaking to me alone amongst the group about all this, and I have to wonder if they were considering recruiting me.
 - Severe trauma over long periods, by obliterating psychological boundaries, can produce psychic abilities, and the gypsies will confirm it.
 - They will confirm too that, without the necessary abuse requirement, the ability remains latent.
-- For this reason, I expect my dad was severely abused as a child because he and I used to be able to have conservations without words, and I enjoyed it a lot.
-- I guess Steve was speaking to me alone amongst the group about this.
+- It's only inherited, as it were, in environments that stay abusive over the generations - which bodes very badly for my children :(.
+- For this reason, I expect my dad was severely abused as a child because he and I used to be able to have conservations without words, and it was great fun.
+- He even said my main password out loud one morning.
 
 ### An early dream about Helen and BKS
 
