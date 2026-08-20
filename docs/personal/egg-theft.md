@@ -89,3 +89,4 @@
 - They did didn't they.
 - It's the kind of thing they'd do.
 - Who gets paid, I wonder.
+- Bloody stupid idiots.
