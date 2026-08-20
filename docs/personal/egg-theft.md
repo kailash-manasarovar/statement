@@ -3,7 +3,7 @@
 - Once security services and governments around the world heard about the woman surviving poisoning, it's been a free for all to steal my eggs, hasn't it.
 - Everyone thinks they own her.
 - No-one care about my health or wellbeing - my humanness, even my *special* humanness is an aside, something inconsequential, unimportant - to the point where I strongly suspect the *surgeons* have gone in really heavy handed and caused me internal injury.
-- All extractions took place in pre-booked accommodation tailored on Booking.com just for me so teams had months to prepare.
+- All extractions took place in pre-booked accommodation tailored on Booking.com just for me, or a pre-booked yoga course so teams had months to prepare.
 
 ## Pregnancies nearly full term
 
@@ -35,7 +35,8 @@
 
 ## Bali theft
 
-- Obviously they just got some more, so we'll have to wait and find out about those.
+- Obviously they [just got some more](../timeline/2026/july.md#thursday-and-friday-night-of-the-first-week), so we'll have to wait and find out about those.
+- I felt like they had gone in via my back passage, but maybe they messed up and punctured my bowel and let a little bit of the CO2 in because I was farting so weirdly the whole day afterwards.
 
 ## Physical evidence
 
@@ -48,15 +49,16 @@
 - It was new and a little infected in [Bali](../timeline/2026/july.md#an-infected-spot-near-my-right-groin). I realized then it was unusual.
 - However, it was actually a reopened scar that I had not noticed as suspicious in [April at Beckett Locke](../timeline/2026/april.md#beckett-locke), but remembered, and so they must have gone in through the same opening again in July.
 - I didn't think anything of it in April, even though it didn't behave like a spot, and even though there were spiritual memes flying around to do with eggs, and pregnancy, and Steve had become strangely moody when I mentioned eggs.
-- I also believe I had another scar closer to my naval in November or December of last year.
+- I also believe I can remembering having another scar just like this one but closer to my naval in November or December of last year.
 
 ### Easy to see on examination
 
 - Evidence of all this, I'm told, is easy to see on examination and I can see now why no-one wanted to help me out with health care, especially concerning my left hip injury which I believe is related.
 - The left hip injury felt like something broke and crunched inside after two seconds of running on the first five minutes of a fitness course. 
-- I wonder what that could have been/be. It is very unusual.
-- I'm told egg-extraction is easy to see as, even though the pinhole is small and non-obvious, the surgery itself leaves internal scarring and other obvious signs, and I can't imagine they took any due care given how everyone feels about me. It's a thing you know.
-- Who knows what's inside. 
+- I wonder what that could have been/be. It is very unusual. Something left inside? Some key part of my body cut and broken in error?
+- I'm told egg-extraction is easy to see as, even though the pinhole is small and non-obvious, the surgery itself leaves internal scarring and other obvious signs, and I can't imagine they took any due care given how everyone feels about me. 
+- It's a thing you know, to hate me - very fashionable, a must do in certain circles.
+- Who knows what mess they made inside. 
 - We'll have to have a look, won't we.
 
 ## Total free for all
@@ -65,7 +67,12 @@
 - No wonder they've been swarming around me here; threatening, ice cold American women.
 - People are aggressive, oppressive, and violent in ratio with their guilt levels about what they've done or are doing to you.
 - It's a solid equation.
-- The more they hate you, the more they can justify the evil they're doing to you, and it's so obvious too with the taunting and veiled threats.
+- The more they hate you, the more they can justify the evil they're doing to you, and it's so obvious too with the constant taunting and (not so) veiled threats.
 - My guess the second two weeks of Bali is when they planned to put me on ice, as it were, and my senses telling me to pack and leave were life saving.
 - I've said it before, and I will say it again and again.
 - I may have been raped a thousand times by a thousand men while sedated - and remaining celibate - but this is infinitely more violating and I believe the whole world will agree with me.
+
+## Please God let me be free of this hell and these demons
+
+- Please God, let it be over.
+- I'm so ready for this to be over now.
