@@ -66,7 +66,18 @@ function googleTranslateElementInit() {
 
 ### Stopping the intolerable political diatribes at break times
 
-- wip
+- Normally on these courses, it's apparent that the majority of attendees are politically left-leaning.
+- Fine, no issue, except sometimes at break times, you have to sit and listen to them going on about the poor immigrants, or whatever.
+- And I had just been up to Runcorn with Reform and at least half the people on the bus were immigrants, or the descendants of immigrants, including me!
+- So here we are at tea time, and it's the poor immigrants again, and I'd just had enough of hearing about it so I said something.
+- And I was shaking (cos you're not allowed to have a different view from them, or you can lose your job, get attacked, etc.) and my voice was quivering, but I said it.
+- Oh do you mean the thousands of young and fit men who hate women coming into the UK every day?
+- And I could see some people's faces contorting as I mentioned the obliteration of women's rights by the left, as if they agreed with me but knew they couldn't speak about it.
+- And there was some discussion, and politics was never spoke of again.
+- Although, incidentally, in April 2026 in Dublin on the second course where they were all agents and had started to bully me a little, politics came up quite a lot at tea times.
+- One woman even said, forcefully, that she wanted to murder Trump - and I was thinking, that's a bit strong.. I was shocked actually.. even more so because no-one else at the table seemed to disagree with her.
+- So I think I said something like, *wow, people are really divided contentiously aren't they* and went for a walk.
+- The even more curiously coincidental thing about that was the day after the course finished, someone did try to kill him.
 
 ### Hearing the bell in her earpiece
 
