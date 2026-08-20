@@ -56,7 +56,7 @@
 - It was new and a little infected in [Bali](../timeline/2026/july.md#an-infected-spot-near-my-right-groin). I realized then it was unusual.
 - However, it was actually a reopened scar that I had not noticed as suspicious in [April at Beckett Locke](../timeline/2026/april.md#beckett-locke), but remembered, and so they must have gone in through the same opening again in July.
 - I didn't think anything of it in April, even though it didn't behave like a spot, and even though there were spiritual memes flying around to do with eggs, and pregnancy, and Steve had become strangely moody when I mentioned eggs.
-- I also believe I can remembering having another scar just like this one but closer to my naval in November or December of last year.
+- I also believe I remember having another scar just like this one but closer to my naval in November or December of last year.
 
 ### Easy to see on examination
 
