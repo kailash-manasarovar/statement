@@ -236,7 +236,17 @@ function googleTranslateElementInit() {
 
 - In the last photo above, he appears to be crying.
 
-#### St Michael's mass on 29th September
+### Dinner with Adam
+
+- I suggest to Adam we go for dinner and get the best Irish stew from the hotel round the corner that I think I've ever had!
+- He agrees.
+- We're sitting over dinner and I start to share my story.
+- He gets annoyed and asks me to shut up, he can't handle it.
+- I ask him about his life, what's motivating him.
+- He says he's looking for a woman.
+- I wish him luck.
+
+## St Michael's mass on 29th September
 
 - It feels to me like the end of Archangel Michael's mission; [the task he gave me in Lourdes in 2020](../2021/january.md#archangel-michael-gives-me-an-assignment).
 - I write a note for Anthony in the church book beside the statue, and I leave a red Kotel thread in the page.
