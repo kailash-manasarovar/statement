@@ -36,5 +36,5 @@ function googleTranslateElementInit() {
 - I recommend studying A Course In Miracles and The Bible, and other things too, but you could start there.
 - Don't get caught up in nonsense or carousing or evildoing, if you can help it.
 - I'm so sorry the world is so evil. It can't support itself much longer like this.
-- If I'm around still when you find out, and you can find me, do reach out, I'd be happy to welcome you into my home at any time.
+- If I'm around still when you find out, I'm hearing now that I'll be here for quite some time, and you can find me, do reach out, I'd be happy to welcome you into my home at any time.
 - Your loving mum.
