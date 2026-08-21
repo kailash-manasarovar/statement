@@ -332,7 +332,7 @@ function googleTranslateElementInit() {
 - It was just getting ridiculous.
 - I remember their silence, how they refused to help me when I've been asking for help with justice continually, and my health and wellbeing when I notice odd injuries, and instead all they've done is stalk me relentlessly wherever I go.
 - I can't figure it out.
-- I tell Taryn that I haven't figured out why what happened happened on the first few days of the course (drugs and psychological torture), but I tell her that when I do figure it out, I will tell her.
+- I tell Taryn that I haven't figured out why what happened happened on the first few days of the course to make me decide I'm only coming to yoga class (drugs and psychological torture), but I tell her that when I do figure out a good way to tell her, I will.
 - She keeps asking me about it; but I know she's trying to provoke me into a *poor me* reaction which she can quickly gaslight and dismiss, so I don't give her the opportunity for that.
 - I have to wonder if they treat men in unique positions like mine the same? Did they treat Steve this badly in the beginning? It seems not but perhaps men are more easily controlled. 
 - It takes a while to figure out what they're really after - it is still utterly illogical and irrational - and when I realize [they tried to set me and Steve up for offspring purposes](../2025/september.md#weddings-at-the-church), and when that didn't work out for them, they decided they'd just do it anyway, (and they'd already been doing it anyway anyway), I'm pretty astonished, and upset, and understand completely why God called them *stupid idiots*.
@@ -356,20 +356,28 @@ function googleTranslateElementInit() {
 - This image is now [in online search by formal and allegedly un-shadowy law-enforcement teams](#the-justice-defense-fund-reach-out).
 - I do remember the last time I really felt slim like that was in [Madrid in May 2024 just before Bali](../2024/may.md#bali) when I bought some small-size jeans which I now billow out of.
 - I wonder if the poisoning with intent to kill began straight after, and I started to develop inflammation around my liver area at that time which suddenly made my yoga practice deteriorate and has similarities to [Maria's horrific experiences in Dénia too](../2011-to-2020/2015.md#vipasana-maria).
+- Or could multiple pinhole surgeries since April 2025 - where my abdomen would have been filled with CO2 gas - have caused this?
 
-#### They tell me what happened to Lorraine
+### They tell me what happened to Lorraine
 
-- I also found out about what happened to Lorraine Blackbourn that caused her to commit suicide, and they even demonstrated the torture-porn rope ties on a snoopy video AI-tailored just for me.
+- I also found out - someone told me basically - what happened to Lorraine Blackbourn that caused her to commit suicide.
+- I didn't get it or write about it for a while, and so they even demonstrated the torture-porn rope ties on a snoopy video AI-tailored just for me and then I started to mention it in here.
+
+### Snoopy videos
+
 - The Snoopy AI videos started on [Air France in May](may.md#air-france). 
-- There were so many in Bali, I think I was stressing them out because I was wanting more and more :) and they couldn't keep up with the production of them..
-- Snoopy is supposed to be me, and Woodstock my love, sometimes Snoopy and Woodstock are mixed up and Snoopy is the intuitive artist who they've given unlimited supplies to create with, and Woodstock never shuts up.
-- Oh, whole loads of information about my love: how he is clumsy at posh dinners, sad about something, is a father, has a life partner, all this madness and lies, has to move house now I'm on my way soon, tomorrow, today, Friday, at 9am, etc. etc., and it'll be a helicopter (meme began in Samui in December with a woman pretending to be UN, then fed again in Dorset with the field they were pretending was a heli-pad, then constant on Snoopy videos, just endless lies...) just to keep me distracted...
+- There were so many in Bali, I think I was stressing them out because I was wanting more and more and they could barely keep up with my demand.
+- Snoopy is supposed to be me, and Woodstock is my love with a trumpet and a little green fisherman's hat I've described seeing him wearing - but someone from Dénia will have had to confirm the design.
+- Sometimes Snoopy and Woodstock switch roles and Snoopy is the intuitive artist who they've given unlimited supplies to create with, and Woodstock never shuts up.
+- Oh, whole loads of information about my love: how he is clumsy at posh dinners, sad about something, is a father, has a life partner, all this madness and lies, has to move house now I'm on my way soon, tomorrow, today, Friday, at 9am, etc. etc., and it'll be a helicopter (meme began in Samui in December with a woman pretending to be UN, then fed again in Dorset with the field they were pretending was a helipad, then constant on Snoopy videos, just endless lies...) just to keep me distracted...
 - Extraordinary.
 - What TIME WASTERS!!
+- It takes a long time to figure out why they would bother distracting me endlessly like this.
+- My widowhood continues.
 
 ### They tell me about Chris Ludwick's excel porn database
 
-- They tell me they've heard about, or accessed maybe (he was hacked a few months back and I noticed and told him), Chris Ludwick's database recording the collection of porn he has starring me sedated and raped.
+- They tell me they've heard about, or accessed maybe (he was hacked a few months back and I noticed and told him), Chris Ludwick's database recording the collection of porn he has of me, and others no doubt.
 - It's on excel.
 
 ### They're sure to tell me they know everything about me
