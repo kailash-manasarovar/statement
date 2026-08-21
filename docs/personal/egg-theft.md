@@ -90,3 +90,5 @@
 - It's the kind of thing they'd do.
 - Who gets paid, I wonder.
 - Bloody stupid idiots.
+
+- Or are they going to try and make me look insane now...

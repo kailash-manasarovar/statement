@@ -53,7 +53,7 @@ function googleTranslateElementInit() {
 - There's an Indian man living in Canada, working for SAP he says - never stops working while on the trip.
 - He has a US mobile phone number.
 - Like Henry, he seems to have a bag full of remedies for everything, but they're more on the natural side.
-- Eventually I became convinced he was working directly for Elon, but who knows. (Not Elon as the father of one of them? Seriously? Is that why he was at the Holiday Inn grinning at me inanely from ear-to-ear like a bloody stupid idiot? They can't get any crazier or sick-in-the-head now.)
+- Eventually I became convinced he was working directly for Elon, but who knows. (Not Elon as the father of one of them? Seriously? Is that why he was at the Holiday Inn grinning at me inanely from ear-to-ear like a bloody stupid idiot? They can't get any crazier or sick-in-the-head now. With Elon, it would be trophy.)
 - He traveled to India, stayed there, and told me his job was over soon after the trip.
 - He was always over-concerned about my health.
 - As I was getting really sick at Everest, he was fussing around me a lot.
