@@ -102,6 +102,7 @@ function googleTranslateElementInit() {
 - I remain stunned.
 - I visit the little Ram every day.
 - When I next return to Lourdes, the little Ram has gone.
+- Bonafide Catholic Church involvement in the conspiracy as the trick to keep me distracted - and [steal my eggs](../../personal/egg-theft.md) - ramps up.
 
 ### Poisoning ordered by the mousses
 
