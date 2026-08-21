@@ -99,6 +99,10 @@ function googleTranslateElementInit() {
 
 - Sick ideas they want me to write about and get killed for doing so.
 - I don't.
+- Ideas orthogonal to the one they never want me to think about.
+- The whole intensive I only thought of one very famous person everyone knows, constantly.
+- It was so strange, I couldn't fathom it out.
+- But I knew enough to know that this was not an Instruction.
 - Is that the true nature of the *intensives*?
 - I didn't know this at the time, but I kept have these bizarre thoughts throughout the course, and something stronger telling me to note it and not to worry about it.
 - It all clicked into place in [Bali in July 2026](../2026/july.md#loka-yoga) on the CIA psychological-torture intensive which also had very little effect on me and, I think now, rather helped me enormously.

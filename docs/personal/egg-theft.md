@@ -105,3 +105,6 @@ function googleTranslateElementInit() {
 - Bloody stupid idiots.
 - I expect they'll try and make me look insane now...
 - Do you think this is what happens to shady groups like this with unlimited power and budget, and no true or loving goal; they lose their minds, behave outrageously, do more damage than good, the damage gets to extreme proportions which cannot be ignored anymore, and then something even more outrageous has to be done to deal with it, and they're so guilty about it all, they think involving everyone else will help them save face? Seems likely.
+
+- Did one die already?
+- I think social services and the press need calling IMMEDIATELY. Don't you?
