@@ -299,7 +299,7 @@ function googleTranslateElementInit() {
 - They were all actors.
 - It was total bananas.
 - Anyway.
-- At lunch that day the important landowner in Bali who had known what had happened with Polygon at the Hyatt.
+- At lunch that day was (hint-suggest-nudge apparently) the important landowner in Bali who had known what had happened with Polygon at the Hyatt.
 - Did he organize Elon's visit that week?
 - And the lunch was all a bit cloak and dagger, and hush hush, and I was getting used to all this.
 - And all the yoga students (agents/actors) were prompting me to say things, and, we're sitting right beside this Bali VIP, and, never one to disappoint, after the man (my yoga chum aka agent) had told me, loudly, that he'd been unconscious for a whole week years before, and he didn't know what had happened to him during this time but he'd had PTSD ever since, I got very cross and said rather loudly: 
@@ -307,12 +307,13 @@ function googleTranslateElementInit() {
 - And the other agent lady who I love sitting in between this VIP man and his wife and our classmate spat out her tea!
 - It was hilarious.
 - So, a positive result of my Bali stay was I have been thinking about May 2024's events more closely, and remembering even more weird things, and realizing that I was probably sedated and raped for most of that week with my employer, crypto-giant [Polygon Labs](https://polygon.technology/about).
+- I made a lot of updates to the statement in Bali.
 - And I have to wonder who's turn it's been on their other off-sites since then, and before too, and whether this is now an industry expectation: *rape the female colleague you hate on our off-sites... she'll never know!!!! ... and if she does find out, don't worry, we'll make sure the secret services silence her*.
 - Do you think they add it to job ads and specs, *special events* maybe, like they say at the swingers club in Dénia?
 
 ### Another criminal is brought around the world for viewing
 
-- This time, they bring [Rene from Australia](../2001-to-2010/2003.md#turtles); I've literally just remembered her and written about her, it's a few days after.
+- This time, they bring [Rene from Australia](../2001-to-2010/2003.md#turtles); I've literally just remembered her at the turtle beach, and written about the strange incident with her in 2003 just two or three days before.
 - It's only a short hop to Australia so they could have hauled her out quite easily, especially if she was in prison which is likely.
 - She's sitting with an agent by the pool one afternoon when I turn up.
 - She keeps the towel over her face.
@@ -320,17 +321,23 @@ function googleTranslateElementInit() {
 - They leave soon after I arrive.
 - I never see either of them again.
 
-### Pretending to be someone you're not
+### They relentlessly pretend to be something they're not
 
-- I look around me and I see a multi-million dollar budget: houses, vehicles, yoga studios, intricate set ups with very rich people, it's astonishing.
+- I look around me and I see a multi-million dollar budget: houses, vehicles, multiple salaried individuals, a newly refurbished yoga studio building, intricate costly set ups with very rich people, it's astonishing.
 - I think probably 80% of occupants at the Holiday Inn while I was there were spies too.
 - They must be spending an absolute fortune; is that why they keep suggesting cheap hotels to me when I have nowhere to go?
 - Every time they get close to convincing me they're someone else, I remember how much money they're spending, and especially the drones, people, and robots.
-- I wonder why they wouldn't try to help me when I've asked for help with justice continually, and my health and wellbeing, and instead all they've done is given me such a hard time.
-- Do they treat men in unique positions like mine the same? It seems not but perhaps they're more easily controlled. 
-- It takes a while to figure out what they're really after - it is still utterly illogical and irrational - and when I realize they tried to set me and Steve up for offspring purposes, and when that didn't work out for them, they decided they'd just do it anyway, I'm pretty astonished, and upset, and understand why God said what He did when He said it.
-- But, again, it's all His Plan, so I'm sure that all of this mess will serve some unique purpose of His we can't guess at, and we can get on with the world-saving.
-- I realize why God's Plans have to be so unique because there is so much against Him in this violent and violating world that hates itself.
+- I remind myself of how little they care about me, and that gets me straight.
+- I notice how desperate they are for me to believe their lie: even painting little white and blue stripes on the window sill on one of the houses backing onto me.
+- It was just getting ridiculous.
+- I remember their silence, how they refused to help me when I've been asking for help with justice continually, and my health and wellbeing when I notice odd injuries, and instead all they've done is stalk me relentlessly wherever I go.
+- I can't figure it out.
+- I tell Taryn that I haven't figured out why what happened happened on the first few days of the course (drugs and psychological torture), but I tell her that when I do figure it out, I will tell her.
+- She keeps asking me about it; but I know she's trying to provoke me into a *poor me* reaction which she can quickly gaslight and dismiss, so I don't give her the opportunity for that.
+- I have to wonder if they treat men in unique positions like mine the same? Did they treat Steve this badly in the beginning? It seems not but perhaps men are more easily controlled. 
+- It takes a while to figure out what they're really after - it is still utterly illogical and irrational - and when I realize [they tried to set me and Steve up for offspring purposes](../2025/september.md#weddings-at-the-church), and when that didn't work out for them, they decided they'd just do it anyway, (and they'd already been doing it anyway anyway), I'm pretty astonished, and upset, and understand completely why God called them *stupid idiots*.
+- But, again, it's all His Plan, so I'm sure that all of this mess will serve some unique purpose of His we can't guess at, and then we can get on with the world-saving.
+- I realize why God's Plans have to be so unique and unexpected because there is so much against Him in this violent and violating world full of the self-loathing.
 
 ### They show me some more recent porn
 
