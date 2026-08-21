@@ -139,7 +139,7 @@ function googleTranslateElementInit() {
 - It seemed that everyone in the local area knew what was going on.
 - The Balinese are not stupid, and they talk to each other, and even the women at the massage parlour down the road seemed to "recognize" me whenever I walked in.
 - The local Balinese men that recognized me grinned and giggled.
-- The local Balinese women that recognized me looked like they were in mourning.
+- The local Balinese women that recognized me looked like they were in mourning and could hardly look at me in the eye.
 
 #### The fake pervert in security
 
@@ -147,40 +147,44 @@ function googleTranslateElementInit() {
 - He's even grinning at me as he does it.
 - I wag my finger at him - sort of mock-angrily - and carry on walking.
 - And promptly forget about it.
-- It didn't seem real to me at the time for some reason. It was unconvincing and non-threatening, but very rude yes. Nevertheless, I totally forgot about it.
-- Something compels me to remember this event sometime later, maybe on the evening of the following day even, when I tell Taryn at the school about it at the end of a chat about something else (the see-through windows I think).
+- It didn't seem real to me at the time for some reason. It was unconvincing and non-threatening, but very rude yes. Nevertheless, I was not offended and totally forgot about it.
+- Something compels me to remember this event sometime later, maybe on the evening of the following day even, when I tell Taryn at the school about it at the end of a chat about something else.
 - She says she's going to have a word with the owner of the housing estate who lives in Switzerland apparently.
 
 #### The see-through windows in the house
 
-- I also mention at the same time that I have been going to the toilet, bathing, showering, and dressing myself with some risk of being seen by anyone walking outside, and every neighbor at the back because the curtains are completely see through.
-- So there's a fuss about this, and they sort it out.
+- I also mention at the same time that I have been going to the toilet, bathing, showering, and dressing myself with some risk of being seen by anyone walking outside, and every neighbor at the back, because the curtains are completely see through.
+- So there's a fuss about this too, and they sort it out.
+- I ask Taryn if she thinks everyone knows who I am - I have in the interim told her everything that has been happening to me in the world - and they're trying to get more porn of me?
+- *Women-on-the-toilet* is a porn genre after all, I say.
 
-#### Taryn tells me they fired the man
+#### Taryn tells me the management fired the man
 
-- I'm informed the security team checked everything over and fired the man.
+- I'm informed the security team checked everything over and fired the apparently masturbating man.
 - Something's ringing untrue with this whole business, because he was obviously acting - told to behave this way - but whatever.
 
 #### They come and fix the windows
 
-- One of the estate managers comes with some men to fix the window, and I'm pretty sure it's the same man I saw grinning and pretending to masturbate on the first morning.
-- He's nervous too, sweaty and can't look me in the eye.
-- This is after the sacked someone, apparently.
-- I'm wondering if they're trying to figure out how bad my facial recognition skills are.
-- I can tell you they're pretty bad, and bad enough not to mention this to anyone because I'm so unsure.
-- But I can tell what people are thinking and feeling if it's intense, and if I know them, even if I just spent a whole day with them, it doesn't matter what they look like, I know who they are.
-- Anyway, that's incidental maybe, or perhaps part of their research efforts.
+- One of the estate managers comes with some men to fix the windows, and I'm pretty sure it's the same man I saw grinning and pretending to masturbate on the first morning.
+- He's nervous too, sweaty and he can't look me in the eye.
+- His handshake is limp.
+- (This is after they sacked someone, apparently.)
+- I'm wondering if my captors are trying to figure out how bad my facial recognition skills are.
+- I can tell you they're pretty bad; and bad enough not to mention I think he's the man I saw that first morning to anyone because I am so unsure.
+- But I can tell what people are thinking and feeling, especially if it's intense, and if I know them, even if I just spent a whole day with them, it doesn't matter what they look like, I know who they are.
+- Anyway, that's incidental maybe, or perhaps it was part of their research efforts into how brain-damaged I actually am, not that they care I'm sure.
 
 #### A man approaches me in the street
 
-- I'm walking to the beach one day about a week later and a man drives up beside me on his motorbike and starts to talk to me.
+- I'm walking to the beach one day about a week later and a local man drives up beside me on his motorbike and starts to talk to me.
 - At the same time, a van full of working men (Indonesians) pulls up on the other side of the road to watch us.
 - The road is always completely empty, it's a very quiet area, hardly anyone around.
-- So this man is saying, because of me reporting this masturbating man, he loses his job, but it wasn't him.
-- And indeed, I don't think it was him, but regardless, just like the man pretending to wank, this man means me no harm, and I know it very well.
+- So this man is saying, because of me reporting this masturbating man, he loses his job, but it wasn't him and his wife is pregnant and can I help him.
+- And indeed, I don't think it was him in the cabin that morning.
 - And at the same time, I'm aware that this whole business is some sort of ridiculous scam set up by my captors.
 - So I say a few words, tell him to get another job or something, and ask him to give me a lift down to the beach, which he does very obligingly.
-- I go into my massage and the women there look at me like they know who I am, and what's happened to me, and what they're continuing to do to me: sad and distressed, unable to speak about it.
+- I'm starting to wonder if they've fired this man instead of the other one on purpose... but it's all so suspect - scheming all over it - I decide it's better not to think about it at all.
+- I go into my massage and the women there look at me like they know who I am, and what's happened/still happening to me in Bali: sad and distressed, scared, unable to speak about it.
 
 ### Second day
 
