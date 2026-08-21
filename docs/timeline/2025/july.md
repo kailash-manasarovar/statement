@@ -236,6 +236,12 @@ function googleTranslateElementInit() {
 - My heart says I will survive even this.
 - I hope so, we've lots to get through and the world is insane in very dangerous ways now and something has to change.
 
+### Mexican Mary
+
+- I'm wandering around the grotto, and I'm thinking of Steve and our recent Israel trip.
+- I stumble across a statue of Mary from Mexico which I had never noticed before.
+- I send a photo of her to him.
+
 ### More transvestites at Lourdes?
 
 - I'm serving at Lourdes and as part of service you have to fulfil a few formalities and training.
