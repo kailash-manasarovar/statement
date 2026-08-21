@@ -38,7 +38,7 @@ function googleTranslateElementInit() {
 
 ## Dublin April 2025
 
-- I hope this was the first time they did it... which means any offspring arising from surgeries happening in [my hotel room at the Anantara](../timeline/2025/may.md#transforming-touch-intensive-in-dublin) could be months old already.
+- This was the first time they did it... which means any offspring arising from surgeries happening in [my hotel room at the Anantara](../timeline/2025/may.md#transforming-touch-intensive-in-dublin) could be months old already.
 
 ## Dorset theft
 
