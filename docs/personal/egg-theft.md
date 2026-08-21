@@ -97,7 +97,7 @@ function googleTranslateElementInit() {
 - I've said it before, and I will say it again and again.
 - I may have been raped a thousand times by a thousand men while sedated - and remaining celibate - but this is infinitely more violating and I believe the whole world will agree with me.
 
-## Did they auction my eggs off?
+## The Abomination of Desolation in the Holy Place
 
 - They did didn't they.
 - It's the kind of thing they'd do.
@@ -105,6 +105,7 @@ function googleTranslateElementInit() {
 - Bloody stupid idiots.
 - I expect they'll try and make me look insane now...
 - Do you think this is what happens to shady groups like this with unlimited power and budget, and no true or loving goal; they lose their minds, behave outrageously, do more damage than good, the damage gets to extreme proportions which cannot be ignored anymore, and then something even more outrageous has to be done to deal with it, and they're so guilty about it all, they think involving everyone else will help them save face? Seems likely.
-
-- Did one die already?
-- I think social services and the press need calling IMMEDIATELY. Don't you?
+- For the last four or so years, I have been soaked in evil. Everywhere I turn, there's evil. Again and again I ask, when does it end, how much are we supposed to endure of this, when do we get a break Father, thinking nothing can top the current chapter.
+- And then it always does.
+- So what's next? I cannot imagine anything worse now. This really is .. there's no words for how abhorrent and abominable these events are.
+- The champion of champions' abomination of desolation, by far.
