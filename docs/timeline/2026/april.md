@@ -98,6 +98,11 @@ function googleTranslateElementInit() {
 - It's very school playground isn't it.
 - Except the feeling I got, I believe in retrospect, was God's way of telling me in advance that this is how He gets my babies back for me, with a strong and joyful body memory.
 
+### American agents all over the baths and the town
+
+- They're everywhere; and I do not get a good feeling from them at all.
+- Something's up and it bodes badly for me (and everyone actually, but they're not wise enough to see they're chasing after chaos).
+
 ## Facebook shuts me down
 
 ![Facebook shuts me down](../../content/images/facebook-shuts-me-down.jpg)
