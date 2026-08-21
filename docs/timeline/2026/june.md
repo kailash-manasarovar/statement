@@ -270,16 +270,30 @@ function googleTranslateElementInit() {
 - I was wondering if they were going to run out of agents.
 - I did start seeing faces I've seen before, and I'm certain some of the faces on the beach turned up the following week for yoga too.
 - Some of them got a bit excited at times - the Americans/Brits - and I had to tell them to stop fannying around, which was funny, everyone laughed.
-- They really outdid themselves with the Elon event they set up on the full moon, that was hilarious.
-- Except, was that actually Elon? It really looked like him sitting their grinning at me as the agents whooshed me past.
-- I think it was. Can someone check if he was in Bali that night?
-- What are they saying to us private tax-paying citizens?
-- We don't care about women, children, and babies, and here's Elon, our friend, to prove it?
-- I think it's about time the revolution began, don't you?
-- But we all became good friends, I think, I hope.
-- The best thing was when all the agents did the water aerobics with me on our last day.
-- It was bananas!
-- Easily my favorite agent extravaganza to this day.
+
+### Elon is at the hotel
+
+- It's the full moon, less than a week before the [Loka Yoga spy razzmatazz](july.md#loka-yoga).
+- The agents are getting excited.
+- That night I head downstairs for dinner, and I see there's a full moon, so I go off to get some photos.
+- They're laying in wait, setting up a flash meet-and-greet with someone special.
+- It's Elon Musk, he's sitting in a table as I walk by, the big man to my left not allowing me more than a couple of seconds to see him.
+- He's grinning inanely at me.
+- (Did Rohini lure him in? That was her story... after all...)
+- I carry on and take some photos of the full moon.
+- I can see a red panda face, or a raccoon, or perhaps a skunk very clearly cloud
+- Could it be an AI hack?
+
+![Red panda pic](../../content/images/red-panda.png)
+
+- They really outdid themselves with this Elon.
+- I'm thinking, they've got a lookalike in to harass me and upset me... except none of it makes sense.
+- I can't imagine any reason for Elon to be present at the Holiday Inn Nusa Dua on 29th June 2026 and grin at me inanely.
+- Why would they set that up?
+- It makes much more sense in August 2026 after the [Loka Yoga debacle, psychological torture, and sedated surgeries](july.md#loka-yoga).
+- The next morning I tell them all on Substack that I love them, but would they please stop fannying around.
+- At breakfast, some of them are giggling at me as I walk past.
+- Was Elon there to supply some bodily fluids for his latest rape-porn-themed trophy, and take the opportunity to mock me at the same time?
 
 ### Memories
 
