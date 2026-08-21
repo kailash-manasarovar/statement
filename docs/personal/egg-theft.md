@@ -1,9 +1,25 @@
 # Egg theft
 
-- Once security services and governments around the world heard about the woman surviving poisoning, it's been a free for all to steal my eggs, hasn't it.
-- Everyone thinks they own her.
-- No-one care about my health or wellbeing - my humanness, even my *special* humanness is an aside, something inconsequential, unimportant - to the point where I strongly suspect the *surgeons* have gone in really heavy handed and caused me internal injury.
-- All extractions took place in pre-booked accommodation tailored on Booking.com just for me, or a pre-booked yoga course so teams had months to prepare.
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
+- Once security services and governments around the world heard about the world's most famous sedated rape porn-star surviving repeated attempts at murder by poisoning, it's been a free for all.
+- Everyone thinks they can hunt her down and own her. Everyone wants a slice, a crumb.
+- Just like hunters in Africa ready to kill and destroy what they in truth venerate, fear, and revere.
+- Whatever potential I have, and the gifts God has given me for the world, are utterly irrelevant to the totally insane humans.
+- These people are horror-show exterminators, playing God.
+- So what's really behind such total insanity.
+
+## Motive, trophy
+
+1. It's a motive as far from God as you could imagine; behavior utterly devoid of God. And that's why they will not prevail.
+2. They can't really believe God's gifts - freely given *only after* years of fervent prayer, meditation, spiritual study, and following His Instructions no matter how harsh they were - get passed down to offspring with fathers obsessed with criminal porn; that's too ridiculous even for a mad person.
+3. So we're only left with *trophy*; trophies from the most famous sedated-rape porn star. renowned all over the world. The concomitant expectations for any children born for this reason are too hideous to imagine. It's almost like the bible itself is coming true right before our eyes.
 
 ## Pregnancies nearly full term
 
