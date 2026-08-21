@@ -239,8 +239,10 @@ function googleTranslateElementInit() {
 ### Mexican Mary
 
 - I'm wandering around the grotto, and I'm thinking of Steve and our recent Israel trip.
-- I stumble across a statue of Mary from Mexico which I had never noticed before.
-- I send a photo of her to him.
+- I stumble across a statue of Mary from New Mexico which I had never noticed before and I'm interested because I know Steve lives near New Mexico.
+- I send a photo of Her to him.
+
+![Mexican Mary](../../content/images/mexican-mary.png)
 
 ### More transvestites at Lourdes?
 
