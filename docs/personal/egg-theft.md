@@ -11,7 +11,7 @@ function googleTranslateElementInit() {
 - Once security services and governments around the world heard about the world's most famous sedated rape porn-star surviving repeated attempts at murder by poisoning, it's been a free for all.
 - Everyone thinks they can hunt her down and own her. Everyone wants a slice, a crumb.
 - Just like hunters in Africa ready to kill and destroy what they in truth venerate, fear, and revere.
-- Whatever potential I have, and the gifts God has given me for the world, are utterly irrelevant to the totally insane humans.
+- Whatever potential I have, and the gifts God has given me for the world, are utterly irrelevant to these totally insane humans.
 - These people are horror-show exterminators, playing God.
 - So what's really behind such total insanity.
 
