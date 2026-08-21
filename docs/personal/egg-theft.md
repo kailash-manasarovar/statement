@@ -18,7 +18,7 @@ function googleTranslateElementInit() {
 ## Motive, trophy
 
 1. It's a motive as far from God as you could imagine; behavior utterly devoid of God. And that's why they will not prevail.
-2. They can't really believe God's gifts - freely given *only after* years of fervent prayer, meditation, spiritual study, and following His Instructions no matter how harsh - get passed down to offspring with fathers obsessed with criminal porn; that's too ridiculous even for a mad person.
+2. They can't really believe God's gifts - freely given *only after* years of fervent prayer, meditation, spiritual study, and following His Instructions no matter how harsh - get passed down to offspring with fathers obsessed with criminal porn; that's too ridiculous even for a mad person. I think they thought rather unGodly Steve *gave* it to me! They're that mad! The thought that having made it here, I might be in the best position to help other join me never crossed their tiny minds. These people need our help and probably shouldn't be parents of any offspring they're so crazy.
 3. So we're only left with *trophy*; trophies from the most famous sedated-rape porn star. renowned all over the world. The concomitant expectations for any children born for this reason are too hideous to imagine. It's almost like the bible itself is coming true right before our eyes.
 
 ## Pregnancies nearly full term
