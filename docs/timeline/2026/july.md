@@ -97,6 +97,8 @@ function googleTranslateElementInit() {
     - Tonia - pronounced Tona, no Y.
     - Imagine waking up with no legs.
     - Tibetan monks.
+    - The Tibetan monk's name, which incidentally I had forgotten and they used a name he doesn't really use much also, which was amusing.
+    - Setting up brand memes to use later for triggers: *Lululemon*, for example.
     - Horses - I might have gotten confused with the British spy (policewoman - not you, you were cool, the youngster with the Metattude) in Thailand there.
     - Phones up in front of me as if they're filming me.
     - Divine feminine, divine relationships.
@@ -105,6 +107,7 @@ function googleTranslateElementInit() {
 
     ![Exhaustion prompt from Joy](../../content/images/exhaustion-prompt-from-joy.jpg)
 
+    - Phrases and sentences from non-fiction, fiction, blogs, emails, tweets and similar from as far back as 2007 to the current time, that morning even sometimes if I had been online before class.
     - (I'll keep adding these in as I remember them..., it's gonna be quite a list)
 
 - It was a battering.
@@ -126,9 +129,58 @@ function googleTranslateElementInit() {
 - I told her I was having a massive panic attack and PTSD reaction.
 - She never mentions it again.
 - The priest says some weird things like he's not taking anything seriously and knows who these people are: *thank you for the airport*, he says.
-- This is the first day over, unless there was something else, yes there was because the flowers kept going over the floor.
+- This is the first day over, unless there was something else, yes there was because the flowers from the ceremony kept going over the floor.
 - There was another session of psychological torture before the day ended; I have no idea what the content of the session had actually been.
 - The torture was so effective that it totally dissociated me and I have no recollection of what these sessions were posing as.
+
+### Involving the locals
+
+- Related to the previous entry, my captors involved the locals in multiple schemes including the priest who, it seemed to me, was doing his best to be as irreverent as possible for good reason - did he know what they were up to?
+- It seemed that everyone in the local area knew what was going on.
+- The Balinese are not stupid, and they talk to each other, and even the women at the massage parlour down the road seemed to "recognize" me whenever I walked in.
+- The local Balinese men that recognized me grinned and giggled.
+- The local Balinese women that recognized me looked like they were in mourning.
+
+#### The fake pervert in security
+
+- So they set up a situation where it's the first morning of the first day, and I'm walking into the school in the dark before the sunrise, and I'm just passing the security gate at the estate, and a guard (out of uniform - they're usually dressed up well) is lying down looking at his phone, in a position no-one would ever be in because he's sitting the wrong way around in his chair, but in this position he can see me perfectly as I walk by, and he's well lit by the cabin light so I can see him perfectly too, and as I walk by he pretends he's masturbating to porn on his phone.
+- He's even grinning at me as he does it.
+- I wag my finger at him - sort of mock-angrily - and carry on walking.
+- And promptly forget about it.
+- It didn't seem real to me at the time for some reason. It was unconvincing and non-threatening, but very rude yes. Nevertheless, I totally forgot about it.
+- Something compels me to remember this event sometime later, maybe on the evening of the following day even, when I tell Taryn at the school about it at the end of a chat about something else (the see-through windows I think).
+- She says she's going to have a word with the owner of the housing estate who lives in Switzerland apparently.
+
+#### The see-through windows in the house
+
+- I also mention at the same time that I have been going to the toilet, bathing, showering, and dressing myself with some risk of being seen by anyone walking outside, and every neighbor at the back because the curtains are completely see through.
+- So there's a fuss about this, and they sort it out.
+
+#### Taryn tells me they fired the man
+
+- I'm informed the security team checked everything over and fired the man.
+- Something's ringing untrue with this whole business, because he was obviously acting - told to behave this way - but whatever.
+
+#### They come and fix the windows
+
+- One of the estate managers comes with some men to fix the window, and I'm pretty sure it's the same man I saw grinning and pretending to masturbate on the first morning.
+- He's nervous too, sweaty and can't look me in the eye.
+- This is after the sacked someone, apparently.
+- I'm wondering if they're trying to figure out how bad my facial recognition skills are.
+- I can tell you they're pretty bad, and bad enough not to mention this to anyone because I'm so unsure.
+- But I can tell what people are thinking and feeling if it's intense, and if I know them, even if I just spent a whole day with them, it doesn't matter what they look like, I know who they are.
+- Anyway, that's incidental maybe, or perhaps part of their research efforts.
+
+#### A man approaches me in the street
+
+- I'm walking to the beach one day about a week later and a man drives up beside me on his motorbike and starts to talk to me.
+- At the same time, a van full of working men (Indonesians) pulls up on the other side of the road to watch us.
+- The road is always completely empty, it's a very quiet area, hardly anyone around.
+- So this man is saying, because of me reporting this masturbating man, he loses his job, but it wasn't him.
+- And indeed, I don't think it was him, but regardless, just like the man pretending to wank, this man means me no harm, and I know it very well.
+- And at the same time, I'm aware that this whole business is some sort of ridiculous scam set up by my captors.
+- So I say a few words, tell him to get another job or something, and ask him to give me a lift down to the beach, which he does very obligingly.
+- I go into my massage and the women there look at me like they know who I am, and what's happened to me, and what they're continuing to do to me: sad and distressed, unable to speak about it.
 
 ### Second day
 
