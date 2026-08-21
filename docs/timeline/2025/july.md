@@ -98,7 +98,7 @@ function googleTranslateElementInit() {
 
 ![Baby Ram](../../content/images/baby-ram.png)
 
-- I have been thinking a lot about Ram's horns, and trumpet players who might be born in Spring, about Hanuman and his strength, and things like this, for some time, in a tearful way.
+- I have been thinking a lot about Ram's horns, and trumpet players who might be born in Spring, about Hanuman and his strength and devotion to Ram, and things like this, for some time, in a tearful way.
 - I remain stunned.
 - I visit the little Ram every day.
 - When I next return to Lourdes, the little Ram has gone.
