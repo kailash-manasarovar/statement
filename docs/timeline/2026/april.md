@@ -102,6 +102,7 @@ function googleTranslateElementInit() {
 
 - They're everywhere; and I do not get a good feeling from them at all.
 - Something's up and it bodes badly for me (and everyone actually, but they're not wise enough to see they're chasing after chaos).
+- Do you think, at a deeper level of the mind, the masses are so appalled that a rape-victim survived the porn-gangs, that they're compelled with a deep instinctive urge to destroy this (what they think is) unnatural wonder in their midst? It's actually as natural and as normal as it gets.
 
 ## Facebook shuts me down
 
