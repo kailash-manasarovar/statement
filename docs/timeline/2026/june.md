@@ -281,13 +281,13 @@ function googleTranslateElementInit() {
 - He's grinning inanely at me.
 - (Did Rohini lure him in? That was her story... after all...)
 - I carry on and take some photos of the full moon.
-- I can see a red panda face, or a raccoon, or perhaps a skunk very clearly cloud
+- I can see a red panda face, or a raccoon, or perhaps a skunk very clearly in the clouds.
 - Could it be an AI hack?
 
 ![Red panda pic](../../content/images/red-panda.png)
 
-- They really outdid themselves with this Elon.
-- I'm thinking, they've got a lookalike in to harass me and upset me... except none of it makes sense.
+- They really outdid themselves with this Elon-special.
+- For nearly two months, I'm thinking, they've gone and gotten a lookalike in to harass me and upset me... except none of it makes sense.
 - I can't imagine any reason for Elon to be present at the Holiday Inn Nusa Dua on 29th June 2026 and grin at me inanely.
 - Why would they set that up?
 - It makes much more sense in August 2026 after the [Loka Yoga debacle, psychological torture, and sedated surgeries](july.md#loka-yoga).
