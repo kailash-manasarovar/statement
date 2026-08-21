@@ -91,6 +91,20 @@ function googleTranslateElementInit() {
 ## Lourdes
 
 - I visit Lourdes.
+
+### The baby Ram
+
+- On my first walk around the sanctuary, I'm stunned to see a baby Ram with my favorite statue of Saint Bernadette.
+
+![Baby Ram](../../content/images/baby-ram.png)
+
+- I have been thinking a lot about Ram's horns, and trumpet players who might be born in Spring, about Hanuman and his strength, and things like this, for some time, in a tearful way.
+- I remain stunned.
+- I visit the little Ram every day.
+- When I next return to Lourdes, the little Ram has gone.
+
+### Poisoning ordered by the mousses
+
 - As I check into my hotel, the Arcades, two people walk past me after speaking with reception.
 - One of those people is the woman to the left of this pic.
 - She speaks perfect French to the receptionist.
@@ -139,7 +153,15 @@ function googleTranslateElementInit() {
     - I added the videos I did get to the repo:
         - [1](https://drive.google.com/file/d/1flFEbVj4ekoadj2ptsBCY2fn8fRb1xbq/view?usp=sharing) 
         - [2](https://drive.google.com/file/d/1ZdSf9KXYfJRfW4zpJ01d7vWHOIoamtoC/view?usp=sharing)
-        - [3](https://drive.google.com/file/d/1hZvMgg0z0DzZbERC9se5HlvDEzWi5AUt/view?usp=sharing)  
+        - [3](https://drive.google.com/file/d/1hZvMgg0z0DzZbERC9se5HlvDEzWi5AUt/view?usp=sharing)
+
+### Saint Anne & Saint Joachim's feast day
+
+- On my last day's service, I attend mass.
+- It's Saint Anne and Saint Joachim's feast day.
+- They are Mother Mary's parents and they had her very late on in life; they were elderly even.
+- I'm comforted to read that she was looked after by the widows in the temple.
+- It's a really good service and I very much enjoy the sermon given by a priest who is unusually sane in this crazy world of transvestite nuns.
 
 ### Spy cam
 
