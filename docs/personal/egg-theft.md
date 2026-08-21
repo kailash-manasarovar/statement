@@ -19,7 +19,7 @@ function googleTranslateElementInit() {
 
 1. It's a motive as far from God as you could imagine; behavior utterly devoid of God. And that's why they will not prevail.
 2. They can't really believe God's gifts - freely given *only after* years of fervent prayer, meditation, spiritual study, and following His Instructions no matter how harsh - get passed down to offspring with fathers obsessed with criminal porn; that's too ridiculous even for a mad person. I think they thought rather unGodly Steve *gave* it to me! They're that mad! The thought that having made it here, I might be in the best position to help other join me never crossed their tiny minds. These people need our help and probably shouldn't be parents of any offspring they're so crazy.
-3. So we're only left with *trophy*; trophies from the most famous sedated-rape porn star. renowned all over the world. The concomitant expectations for any children born for this reason are too hideous to imagine. It's almost like the bible itself is coming true right before our eyes.
+3. So we're only left with *trophy*; trophies from the most famous sedated-rape porn star, renowned all over the world. The concomitant expectations for any children born for this reason are too hideous to imagine. It's almost like bible prophecies are coming true right before our eyes, and not the good bits, yet.
 
 ## Pregnancies nearly full term
 
@@ -94,11 +94,6 @@ function googleTranslateElementInit() {
 - My guess the second two weeks of Bali is when they planned to put me on ice, as it were, and my senses telling me to pack and leave were life saving.
 - I've said it before, and I will say it again and again.
 - I may have been raped a thousand times by a thousand men while sedated - and remaining celibate - but this is infinitely more violating and I believe the whole world will agree with me.
-
-## Please God let me be free of this hell and these demons
-
-- Please God, let it be over.
-- I'm so ready for this to be over now.
 
 ## Did they auction my eggs off?
 
