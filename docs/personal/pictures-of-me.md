@@ -1,5 +1,13 @@
 # Dear offspring
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 - Hi.
 - I'm your mother.
 - Your parents are robbers and thieves, they stole you from me in a most violent manner and I hope they have not treated you similarly.
