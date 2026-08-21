@@ -373,7 +373,7 @@ function googleTranslateElementInit() {
 - Extraordinary.
 - What TIME WASTERS!!
 - It takes a long time to figure out why they would bother distracting me endlessly like this.
-- My widowhood continues.
+- My widowhood continues; one criminal gang seamlessly taking the place of another.
 
 ### They tell me about Chris Ludwick's excel porn database
 
@@ -383,8 +383,8 @@ function googleTranslateElementInit() {
 ### They're sure to tell me they know everything about me
 
 - Another conversation after class, another confirmation they know everything about me.
-- They would repeat my sentences verbatim back at me from blogs I wrote in 2013, ideas from my books, for example.
-- Another one was I have an unusual injury in my solar plexus region which I have noticed for some years during yoga in certain poses.
+- They would repeat my sentences verbatim back at me from blogs I wrote in 2013, ideas from my books, conversations I've had online with the gypsies, for example.
+- Another attempt at triggering me was by mentioning an unusual injury I have in my solar plexus region which I have noticed for over a decade while doing certain yoga poses.
 - Oh, I was talking about something completely different, liver inflammation, and she starts talking about the funny pain in her solar plexus region (verbatim) she's had for years that only happens in certain poses.
 - This must really freak people out who are not expecting it. 
 - Do they think they can control people like this?
@@ -393,7 +393,9 @@ function googleTranslateElementInit() {
 
 ### Yet another (fake) bridge collapses, again
 
-- The way they set things up to make me believe I was going to be taken to safety is criminal, oh wait, yeah sorry forgot. It's what they do.
+- The way they set things up to make me believe I was going to be taken to safety while they subjected me to internal invasive surgeries while sedated is criminal, oh wait, yeah sorry forgot...
+- It's what they do.
+- I think they're twinned with the porn-gangs of Dénia.
 - What is the airspeed velocity of a coconut-laden scanning swallow?
 
 ![The bridge of death](../../content/images/coconut-answered-king-arthur.webp)
