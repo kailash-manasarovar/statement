@@ -348,6 +348,7 @@ function googleTranslateElementInit() {
 - Eventually, they show me a still with the details shadowed out.
 - I can see it's definitely me, however.
 - I'm naked and apparently sitting up, although the camera man could be taking the photo from above, I guess, while my head is propped up on a pillow.
+- Incidentally, my silhouetted head is exactly the same shape (maybe size too, I've got a big ole bonce) as General George Patton's, my ancestor (not yet confirmed but likely).
 - I'm looking down my naked body - I'm not sure if my eyes are open but I guess they will be as that's how [the Dénia gang's sedating substances function - see Zoe's daughter Yasmin in 2008](../2001-to-2010/2008.md#yasmin-falls-asleep-with-her-eyes-open).
 - Around my groin and genital area is the back of a man's head. You can see messy hair.
 - I try to figure out the date of this outrage but it's too difficult as my face is in shadow.
