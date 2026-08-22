@@ -291,6 +291,7 @@ function googleTranslateElementInit() {
 - The psychological nonsense went on all day; it was pretty intolerable except I had fallen in love with all of my classmates by then (from the morning classes) so it wasn't too bad.
 - It was funny though.
 - I'd be chatting to one of them, and they'd get a flea in their ear about something, and run off, or make excuses and stop the talk, or bring up something totally tangential for no reason.
+- I think management must have been worried about them loving me back, in case that messed with *finishing me off* a week or so later, amiright?, of course I am.
 - Or another would be told how to act with me, and sometimes it was so ridiculous I found it quite amusing.
 - They were taking roles, and swapping them, and I think even the dogs were trained to move away from me, and towards a pen clicking I believe.
 - One of them was pretending to be an Israeli on the bus, and asking me questions as if I was seeking asylum.
