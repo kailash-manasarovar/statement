@@ -292,13 +292,15 @@ function googleTranslateElementInit() {
 - It was funny though.
 - I'd be chatting to one of them, and they'd get a flea in their ear about something, and run off, or make excuses and stop the talk, or bring up something totally tangential for no reason.
 - I think management must have been worried about them loving me back, in case that messed with *finishing me off* a week or so later, amiright?, of course I am.
-- Or another would be told how to act with me, and sometimes it was so ridiculous I found it quite amusing.
+- One time, it was when I was describing to an American ex-military how I'm probably related to General George Patton (not confirmed yet) but sometimes I even look like him a bit. She disappeared in seconds, pretending to look at flowers.
+- Or another would be told how to act with me, and be a bit of a brute, and sometimes it was so ridiculous I found it quite amusing.
 - They were taking roles, and swapping them, and I think even the dogs were trained to move away from me, and towards a pen clicking I believe.
 - One of them was pretending to be an Israeli on the bus, and asking me questions as if I was seeking asylum.
 - Another was pretending to be a government official in charge of the "bridge". 
 - Another, Brit - who I have seen before and remembered where, then forgot, maybe at a retreat somewhere in the UK - was asking me about my intentions, would I ever come back to the UK, that sort of thing.
 - They were all actors.
 - It was total bananas.
+- And then they realized I knew exactly what was going on so they brought me in a tiny bit.
 - Anyway.
 - At lunch that day was (hint-suggest-nudge apparently) the important landowner in Bali who had known what had happened with Polygon at the Hyatt.
 - Did he organize Elon's visit that week?
