@@ -107,7 +107,7 @@ function googleTranslateElementInit() {
 - I expect they were planning on trying to make me look insane... compelled to make it worse for themselves of course.
 - Do you think this is what happens to shady groups like this with unlimited power and budget, and no true or loving goal; they lose their minds, behave outrageously, do more damage than good, the damage gets to extreme proportions which cannot be ignored anymore, and then something even more outrageous has to be done to deal with it, and they're so guilty about it all, they think involving everyone else will help them save face?
 - Seems likely.
-- I'm concerned for the safety of my children. What if they're in dangerous environments? What if the fact they're *cuckoos*, as it were, puts them at elevated risk of abuse?
+- I'm concerned for the safety of my children. What if they're in dangerous environments - let's assume any environment that can justify the abomination of desolation *is* a dangerous one? What if the fact the children are *cuckoos*, as it were, puts them at elevated risk of abuse?
 - For the last four or so years, I have been soaked in evil. Everywhere I turn there's evil, and not just a little bit, *masses* of unspeakable evil.
 - Again and again I ask, when does it end, how much are we supposed to endure of this, when do we get a break Father, thinking nothing can possibly top what I'm already dealing with...
 - And then it does.
