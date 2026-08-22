@@ -97,15 +97,21 @@ function googleTranslateElementInit() {
 - I've said it before, and I will say it again and again.
 - I may have been raped a thousand times by a thousand men while sedated - and remaining celibate - but this is infinitely more violating and I believe the whole world will agree with me.
 
-## The Abomination of Desolation in the Holy Place
+## Seeing the Abomination of Desolation in the Holy Place
 
 - They did didn't they.
 - It's the kind of thing they'd do.
 - Who gets paid, I wonder.
 - Bloody stupid idiots.
-- I expect they'll try and make me look insane now...
-- Do you think this is what happens to shady groups like this with unlimited power and budget, and no true or loving goal; they lose their minds, behave outrageously, do more damage than good, the damage gets to extreme proportions which cannot be ignored anymore, and then something even more outrageous has to be done to deal with it, and they're so guilty about it all, they think involving everyone else will help them save face? Seems likely.
-- For the last four or so years, I have been soaked in evil. Everywhere I turn, there's evil. Again and again I ask, when does it end, how much are we supposed to endure of this, when do we get a break Father, thinking nothing can top the current chapter.
-- And then it always does.
-- So what's next? I cannot imagine anything worse now. This really is .. there's no words for how abhorrent and abominable these events are.
+- How many? And where? I want to know everything and we will see what we should do. What God would have us do to fix this, to make it His.
+- I expect they were planning on trying to make me look insane... compelled to make it worse for themselves of course.
+- Do you think this is what happens to shady groups like this with unlimited power and budget, and no true or loving goal; they lose their minds, behave outrageously, do more damage than good, the damage gets to extreme proportions which cannot be ignored anymore, and then something even more outrageous has to be done to deal with it, and they're so guilty about it all, they think involving everyone else will help them save face?
+- Seems likely.
+- I'm concerned for the safety of my children. What if they're in dangerous environments? What if the fact they're *cuckoos*, as it were, puts them at elevated risk of abuse?
+- For the last four or so years, I have been soaked in evil. Everywhere I turn there's evil, and not just a little bit, *masses* of unspeakable evil.
+- Again and again I ask, when does it end, how much are we supposed to endure of this, when do we get a break Father, thinking nothing can possibly top what I'm already dealing with...
+- And then it does.
+- So what's next? I cannot imagine there could be anything worse now. This really is .. there's no words for how abhorrent and abominable these mad choices people thought justifiable are.
 - The champion of champions' abomination of desolation, by far.
+- And, this hidden evil started to bubble up towards the light last week (time of writing 22nd August 2026) when one morning, inexplicably and unusual for me I became full of sorrow, down in my stomach, and I cried at the juice bar. There was a woman beside me, she was either very pregnant or holding a tiny baby, and there was a small brother, Michael, and the woman was ashamed, and tears started to role down my face... and I couldn't understand it, it didn't make sense, but the truth was rolling in.
+- I had seen the abomination of desolation in the holy place.
