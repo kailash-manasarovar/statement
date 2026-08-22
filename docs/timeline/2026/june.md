@@ -219,6 +219,7 @@ function googleTranslateElementInit() {
 ![Bye bye Evilon](../../content/images/bye-bye-evilon.png)
 
 - I'll get back to work now but this has been fun, and I needed some.
+- Oh, and not to forget to stress how Rohini was a lure, and someone wasn't paying attention.
 
 ## Dreams
 
