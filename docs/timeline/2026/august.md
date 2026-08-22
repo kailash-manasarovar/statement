@@ -97,3 +97,24 @@ function googleTranslateElementInit() {
 - Well done everyone!
 
 ![A lion and her cubs](../../content/images/a-lion-and-her-cubs.png)
+
+## On the plus side, my love
+
+- Given the mousses' utter horror with what God sent; us detestable, loathsome, bothersome people...
+- Me with the multiple and ever growing examples of their scheming, muck-raking, and shamefulness that I have detailed in this police statement.
+- And you with your one, giant, cataclysmic, tipping-the-earth-on-its-axis example.
+- They decided they would cancel God Himself.
+- The mousses brought you here, didn't they; probably in one of those UN helicopters with the two propellers they're so obsessed with.
+- And the mousses took sperm from you too, didn't they.
+- Because they do whatever they like while walking over everyone's backs like we're roads.
+- But, of course, all this means is that we have children, already!
+- And I believe it's three, just like my dreams and our prayers over my tortured mourning.
+- And yes, today I break forth into joyful shouting and cry aloud!
+
+### And as for your heart, my love
+
+- Know that you and I agreed to all of this a long, long time ago, for someone we loved dearly, and for God.
+- So don't worry about the recent past *chipshop*.
+- There's work to be done.
+
+![Holding hands](../../content/images/holding-hands.png)
