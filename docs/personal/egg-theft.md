@@ -107,11 +107,16 @@ function googleTranslateElementInit() {
 - I expect they were planning on trying to make me look insane... compelled to make it worse for themselves of course.
 - Do you think this is what happens to shady groups like this with unlimited power and budget, and no true or loving goal; they lose their minds, behave outrageously, do more damage than good, the damage gets to extreme proportions which cannot be ignored anymore, and then something even more outrageous has to be done to deal with it, and they're so guilty about it all, they think involving everyone else will help them save face?
 - Seems likely.
-- I'm concerned for the safety of my children. What if they're in dangerous environments - let's assume any environment that can justify the abomination of desolation *is* a dangerous one? What if the fact the children are *cuckoos*, as it were, puts them at elevated risk of abuse?
-- For the last four or so years, I have been soaked in evil. Everywhere I turn there's evil, and not just a little bit, *masses* of unspeakable evil.
+- I'm concerned for the safety of my children. What if they're in dangerous environments? 
+- Let's assume that any environment that sees a child like a hunters trophy, its mother a leprous vile and unhuman *thing*, and can justify the abomination of desolation on anyone for any reason at all *is* a dangerous one. 
+- Will the fact the children are *cuckoos*, as it were, put them at elevated risk of abuse?
+- What exactly was these people's end goal here? Undoubtedly an insane one, but I'd like to hear it nonetheless. I wonder if their tongues might rot in their mouths as they speak it.
+- Am I still understating the matter?
+- For the last four or so years, decades even, I have been soaked in evil with no support. Everywhere I turn there's evil, and not just a little bit, *masses* of unspeakable evil.
 - Again and again I ask, when does it end, how much are we supposed to endure of this, when do we get a break Father, thinking nothing can possibly top what I'm already dealing with...
 - And then it does.
+- Just like in Dénia, everyone must have received the memo about my assured murder, amiright, of course I am.
 - So what's next? I cannot imagine there could be anything worse now. This really is .. there's no words for how abhorrent and abominable these mad choices people thought justifiable are.
 - The champion of champions' abomination of desolation, by far.
-- And, this hidden evil started to bubble up towards the light last week (time of writing 22nd August 2026) when one morning, inexplicably and unusual for me I became full of sorrow, down in my stomach, and I cried at the juice bar. There was a woman beside me, she was either very pregnant or holding a tiny baby, and there was a small brother, Michael, and the woman was ashamed, and tears started to role down my face... and I couldn't understand it, it didn't make sense, but the truth was rolling in.
+- And, this hidden evil started to bubble up towards the light last week (time of writing 22nd August 2026) when one morning, inexplicable and unusual for me I became full of sorrow, down in my stomach heart and throat, and I cried at the juice bar. There was a woman beside me, she was either very pregnant or holding a tiny baby, and there was a small brother, Michael, and the woman was ashamed and red faced, and tears started to role down my face... and I couldn't understand it, it didn't make sense, but the truth was rolling in.
 - I had seen the abomination of desolation in the holy place.
