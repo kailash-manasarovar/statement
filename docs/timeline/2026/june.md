@@ -362,11 +362,12 @@ function googleTranslateElementInit() {
 
 ### Industrial-scale baby-theft
 
-- The baby-theft is obviously a running clandestine security program as it is, again just like in Dénia and Bali, a well-oiled machine.
+- The baby-theft is obviously a running clandestine security program as it is, again just like the sedated-and-rape processes in Dénia and Bali, a well-oiled machine.
 - There must be masses of salaried individuals from all over the world  ready to drop everything and race to the nearest CIA-HQ-cum-hotel to perform surgery on a sedated individual.
 - And - although I imagine they have numerous sick goals behind this evil - it totally explains their lookalike program which, I guess, they do relentlessly on a target so that when the real person turns up, the target doesn't believe it's them, such as with [Elon at the Holiday Inn in Bali, again, in June 2026](../2026/june.md#elon-is-at-the-hotel) who may have been at the Loka Yoga centre a week later for even more trophy hunting.
 - Who knows what else they're up to.
 - Perhaps they're trying to create a master race!
+- Well, we know what happened to the last idiots that tried such a thing; but not before they'd shocked the entire universe with what's possible when humans go totally insane with hatred en masse.
 
 ## Hastening home - lesson 226
 

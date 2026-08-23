@@ -103,6 +103,22 @@ function googleTranslateElementInit() {
 - I guess so.
 - I see the man a few days later, and he looks *completely* different and appears to be with a bunch of other Americans and his accent is nothing at all like Gabriel's, but he is definitely the same size, shape, and hair-color, the way they do.
 
+## Someone tells me to pack and puts at date and time in my Google calendar
+
+- I'm at the restaurant. 
+- A couple sits beside me talking loudly about how they had to do something related to leaving suddenly...
+- I'm in the massage parlour - no-one around remember cos they get businesses closed down - and a woman comes in and we're beside each other on the tables - 12 other empty tables - and she's saying she has to pack quickly, she's being picked up.. and other hints and suggestions.
+- I get back to my room and someone has ADDED a calendar entry to my Google calendar.
+- It says: Leaving at 2am.
+- I feel like this is a trick, but I'm not sure, how could I be sure about anything at that time, so reluctantly I pack, and wait, and no-one comes, and I'm not surprised.
+- I think the Americans are f*cking with me, or continually blocking me from getting safe.
+- I started to think about the Philip Seymour Hoffman film around this time due to this sort of thing, and felt like they wanted to "guantanimo" me, and that's why I canceled TT in January 2026 in Dublin.
+- I'm unsure why I signed up for it again in April 2026. What happened to change my mind.
+- I think it was probably because they started to communicate with me directly, pretending they were friends, but they had also tried to bully me - stopping payments via my phone app, this sort of thing.
+- I'm uncertain how I managed to change my mind...
+- I think I was under overwhelming stress, and my options had dwindled to zero in January 2025.
+- There was also a story to uncover.
+
 ## The cockney geezer with the emotionless young women
 
 - A cockney geezer is hanging out on Lamai beach every day.
