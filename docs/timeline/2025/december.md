@@ -103,7 +103,7 @@ function googleTranslateElementInit() {
 - I guess so.
 - I see the man a few days later, and he looks *completely* different and appears to be with a bunch of other Americans and his accent is nothing at all like Gabriel's, but he is definitely the same size, shape, and hair-color, the way they do.
 
-## Someone tells me to pack and puts at date and time in my Google calendar
+## Someone tells me to pack and puts a date and time in my Google calendar
 
 - I'm at the restaurant. 
 - A couple sits beside me talking loudly about how they had to do something related to leaving suddenly...
@@ -114,9 +114,9 @@ function googleTranslateElementInit() {
 - I think the Americans are f*cking with me, or continually blocking me from getting safe.
 - I started to think about the Philip Seymour Hoffman film around this time due to this sort of thing, and felt like they wanted to "guantanimo" me, and that's why I canceled TT in January 2026 in Dublin.
 - I'm unsure why I signed up for it again in April 2026. What happened to change my mind.
-- I think it was probably because they started to communicate with me directly, pretending they were friends, but they had also tried to bully me - stopping payments via my phone app, this sort of thing.
-- I'm uncertain how I managed to change my mind...
-- I think I was under overwhelming stress, and my options had dwindled to zero in January 2025.
+- I think it was probably because they started to communicate with me directly, pretending they were friends, but they had also tried to bully me in Thailand - stopping payments via my phone app, this sort of thing.
+- I'm uncertain how I managed to change my mind... perhaps I couldn't believe that Steve would have been wittingly involved in all this.. it's unclear.
+- I think I was under overwhelming stress, and my options had dwindled to zero by January 2026.
 - There was also a story to uncover.
 
 ## The cockney geezer with the emotionless young women
