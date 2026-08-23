@@ -58,8 +58,8 @@ my familiar voice, see the candle being lit,
 smell the incense, the surprise meal fixed
 by the lover inside all your other lovers.
 
-This heart-tumult is my signal
-to you igniting in the tomb.
+This heart-tumult is my signal (is that the tears?)
+to you igniting in the tomb (orgasming while unconscious?).
 
 So don't fuss with the shroud
 and the graveyard road dust.
