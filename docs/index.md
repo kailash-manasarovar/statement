@@ -456,6 +456,10 @@ This police statement is set out into different sections.
 - Part one, multi-universe romance [*Life Without The Liar by Margaret Murphy*](https://www.amazon.com/Life-Without-Liar-Margaret-Murphy-ebook/dp/B00M0CZN94), was inspired, I thought, by the need to heal myself from the 1989 North London rape-gang events.
 - However, again, themes and characters arising in this novel perhaps more closely reflect the sex crimes going on Dénia without my knowledge over many years and, without that context, I related everything to what I did know.
 
+### Unholy alliances
+
+- And now begin the unholy alliances which lead to the end of hell on earth.
+
 ### Contact me
 
 - Contact me for any further information you may require on the-chief-of-police@fearandloathinginlasmarinas.com.
