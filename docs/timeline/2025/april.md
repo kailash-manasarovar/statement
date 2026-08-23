@@ -240,7 +240,7 @@ function googleTranslateElementInit() {
 
 - In August 2026, I realize that this was a total scam to make me believe criminal gangs were continually either trying to murder me, or keep me drugged up.
 - No, these women - Adams's foot soldiers - were ordered by the CIA-baby-snatchers (who could have them in jail for eternity in an eye-blink) to do this so that I would have a reason to explain my high state of mind over the next weeks, months, until they got what they wanted from me and finished me off.
-- The Cambridge Ugly force was, in fact, order to do this for the preparation on the run up to the first [egg-theft surgery in Dublin](may.md#transforming-touch-intensive-in-dublin).
+- The Cambridge Ugly force was, in fact, ordered to do this for the preparation on the run up to the first [egg-theft surgery in Dublin](may.md#transforming-touch-intensive-in-dublin).
 - It was so obvious, I couldn't possibly mistake it as anything else but a poisoning or drugging attempt (once I'd figured it out, but I was so high throughout this period that even that took some time to clear up in my mind).
 - But I think the main reason for all this was to throw the whole Adams team under the bus when they eventually make some arrests for the sedate-and-rape porn epidemic, after murdering me, and after leaving a whole town's babies and children in peril for nearly three years now.
 - So, Adams, I think it's high time we set down our differences, don't you? For the bigger picture. What do you say?
