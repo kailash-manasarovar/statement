@@ -38,6 +38,37 @@ function googleTranslateElementInit() {
 - That night, I hear Mrs Wasserman's voice in the room.
 - I think they staged it through the iPhone.
 
+## No room for form - Rumi
+
+On the night when you cross the street
+From your shop and your house (chip shop, editing suite)
+To the cemetery (porn studio, makeshift operating theatre, storeroom of hydraulic acid)
+
+You’ll hear me hailing you from inside 
+The open grave, and you’ll realize
+How we’ve always been together.
+
+I am the clear consciousness-core
+Of your being, the same in
+Ecstasy as in self-hating fatigue.
+
+That night, when you escape your fear of snakebite (He's talking to me now)
+And all irritations with the ants, you’ll hear
+My familiar voice, see the candle being lit,
+Smell the incense, the surprise meal fixed
+By the lover inside all your other lovers.
+
+This heart tumult is my signal (I just had it)
+to you igniting in the tomb.
+So don’t fuss with the shroud
+And the graveyard dust.
+Those get ripped open and washed away
+In the music of our final meeting. (Job 33)
+
+And don’t look for me in human shape, (that's for brain-damaged me)
+I am inside your looking. No room
+For form with love this strong. 
+
 ## Thalazur Bandol
 
 - I stay a few days at the Thalazur Bandol before driving to Lourdes.
