@@ -505,12 +505,21 @@ function googleTranslateElementInit() {
 - But, curiously, they've brought thousands of Spanish along with them too - it's a last minute tour group of some variety.
 - Some of these are *obviously* embassy staff.
 - You see, you can tell hierarchies amongst groups in a flash if there's people everyone's scared of in there...
-- I make some joke about The Mayor of Shark City (it's been nearly three years they have refused to do anything for the babies and children of Denia now) which I'll add here shortly.
-- But it is weird alright.
-- Not only that, but they've added something to my constipation remedy which makes me constipated.
-- It's like they sprayed it with Immodium. 
-- I left the herbs there so we can confirm that.
-- Online, and in the corridor, they confirm it when I complain about it.
+- I make some joke about The Mayor of Shark City (it's been nearly three years they have refused to do anything for the babies and children of Denia now).
+
+![Mayor of Shark City](../../content/images/the-mayor-of-shark-city.png)
+
+- They're in the next rooms, the corridor, the Spanish have inhabited the whole floor around my room; just like every hotel I stay in these days.
+- Not only that, but they've added something to my constipation remedy which makes me constipated (just a small effect of living in an ongoing horror show which I had a really good remedy for that I needed only once-a-week).
+- It's like they sprayed the herbs with Immodium. 
+- Every time I take a herb, I get even more constipated.
+- What's interesting is that, I had the tub sitting on the shelf in my prison-cell, oh I mean holiday house, in Bali while in their clutches, and all these mosquitoes were sitting all over it. Nowhere else. Never happened before.
+- So I was thinking; they've done something to these haven't they.
+- I left the herbs for my friends, so we can confirm that.
+- But the mousses and their Spanish slaves, online and in the corridor, do confirm it when I complain about it online.
 - They despise me.
 - So what's going on exactly?
-- I'm soon to find out... one criminal gang has replaced another, but that was *years* ago, and it is likely that Inma and her pal Paloma, my friend from Madrid tasked with keeping tabs on me from way back in 2005, are working for the Americans.
+- I'm soon to find out... one criminal gang has replaced another, but that was *years* ago, and I'm nearly certain now that [Inma and her pal Paloma](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) - my friend from Madrid tasked with keeping tabs on me from way back in 2005 - are working for the Americans too.
+- Truth be told, if you're Spanish, you automatically work for the Americans; amiright? Of course I am.
+- So that's why no-one's been able to do a thing about the criminal sex-offending in Dénia and the public and government school systems of Spain.
+- ! WOW !
