@@ -205,7 +205,10 @@ I continue to walk with God.
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
-- I'm happy he's safe.
+- **UPDATE: This is incorrect.** Squirrel was brought here without his consent in a UN helicopter which everyone has photos of by the mousses who control the whole world.
+- I know that the Israelis would have granted him asylum if it wasn't for the mousses.
+- The mousses wanted his sperm, and my eggs, for their master race.
+- You cannot imagine how happy I am that he and I are safe in Israel now.
 
 ## From honey-traps to world domination
 
