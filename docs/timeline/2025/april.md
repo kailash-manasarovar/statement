@@ -171,7 +171,7 @@ function googleTranslateElementInit() {
 
 [![Man up the road in his front garden](../../content/images/the-man-in-his-front-garden.webp)](https://desocialworld.com/posts/24e84af5125cc2208f05a843d683213dca4f05c9b5f2d66fb194acca49e6dfb5?tab=posts)
 
-- The related bible chapter on DESO is [Ezekiel 31](https://desocialworld.com/posts/24e84af5125cc2208f05a843d683213dca4f05c9b5f2d66fb194acca49e6dfb5?tab=posts).
+- The related bible chapter on DESO is [Ezekiel 31](https://desocialworld.com/posts/24e84af5125cc2208f05a843d683213dca4f05c9b5f2d66fb194acca49e6dfb5?tab=posts) <!-- which i pulled again yesterday 22 August 2026 after asking "what's next Father?" -->.
 - I mention this on X at some point.
 - I think my laptop does something weird, crashes inexplicably maybe.
 - The next time I walk past this house, there's another man there, and he looks like Javier Bardem in his serial killer role.
@@ -180,7 +180,11 @@ function googleTranslateElementInit() {
 
 - I have no idea what any of this means.
 - I still don't but I suspect it's mousse activity.
-- I guess they were confirming that the trumpet-teacher gang (I still thought there was only one at this time) contains known serial killers. Tell us something we don't know!
+- I mean, who could evict a solid renter and install another one in a week (which is what happened).
+- Did they buy the property and kick him out, just like that?
+- Only the mousses have that sort of tread.
+- I guess they were trying to keep me distracted - this was *very important* to them.
+- So I thought they were confirming that the trumpet-teacher gang (I still thought there was only one at this time) contains known serial killers. Tell us something we don't know!
 - I'd better re-read the chapter now.. it's the one about the water I think, let's see... no, no, it's not the water one, it's the mighty empire crashing to the ground one.
 - Who's the other geezer, I wonder?
 
@@ -232,7 +236,16 @@ function googleTranslateElementInit() {
 - Why do we see so much criminal gang activity on X, and elsewhere, posing as friendly to the women's rights movement?
 - Is it an apocalyptic move from the porn-gangs to ensure no-one gets wind of what they've really been up to for nearly half a century, and how bad it has gotten?
 
-## *There's something in the water*
+### A set up by the industrial-scale baby-snatchers
+
+- In August 2026, I realize that this was a total scam to make me believe criminal gangs were continually either trying to murder me, or keep me drugged up.
+- No, these women - Adams's foot soldiers - were ordered by the CIA-baby-snatchers (who could have them in jail for eternity in an eye-blink) to do this so that I would have a reason to explain my high state of mind over the next weeks, months, until they got what they wanted from me and finished me off.
+- The Cambridge Ugly force was, in fact, order to do this for the preparation on the run up to the first [egg-theft surgery in Dublin](may.md#transforming-touch-intensive-in-dublin).
+- It was so obvious, I couldn't possibly mistake it as anything else but a poisoning or drugging attempt (once I'd figured it out, but I was so high throughout this period that even that took some time to clear up in my mind).
+- But I think the main reason for all this was to throw the whole Adams team under the bus when they eventually make some arrests for the sedate-and-rape porn epidemic, after murdering me, and after leaving a whole town's babies and children in peril for nearly three years now.
+- So, Adams, I think it's high time we set down our differences, don't you? For the bigger picture. What do you say?
+
+## There's something in the water
 
 - I take my father to play a jazz gig at the [Elephant Inn](https://www.elephantinnfinchley.co.uk/) in North Finchley.
 - After his fall, he remains pretty immobile, so we got a disabled-parking badge from Barnet council so I can park right outside the pub.
@@ -246,6 +259,11 @@ function googleTranslateElementInit() {
 - I recognize her because he showed me her picture on his phone and I saw her in the pub in Highgate too.
 - The jeering is, obviously, a sick reference to the poisoning and drugging at my Spanish apartment in Dénia through the water supply to the property.
 - My dad will remember this because he repeated her sing-song phrase quite often afterwards, in a thoughtful way.
+
+!!! danger "Message about recent updates (August 2026) for Lil' Lucy Adams"
+    - Hi Luce.
+    - Please do read the previous section very carefully, and let everyone know.
+    - Thanks love.
 
 ## Let Women Speak April
 
@@ -292,6 +310,11 @@ function googleTranslateElementInit() {
 - I assume those vested interests must be somehow protecting the pedophile rape gangs that stole my life from me and countless other women and girls, and men and boys too no doubt.
 - Sometimes, at Let Women Speak rallies, it feels like the only people there are spies. It's so nice it's all videoed for the record in perpetuity.
 - Women speaking you know, brrrrrrr... a silencing-budget of billions, signed off in a nano-second, no doubt.
+
+!!! danger "Hi Susan"
+    - Please do re-read the previous section, with additions.
+    - Oh and let everyone know too.
+    - Thank you.
 
 ## Ireland
 

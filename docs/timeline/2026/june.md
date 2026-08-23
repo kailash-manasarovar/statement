@@ -355,10 +355,18 @@ function googleTranslateElementInit() {
 - Another good question is that given the similarities between porn-gang and security service methods - *exactly* the same - I wonder if the porn-gangs are actually running the secret service systems too? Or maybe they build and manage their platforms. It would not surprise me.
 
 
-| Criminal gang type                            | Budget                                                     | Core process           | End goal                                                                                                     | Methods                                                                                      |
-|-----------------------------------------------|------------------------------------------------------------|------------------------|--------------------------------------------------------------------------------------------------------------|----------------------------------------------------------------------------------------------|
-| Porn gang                                     | €/£ Thousands - as little as possible, slave labour mostly | Violence and violation | Criminal porn production by any means necessary, always worsening in step with porn-addict appetites         | Sedation, drugging, poisoning, psychological torture, hacking, murder, serious sex offending |
-| Security services aka The Mayor of Shark City | $/£ Multi-millions, thousands of salaried individuals      | Violence and violation | Whatever they want, often nothing to do with security, mostly coming from insane logic based on core process | Sedation, drugging, poisoning, psychological torture, hacking, murder, clandestine surgeries |
+| Criminal gang type                            | Budget                                                     | Core process           | End goal                                                                                                     | Methods                                                                                      | Finest hour                 |
+|-----------------------------------------------|------------------------------------------------------------|------------------------|--------------------------------------------------------------------------------------------------------------|----------------------------------------------------------------------------------------------|-----------------------------|
+| Porn gang                                     | €/£ Thousands - as little as possible, slave labour mostly | Violence and violation | Criminal porn production by any means necessary, always worsening in step with porn-addict appetites         | Sedation, drugging, poisoning, psychological torture, hacking, murder, serious sex offending | Industrial-scale baby-rape  |
+| Security services aka The Mayor of Shark City | $/£ Multi-millions, thousands of salaried individuals      | Violence and violation | Whatever they want, often nothing to do with security, mostly coming from insane logic based on core process | Sedation, drugging, poisoning, psychological torture, hacking, murder, clandestine surgeries | Industrial-scale baby-theft |
+
+### Industrial-scale baby-theft
+
+- The baby-theft is obviously a running clandestine security program as it is, again just like in Dénia and Bali, a well-oiled machine.
+- There must be masses of salaried individuals from all over the world  ready to drop everything and race to the nearest CIA-HQ-cum-hotel to perform surgery on a sedated individual.
+- And - although I imagine they have numerous sick goals behind this evil - it totally explains their lookalike program which, I guess, they do relentlessly on a target so that when the real person turns up, the target doesn't believe it's them, such as with [Elon at the Holiday Inn in Bali, again, in June 2026](../2026/june.md#elon-is-at-the-hotel) who may have been at the Loka Yoga centre a week later for even more trophy hunting.
+- Who knows what else they're up to.
+- Perhaps they're trying to create a master race!
 
 ## Hastening home - lesson 226
 

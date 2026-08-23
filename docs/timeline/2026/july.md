@@ -499,11 +499,18 @@ function googleTranslateElementInit() {
 - I bet everyone has known for decades.
 - It's a lovely world we live in, isn't it!
 
-### Suggestion from the CoP
+## All over me like scabies at the Dan Panorama Jerusalem
 
-- Roll out my statement.
-- From here, mass testing by non-Spanish/non-porn-gang friendly agency of women, children, and babies in the entire Valencian region for poisons and sedating chemicals.
-- Further investigation on all positives.
-- For all poison and drug positives, close investigation for tampering at the mains public water connection to the properties they live in.
-- Also close inspection of the property's furniture, walls, ceilings etc, anywhere a spy-cam could be installed, and inspection of all ventilation systems for evidence of sedating gas technology.
-- ISPs may have evidence of routers installed by neighboring properties for the sole purpose of running 24-7 spy-cam networks.
+- The Americans are there pretty much immediately; ice-cold women who I have no doubt would murder me in an eye-blink and really, *really*, want to.
+- But, curiously, they've brought thousands of Spanish along with them too - it's a last minute tour group of some variety.
+- Some of these are *obviously* embassy staff.
+- You see, you can tell hierarchies amongst groups in a flash if there's people everyone's scared of in there...
+- I make some joke about The Mayor of Shark City (it's been nearly three years they have refused to do anything for the babies and children of Denia now) which I'll add here shortly.
+- But it is weird alright.
+- Not only that, but they've added something to my constipation remedy which makes me constipated.
+- It's like they sprayed it with Immodium. 
+- I left the herbs there so we can confirm that.
+- Online, and in the corridor, they confirm it when I complain about it.
+- They despise me.
+- So what's going on exactly?
+- I'm soon to find out... one criminal gang has replaced another, but that was *years* ago, and it is likely that Inma and her pal Paloma, my friend from Madrid tasked with keeping tabs on me from way back in 2005, are working for the Americans.
