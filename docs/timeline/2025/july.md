@@ -329,21 +329,22 @@ function googleTranslateElementInit() {
 
 ## Everything changes
 
-- I won't realize until August 2026, but this marks the moment that criminal gangs are officially replaced by security services.
-- I do notice something has changed, but it's not clear to me in my drugged (and constant medical recovery state - pain killers was it?) state exactly what or why.
-- In fact, I've been so effectively drugged during this time, I don't realize that the constant agent activity around me since July 2025 is not about law-enforcement bringing down the largest international criminal gang ever known.
+- I won't realize until August 2026, but this marks the moment that criminal gangs are *officially* replaced by security services.
+- I do notice something has changed, but it's not clear to me in my drugged (constant invasive-surgery recovery - pain killers was it?) state exactly what or why.
+- In fact, I've been so effectively drugged during this time, I don't realize that the constant agent activity around me since July 2025 is not about law-enforcement bringing down the largest international criminal gang ever known at all.
 - No, it's all about stealing a *superhero's* eggs, and not helping me at all. They don't care if I die, and my guess is they're hoping that one of their attempts at murdering me will eventually work.
 - I won't know any of this till August 2026.
 - Up until then, I am stalked relentlessly by security services that seem desperate to bite chunks out of me.
 - They make a few more attempts at murder; including [a really good try in Tibet in June](../2026/june.md#everest-base-camp-and-sickness).
 - I survive.
-- Agent numbers increase exponentially after each failed attempt, and I'd put money on only ever meeting agents or bought locals.
-- In total, I'm told they tried to murder me with poison seven times and stole countless eggs in a similar number of sedated internal operations which left me injured and totally without help.
-- In July 2025, I can see that the blatant sex offending, pedophilia, serial-killing, and industrial scale baby-rape in Spain continues unabated, and I find this weird but assume - like normal private tax-paying citizens do - that international police and governments a very good reason for the inactivity.
-- In August 2026, I realize with horror that not only have they been allowing the baby-rape to continue unabated, they have also been sedating me and performing internal invasive operations while I'm sedated since [May 2025 in Dublin](may.md#transforming-touch-intensive-in-dublin), but for even more sinister purposes than rape-porn.
+- Agent numbers increase exponentially after each failed attempt, and now I rarely meet people who aren't agents or bought locals.
+- In total, I'm told they tried to murder me with poison seven times and stole countless eggs in a similar number of sedated internal operations which left me injured and totally without help or support.
+- In July 2025, I can see that the blatant sex offending, pedophilia, serial-killing, and industrial scale baby-rape in Spain continues unabated, and I find this weird but assume - like a  normal private tax-paying citizen would in this unique situation - that international police and governments have a very good reason for the inactivity.
+- They do, but it's never the reason we naively believe we would pay for.
+- In August 2026, I realize with horror that not only have they been allowing the baby-rape to continue unabated, they have also been sedating me and performing internal invasive operations while I'm sedated since [May 2025 in Dublin](may.md#transforming-touch-intensive-in-dublin) for even more sinister purposes than rape-porn.
 - They want my eggs, they think they can create humans who survive poisoning.
 - They're insane. It's a gift from God and He decides who gets it and why.
-- It's His Pla and He can take it away whenever He likes too - a short review of the bible will confirm all this.
+- It's His Plan and He can take it away whenever He likes too - a short review of the bible will confirm all this, and what happens to those who lose their minds to power, influence, wealth, and evil.
 - If one needed more confirmation, any incorruptible religious person from any of the religions in the world will also confirm it.
 - I guess they didn't bother asking anyone; it is such a sickening move, they would have made sure never to mention it in incorruptible circles.
 
@@ -358,7 +359,7 @@ function googleTranslateElementInit() {
 - There must be masses of salaried individuals from all over the world  ready to drop everything and race to the nearest CIA-HQ-cum-hotel to perform surgery on a sedated individual.
 - And - although I imagine they have numerous sick goals behind this evil - it totally explains their lookalike program which, I guess, they do relentlessly on a target so that when the real person turns up, the target doesn't believe it's them, such as with [Elon at the Holiday Inn in Bali, again, in June 2026](../2026/june.md#elon-is-at-the-hotel) who may have been at the Loka Yoga centre a week later for even more trophy hunting.
 - Who knows what else they're up to.
-- Perhaps they're trying to create a master race!
+- Perhaps they're trying to create a master race! That's it, isn't it!
 
 ## More threats
 
