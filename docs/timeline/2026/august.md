@@ -124,6 +124,6 @@ function googleTranslateElementInit() {
 - Languishing in a mousse-controlled jail somewhere in the North of Israel, squirrel wonders when he will see his love again.
 - It's amazing how the teeniest tiniest weeniest little bit of applied shame changes everything, doesn't it.
 - His story will be far more powerful than mine ever was; indeed, he knew *everything* I fought for my life to find out over the last few years already.
-- So what motivated him, what did God do that made us the most unusual team in history?
+- So what motivated him, what did God do that made us the most unusual world-saving duo in history?
 - What is [God retelling through Rumi](march.md#no-room-for-form-rumi) thousands of years ago?
 - It's time we found out.
