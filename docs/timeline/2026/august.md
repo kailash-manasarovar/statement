@@ -127,3 +127,4 @@ function googleTranslateElementInit() {
 - So what motivated him, what did God do that made us the most unusual world-saving duo in history?
 - What is [God retelling through Rumi](march.md#no-room-for-form-rumi) thousands of years ago?
 - It's time we found out.
+- Bytheway, the mountain was at the Wall today.
