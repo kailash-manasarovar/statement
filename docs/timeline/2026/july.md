@@ -509,7 +509,7 @@ function googleTranslateElementInit() {
 
 ![Mayor of Shark City](../../content/images/the-mayor-of-shark-city.png)
 
-- They're in the next rooms, the corridor, the Spanish have inhabited the whole floor around my room; just like every hotel I stay in these days.
+- They're in the next rooms, the corridor, the Spanish agents and embassy staff have inhabited the whole floor around my room; just like every hotel I stay in these days in packed with agents.
 - Not only that, but they've added something to my constipation remedy which makes me constipated (just a small effect of living in an ongoing horror show which I had a really good remedy for that I needed only once-a-week).
 - It's like they sprayed the herbs with Immodium. 
 - Every time I take a herb, I get even more constipated.
