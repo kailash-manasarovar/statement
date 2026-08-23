@@ -10,6 +10,10 @@ function googleTranslateElementInit() {
 
 ## A (fake) bridge collapses
 
+- All of it, mousse distraction; they literally took over the whole island with thousands of operatives, putting small business out of regular income.
+- All the criminals cowering.
+- Getting the local constabulary and locals to pretend to me I was in constant danger.
+- Theatrical house-arrest total!
 - What is your quest?
 
 ![The bridge of death](../../content/images/bridge-of-death.jpg)
