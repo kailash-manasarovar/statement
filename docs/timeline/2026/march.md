@@ -39,35 +39,51 @@ function googleTranslateElementInit() {
 - I think they staged it through the iPhone.
 
 ## No room for form - Rumi
-
+<i>
 On the night when you cross the street
-From your shop and your house (chip shop, editing suite)
-To the cemetery (porn studio, makeshift operating theatre, storeroom of hydraulic acid)
+from your shop and your house
+to the cemetery,
 
-You’ll hear me hailing you from inside 
-The open grave, and you’ll realize
-How we’ve always been together.
+you'll hear me hailing you from inside
+the open grave, and you'll realize
+how we've always been together.
 
 I am the clear consciousness-core
-Of your being, the same in
-Ecstasy as in self-hating fatigue.
+of your being, the same in
+ecstasy as in self-hating fatigue.
 
-That night, when you escape your fear of snakebite (He's talking to me now)
-And all irritations with the ants, you’ll hear
-My familiar voice, see the candle being lit,
-Smell the incense, the surprise meal fixed
-By the lover inside all your other lovers.
+That night, when you escape the fear of snakebite
+and all irritation with the ants, you'll hear
+my familiar voice, see the candle being lit,
+smell the incense, the surprise meal fixed
+by the lover inside all your other lovers.
 
-This heart tumult is my signal (I just had it)
+This heart-tumult is my signal
 to you igniting in the tomb.
-So don’t fuss with the shroud
-And the graveyard dust.
-Those get ripped open and washed away
-In the music of our final meeting. (Job 33)
 
-And don’t look for me in human shape, (that's for brain-damaged me)
+So don't fuss with the shroud
+and the graveyard road dust.
+
+Those get ripped open and washed away
+in the music of our finally meeting.
+
+And don't look for me in a human shape.
 I am inside your looking. No room
-For form with love this strong. 
+for form with love this strong.
+
+Beat the drum and let the poets speak.
+This is a day of purification for those who
+are already mature and initiated into what love is.
+
+No need to wait until we die!
+There's more to want here than money
+and being famous and bites of roasted meat.
+
+Now, what shall we call this new sort of gazing-house
+that has opened in our town where people sit
+quietly and pour out their glancing
+like light, like answering?
+</i>
 
 ## Thalazur Bandol
 
