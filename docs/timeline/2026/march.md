@@ -77,7 +77,7 @@ are already mature and initiated into what love is.
 
 No need to wait until we die!
 There's more to want here than money
-and being famous and bites of roasted meat.
+and being famous and bites of roasted meat (me munching on the mousses :DDDDD).
 
 Now, what shall we call this new sort of gazing-house
 that has opened in our town where people sit
