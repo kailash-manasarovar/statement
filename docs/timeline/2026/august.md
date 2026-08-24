@@ -135,7 +135,8 @@ function googleTranslateElementInit() {
 ## Call social security
 
 - I recommend that all offspring are located and brought by respective social security organizations to a safe environment as soon as is reasonably possible.
-- From there, squirrel and I will help find loving and deserving families to look after the children with random fathers.
-- I will maintain some involvement in these children's lives but not in an oppressive way. 
-- Squirrel and I will take our own biological children as soon as is reasonably possible.
-- If any of the people that were capable of justifying such evil complain, they should remember well that stolen children *will* be despised by the families that stole them, and any psychologist or psychotherapist worth his license can confirm.
+- From there, squirrel and I will help find loving and deserving families to look after the children having random biological fathers.
+- I will maintain some involvement in these children's lives but not at all in an oppressive way.
+- I will be harmless and helpful <3 
+- Squirrel and I will take our own biological children back as soon as is reasonably possible.
+- If, due to arrogance and lack of wisdom, any of the people that were capable of justifying such evil complain, they should remember well that stolen children are always despised by the families that stole them, and any psychologist or psychotherapist worth his license can confirm.
