@@ -127,3 +127,5 @@ function googleTranslateElementInit() {
 - So what motivated him, what did God do that made us the most unusual world-saving duo in history?
 - What is [God retelling through Rumi](march.md#no-room-for-form-rumi) thousands of years ago?
 - It's time we found out.
+- But really, the most worrying thing about all this new information is that the *powers-that-be* (Tyre, Egypt, Rome, etc.) have known about - and have never had any intention of stopping - the mass pedophilia and baby-rape machine that has seeped into the school and education systems of Spain, and Spanish hands are completely tied.
+- Why?
