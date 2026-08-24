@@ -85,6 +85,8 @@ quietly and pour out their glancing
 like light, like answering?
 </i>
 
+- Was this us too, my love?
+
 ## Thalazur Bandol
 
 - I stay a few days at the Thalazur Bandol before driving to Lourdes.
