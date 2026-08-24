@@ -40,9 +40,9 @@ function googleTranslateElementInit() {
 
 ## Sadhvi Bhagawati Saraswati's shawl
 
-- The pattern on the brown shawl looks like the image I saw close to the holy of holies in August 2025 with Alma.
+- The pattern on the brown shawl looks like the image I saw at [the holy of holies in August 2025](../2025/august.md#alma-and-i-go-to-the-tunnels) with Alma.
 - I'm amazed.
-- I've no idea what this means, but it might explain why I couldn't leave the darshan garden for ages and just stood there while everyone left.
+- I've no idea what this means, but it might explain why I couldn't leave the darshan garden for ages, and just stood there while everyone left.
 
 ## No room for form - Rumi
 <i>
