@@ -97,15 +97,18 @@ function googleTranslateElementInit() {
 
 ### They're putting ideas in my head
 
-- Sick ideas they want me to write about and get killed for doing so.
-- I don't.
-- Ideas orthogonal to the one they never want me to think about.
-- The whole intensive I only thought of one very famous person everyone knows, constantly.
-- It was so strange, I couldn't fathom it out.
-- But I knew enough to know that this was not an Instruction.
+- I start thinking of a person over and over.
+- He's a very famous person, that everyone in the world knows, and I had him in my head the whole course. It was bizarre.
+- I believe this is squirrel's matter, and they were trying to get me to write about it so that I would be murdered instantaneously.
+- There is no other reason for it that I can think of, and they had gotten what they wanted already.
+- If I'm right about what it was, then they're happy to throw anyone and everyone under the bus, no matter how big or loyal they're supposed to be to that person.
+- Steve even mentioned him out loud at lunch one day in a context which was supposed to trigger something in me - it's not clear if they're able to prompt him without his knowledge to say things like this, I think they do.
+- It was so strange at the time, I couldn't fathom it out.
+- But I knew enough to know that this was certainly not an Instruction from Himself.
 - Is that the true nature of the *intensives*?
-- I didn't know this at the time, but I kept have these bizarre thoughts throughout the course, and something stronger telling me to note it and not to worry about it.
-- It all clicked into place in [Bali in July 2026](../2026/july.md#loka-yoga) on the CIA psychological-torture intensive which also had very little effect on me and, I think now, rather helped me enormously.
+- I didn't know they could do this to unwitting intuitives but I guess it makes sense.
+- I kept having these bizarre thoughts throughout the course, and always something much stronger telling me just to note it and not to worry about it. That it is *not* our business.
+- It all clicked into place in [Bali in July 2026](../2026/july.md#loka-yoga) on the CIA psychological-torture intensive which had very little detrimental effect on me and, I think now, rather helped me enormously.
 
 ### Steve says he doesn't know when the courses are scheduled
 
