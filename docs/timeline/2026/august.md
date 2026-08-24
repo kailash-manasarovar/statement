@@ -123,11 +123,11 @@ function googleTranslateElementInit() {
 
 - Languishing in a mousse-controlled jail somewhere in the North of Israel, squirrel wonders when he will see his love again.
 - It's amazing how the teeniest tiniest weeniest little bit of applied shame changes everything, doesn't it.
-- His story will be far more powerful than mine ever was; indeed, he knew *everything* I fought for my life to find out over the last few years already.
+- His story will be far more powerful than mine ever was; indeed, he already knew *everything* I've been fighting for my life to find out over the last few years.
 - So what motivated him, what did God do that made us the most unusual world-saving duo in history?
-- What is [God retelling through Rumi](march.md#no-room-for-form-rumi) nearly a thousand years ago?
+- What is [God retelling us through Rumi](march.md#no-room-for-form-rumi) nearly a thousand years ago?
 - It's time we found out.
-- But really, the most worrying thing about all this new information is that the *powers-that-be* (Tyre, Assyria, Egypt, Rome, etc.) have always known about - and have never had any intention of stopping - the mass pedophilia and baby-rape machine that has seeped into the school and education systems of Spain, while blocking the Spanish from doing anything to help their own children.
+- But really, the most worrying thing about all this new information is that the *powers-that-be* (Tyre, Assyria, Egypt, Rome, etc.) have always known about - and have never had any intention of stopping - the mass pedophilia and baby-rape machine that has seeped into the school and education systems of Spain, while blocking the Spanish from saving their own children.
 - Why?
 - How could Topheth expand to all four corners of the earth?
 - Answer: when Caesar normalizes sacrificing children, the unwise amongst his subjects will follow suit.
