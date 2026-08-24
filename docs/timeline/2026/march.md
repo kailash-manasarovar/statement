@@ -40,6 +40,7 @@ function googleTranslateElementInit() {
 
 ### Sadhvi Bhagawati Saraswati's shawl
 
+- It's a gift presented to her by some Indian people at darshan one afternoon.
 - The pattern on the brown shawl looks like the image I saw at [the holy of holies in August 2025](../2025/august.md#alma-and-i-go-to-the-tunnels) with Alma.
 - I'm amazed.
 - I've no idea what this means, but it might explain why I couldn't leave the darshan garden for ages, and just stood there while everyone left.
