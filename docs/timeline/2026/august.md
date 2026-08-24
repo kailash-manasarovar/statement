@@ -127,5 +127,6 @@ function googleTranslateElementInit() {
 - So what motivated him, what did God do that made us the most unusual world-saving duo in history?
 - What is [God retelling through Rumi](march.md#no-room-for-form-rumi) nearly a thousand years ago?
 - It's time we found out.
-- But really, the most worrying thing about all this new information is that the *powers-that-be* (Tyre, Egypt, Rome, etc.) have always known about - and have never had any intention of stopping - the mass pedophilia and baby-rape machine that has seeped into the school and education systems of Spain, while blocking the Spanish from doing anything to help their own children.
+- But really, the most worrying thing about all this new information is that the *powers-that-be* (Tyre, Assyria, Egypt, Rome, etc.) have always known about - and have never had any intention of stopping - the mass pedophilia and baby-rape machine that has seeped into the school and education systems of Spain, while blocking the Spanish from doing anything to help their own children.
 - Why?
+- How did Topheth expand to all four corners of the earth?
