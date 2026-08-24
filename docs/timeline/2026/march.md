@@ -38,6 +38,12 @@ function googleTranslateElementInit() {
 - That night, I hear Mrs Wasserman's voice in the room.
 - I think they staged it through the iPhone.
 
+## Sadhvi Bhagawati Saraswati's shawl
+
+- The pattern on the brown shawl looks like the image I saw close to the holy of holies in August 2025 with Alma.
+- I'm amazed.
+- I've no idea what this means, but it might explain why I couldn't leave the darshan garden for ages and just stood there while everyone left.
+
 ## No room for form - Rumi
 <i>
 On the night when you cross the street

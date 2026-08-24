@@ -188,19 +188,61 @@ function googleTranslateElementInit() {
 
 ## Israel TT
 
-### A woman in Israel reacts normally to my story
-
 - I attend a Transforming Touch course in Israel where I'm assisting.
-- At one point, a woman and I are chatting in the kitchen, it's a break time, and she just so happens to ask me about my life and how I am, what's going on.
-- And I tell her.
-- I've no reason to lie.
-- She's horrified.
-- In fact, I really upset her with my story and she has to take time out.
-- I'm amazed because for the first time someone has reacted normally to what's going on for me.
-- I'm normally surrounded by totally unhelpful people, all the time, and it is somewhat inexplicable to me.
-- Her reaction is so powerful, it prompts me to write again to the police and the Baroness when I'm on detox in a few weeks time in Devon.
-- The second time someone reacts normally is in April 2026 on another TT course I'm attending as a student in Dublin.
+- wip.
+
+### Steve gets upset with me
+
+- wip, he's angry at me because of what I said regarding [political views](#stopping-the-intolerable-political-diatribes-at-break-times) in Dublin.
+- But, he's laying into me all day.
+- On the way back to our hotel one day, Mrs Wasserman, Steve and I are walking and he says something political again, and I say something back.. maybe about suicidal empathy, not sure, and he goes ballistic and walks off.
+- Mrs Wasserman and I are dumbfounded!
+
+### Mrs Wasserman puts up her hands and tells me to stop talking
+
+- We're sitting next to the Spanish house, wondering what happened.
+- I'm explaining a little bit about how I worry that people who think that sterilizing children is OK are working with children, and it's child abuse, and I'm worried about Steve getting in trouble.
+- I tell her it's child abuse, and there's *always* a time limit on that.
+- She doesn't disagree.
+- In context with our chat, I start to tell her about how I fought the Spanish porn-gangs, etc, etc...
+- And she shouts *STOP* and puts her hand up.
+- "Don't speak", she says.
+- So we talk a bit again, and I have to explain some of the things that have been going on as part of the chat, and she reacts in exactly the same way.
+- She says: *because of the work we're doing, I'm very sensitive, and it's too much*... I hadn't told her anything, did she know already what I was going to say?
+- So I sigh - I'm used to this bizarre indifference to absolute horror - and instead I try to tell her what I want to say another way without provoking her alarm.
+- So I tell her that "because of the things that have been happening to me over the last few years", without giving any examples, "I'm very confident about the future and doing something about child abuse".
+- Mrs Wasserman tells me she's going to speak to Steve.
+
+### Steve's suddenly inexplicably OK
+
+- The next time I see Steve, it's like nothing happened.
+- I ask Mrs Wasserman what happened when she spoke to him.
+- She said she didn't say anything to him, he was just OK, and she didn't know why or how.
+
+### Alma
+
+- The following day, at lunch, I'm chatting in the kitchen with a woman called Alma.
+- She asks me about my life.
+- I tell her what's been going on for me.
+- She is utterly horrified, I see tears in her eyes.
+- She's determined to help me, *you must be able to do something*, she's really upset.
+- I'm amazed, because this is the first time ANYONE! has reacted normally to what's been going on for me.
+- I'm normally surrounded by totally unhelpful people, all the time, and it was somewhat inexplicable to me until I realized they are either spies with a remit to not care about me, or are involved somehow and hiding something.
+- Her reaction is so powerful, and so healing to me, it prompts me to write again to the police and the Baroness when I'm on detox in a few weeks time in Devon.
+- The second time someone reacts normally to my story is in April 2026 on another TT course I'm attending as a student in Dublin, and this is really interesting because this lady *was* a spy, and they *allowed* her to do TT shares with me online, so they must have realized how obvious their indifference is.
 - There has not yet been a third time.
+
+### Alma goes upstairs 
+
+- My story has upset Alma so much that she has to take time out from the group sessions.
+- She goes upstairs.
+- Mrs Wasserman asks me where Alma is, at which point I tell her that I told her my story after she had asked about thing, and it upset her.
+- Mrs Wasserman goes upstairs and sits for some time with Alma.
+
+### Alma is crying
+
+- Later, Alma is crying and being consoled by one of the other women.
+- Did Mrs Wasserman tell her something even worse than my story?
 
 ### Steve falls
 

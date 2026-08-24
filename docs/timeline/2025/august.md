@@ -105,3 +105,35 @@ function googleTranslateElementInit() {
 - I tell the British couple that the middle-aged British woman is a force to be reckoned with.
 - They like it that I said that.
 - I never had braves like this before in my life.
+
+## Israel module 3 with Steve
+
+- Mrs Wasserman is unable to attend so I am managing the sessions, and calling out the timings.
+- It went well, and the attendees were very kind and said lovely things to me, and I even got a card <3
+
+### My timings are like ATC
+
+- I don't know why but whenever I called out the things, I did it in a curious voice, like an air traffic controller maybe - I thought this after watching all the air crash disaster shows and listening to how they speak over the radio.
+- A bit robotic, but it worked.
+
+### Alma and I go to the tunnels
+
+- Alma told me about the place in the tunnels while we were under the table during a bomb warning - she may have told me this in May and then I prompted her again in August.
+- This is the spot closest to where God was in the temple and still is even though the temple is not physically there.
+- Only women sit there because it is extraordinarily powerful.
+- I'm so keen to go, so Alma takes me one morning before the course.
+- Whenever I'm in Jerusalem, I feel like I've been plugged into God, but this was something else.
+- And I saw something curious which looked like the whole universe, and I told Alma I had seen this, but it was difficult to describe so I didn't elaborate.
+- What I saw was an image of the whole universe but it was sort of brown with colored blobs of yellow and orange for the galaxies, like a child's picture.
+- I saw it again, in March 2026 at Parmarth ashram. 
+- It was the same embroidered design on [the shawl some people gave to Sadhvi Bhagawati Saraswati](../2026/march.md#sadhvi-bhagawati-saraswatis-shawl) while we were at darshan with her and guruji during the yoga festival.
+- I was astonished.
+- It was exactly the same image I saw when I put my head to the wall to get as close to God as possible.
+- I've no idea what this means... although... I'm wondering now.
+
+### I invite Alma to my house
+
+- Alma has been so kind, so genuine, so human... I'm so happy to meet a normal human being with a functioning heart. It's been so long.
+- I don't have a house or any hope of getting one with things as they are...
+- Nevertheless, I'm compelled to tell her that when I get settled, and everything's safe, and the evil can't touch me anymore, I will invite her and her daughters to my house.
+- Alma is my friend.
