@@ -129,4 +129,13 @@ function googleTranslateElementInit() {
 - It's time we found out.
 - But really, the most worrying thing about all this new information is that the *powers-that-be* (Tyre, Assyria, Egypt, Rome, etc.) have always known about - and have never had any intention of stopping - the mass pedophilia and baby-rape machine that has seeped into the school and education systems of Spain, while blocking the Spanish from doing anything to help their own children.
 - Why?
-- How did Topheth expand to all four corners of the earth?
+- How could Topheth expand to all four corners of the earth?
+- Answer: when Caesar normalizes sacrificing children, the unwise amongst his subjects will follow suit.
+
+## Call social security
+
+- I recommend that all offspring are located and brought by respective social security organizations to a safe environment as soon as is reasonably possible.
+- From there, squirrel and I will help find loving and deserving families to look after the children with random fathers.
+- I will maintain some involvement in these children's lives but not in an oppressive way. 
+- Squirrel and I will take our own biological children as soon as is reasonably possible.
+- If any of the people that were capable of justifying such evil complain, they should remember well that stolen children *will* be despised by the families that stole them, and any psychologist or psychotherapist worth his license can confirm.
