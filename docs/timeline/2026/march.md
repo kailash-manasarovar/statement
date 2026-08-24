@@ -38,7 +38,7 @@ function googleTranslateElementInit() {
 - That night, I hear Mrs Wasserman's voice in the room.
 - I think they staged it through the iPhone.
 
-## Sadhvi Bhagawati Saraswati's shawl
+### Sadhvi Bhagawati Saraswati's shawl
 
 - The pattern on the brown shawl looks like the image I saw at [the holy of holies in August 2025](../2025/august.md#alma-and-i-go-to-the-tunnels) with Alma.
 - I'm amazed.
