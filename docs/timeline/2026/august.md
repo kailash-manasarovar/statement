@@ -155,14 +155,16 @@ function googleTranslateElementInit() {
 - They've obliterated my access to jobs, healthcare, support, friends who aren't spies, a normal life and more.
 - They've obliterated my access to communities on social media by battering me relentlessly online, forcing me to delete all my accounts for a bit of peace.
 - They attempt to weaken me in *any way* possible.
+- They've block my payments on my bank cards and on payment platforms too.
 - They're now blocking my book production online.
-- They're blocking me opening new social media accounts I want to use to market my book.
+- They're now blocking me opening new social media accounts I want to use to market my book.
+- This is not the behavior of people who don't intend you serious harm.
 - I endure constant mass-stalking wherever I am in the world: including taunting and insults in the street, constant "intrigues" (it's getting really boring now - oh wait, it completely stopped yesterday didn't it ;), sending spies with sinister intentions everywhere... oh wait, that's also stopped hasn't it.
 - Hmmm. 
 - Has it all stopped now?
-- It did seem very quiet and peaceful and loving yesterday. It made a wonderful change.
-- I think we're very nearly there friends... except they just blocked me from opening a new Facebook and X account this morning so that I can spread the word about the salmon mousses.
-- Oh wait, maybe the way-too-powerful, porn-addict tech bros did that, playing catch up as usual.
+- It did seem very quiet and peaceful and loving yesterday. It made a wonderful change for the sane amongst us.
+- I think we're very nearly there friends... except they just blocked me from opening a new Facebook and X account this morning so that I can spread the word about the fall of the salmon mousses.
+- Oh wait, maybe the way-too-powerful, porn-addict tech bros did that... playing catch up as usual.
 - Anyway.
 - Whatever's going on, if we're not wholly safe here yet, and the mousses won't let me have any basic human rights, I think you should let me take squirrel with me. At least together we might have a fighting chance don't you think?
 - We could snuck him out.. :D
@@ -171,10 +173,10 @@ function googleTranslateElementInit() {
     - Whoever assails (us) will fall.
     - No weapon (formed against us) will prosper.
 
-- Are we seeing proof of this now? I feel like we are. Multi-mass-proof.
+- Are we seeing proof of this now? I feel like we are. Multi-mass-proof in fact.
 
 !!! tip "For me to remember... and focus on"
-    - The well-being of our sons WILL be great.
+    - The well-being of our sons **WILL** be great.
 
 - It's amazing how offspring changes everything isn't it.
-- Thank you LORD for Your firm promises which You never break. Please keep them all safe until I come for them.
+- Thank you LORD for Your firm promises which You never break. Please keep them all safe until we come for them.
