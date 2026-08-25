@@ -141,18 +141,40 @@ function googleTranslateElementInit() {
 - Squirrel and I will take our own biological children back as soon as is reasonably possible.
 - If, due to arrogance and lack of wisdom, any of the people that were capable of justifying such evil complain, they should remember well that stolen children are always despised by the families that stole them, and any psychologist or psychotherapist worth his license can confirm.
 
-## Proof the salmon mousses intended to murder me once they'd got what they wanted, and why they're probably still intend to do that
+## It's a (salmon) wrap 
 
-- Even though I have done the impossible for them...
+- I don't think God has anything else for now, but I will always let everyone know if that changes of course.
+- It's time to start something even more amazing.
+- Dear friends, I know you're mostly as appalled by it all as the world will be.
+- Please help me get the book out.
+- Then I might have an income, which would be something. I do worry about that.
+
+## Proof the salmon mousses intended to murder me once they'd got what they wanted, and why they're probably still intending to do that
+
+- Even though I have done the impossible for them... (btw, forget back pay, it's compensation now...).
 - They've obliterated my access to jobs, healthcare, support, friends who aren't spies, a normal life and more.
 - They've obliterated my access to communities on social media by battering me relentlessly online, forcing me to delete all my accounts for a bit of peace.
 - They attempt to weaken me in *any way* possible.
 - They're now blocking my book production online.
-- They're not blocking me opening new social media accounts.
-- There is constant mass-stalking wherever I am in the world: including taunting and insults in the street, constant "intrigues" (it's getting really boring now - oh wait, it completely stopped yesterday didn't it ;), sending spies with sinister intentions everywhere... oh wait, that's also stopped hasn't it.
+- They're blocking me opening new social media accounts I want to use to market my book.
+- I endure constant mass-stalking wherever I am in the world: including taunting and insults in the street, constant "intrigues" (it's getting really boring now - oh wait, it completely stopped yesterday didn't it ;), sending spies with sinister intentions everywhere... oh wait, that's also stopped hasn't it.
 - Hmmm. 
 - Has it all stopped now?
-- Very nearly... except they just blocked me from opening a new Facebook and X account this morning so that I can spread the word about the salmon mousses.
-- Oh wait, maybe the way too powerful, porn-addict tech bros did that, playing catch up as usual.
-- If we're not safe here, and the mousses won't let me stay, I think you should let me take squirrel with me. At least together we have a fighting chance don't you think?
+- It did seem very quiet and peaceful and loving yesterday. It made a wonderful change.
+- I think we're very nearly there friends... except they just blocked me from opening a new Facebook and X account this morning so that I can spread the word about the salmon mousses.
+- Oh wait, maybe the way-too-powerful, porn-addict tech bros did that, playing catch up as usual.
+- Anyway.
+- Whatever's going on, if we're not wholly safe here yet, and the mousses won't let me have any basic human rights, I think you should let me take squirrel with me. At least together we might have a fighting chance don't you think?
 - We could snuck him out.. :D
+
+!!! tip "Remember..."
+    - Whoever assails (us) will fall.
+    - No weapon (formed against us) will prosper.
+
+- Are we seeing proof of this now? I feel like we are. Multi-mass-proof.
+
+!!! tip "For me to remember... and focus on"
+    - The well-being of our sons WILL be great.
+
+- It's amazing how offspring changes everything isn't it.
+- Thank you LORD for Your firm promises which You never break. Please keep them all safe until I come for them.
