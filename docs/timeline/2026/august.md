@@ -181,3 +181,14 @@ function googleTranslateElementInit() {
 - It's amazing how offspring changes everything isn't it.
 - Thank you LORD for Your firm promises which You never break. Please keep them all safe until we come for them.
 - Maybe India can take us BOTH until everyone's in jail and dealt with howaboutit?
+
+## Dear gypsy friends and devotees
+
+- Do you remember that book you promoted about 15 years ago which made millions of stupid women in the West believe sexual violence was a good thing?
+- Yeah, that one.
+- Well, it's time to make amends.
+- <3
+- I love you.
+- Wait till I get the updates into Amazon.. they're blocking me a little now... and then we're good to go. 
+- Feel free to send out the website to the world too.
+- Together, we can DO THIS!
