@@ -181,6 +181,7 @@ function googleTranslateElementInit() {
 - It's amazing how offspring changes everything isn't it.
 - Thank you LORD for Your firm promises which You never break. Please keep them all safe until we come for them.
 - Maybe India can take us BOTH until everyone's in jail and dealt with howaboutit?
+- Whatever I've done already is only half of my potential.
 
 ## Dear gypsy friends and devotees
 
