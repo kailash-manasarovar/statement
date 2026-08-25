@@ -141,7 +141,7 @@ function googleTranslateElementInit() {
 - Squirrel and I will take our own biological children back as soon as is reasonably possible.
 - If, due to arrogance and lack of wisdom, any of the people that were capable of justifying such evil complain, they should remember well that stolen children are always despised by the families that stole them, and any psychologist or psychotherapist worth his license can confirm.
 
-## It's a (salmon) wrap 
+## It's a (salmon and onion) wrap 
 
 - I don't think God has anything else for now, but I will always let everyone know if that changes of course.
 - It's time to start something even more amazing.
