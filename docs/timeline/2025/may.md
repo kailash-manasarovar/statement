@@ -32,6 +32,10 @@ function googleTranslateElementInit() {
 - Tanya had told us she lived in a town which I immediately linked to the FBI. I think I even told my mother this.
 - I also wonder now (time of writing) if the first surreptitious surgery took place at the Anantara.
 
+!!! tip "I just realized why they did this"
+    - My pathological good opinion of everyone struck again didn't it.
+    - She was here staring at me to add to the intrigue just in case it went tits up for them, as it always does, and they could blame Israel again.
+
 ### 40th birthday party
 
 - In the spa one day I hear a lot of women speaking Hebrew.
@@ -42,6 +46,7 @@ function googleTranslateElementInit() {
 - I had to wonder about these ladies too.
 - This was early days in my *how-spies-operate* intensive training and I was being drugged continuously still so I really had no idea what was going on.
 - I felt extremely comforted seeing these women at the hotel, however, and it made me feel much safer against the unease with my neighbors on the 8th floor.
+- Also, in August 2026, I realize that all these spy games means there is photographic and video evidence of *all* evildoing to hand - we'll see Tanya, and the medical team, and the birthday party - and this is going to be true of everything I've said in this police statement.
 
 ### Seagulls nesting
 

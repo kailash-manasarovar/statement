@@ -140,3 +140,19 @@ function googleTranslateElementInit() {
 - I will be harmless and helpful <3 
 - Squirrel and I will take our own biological children back as soon as is reasonably possible.
 - If, due to arrogance and lack of wisdom, any of the people that were capable of justifying such evil complain, they should remember well that stolen children are always despised by the families that stole them, and any psychologist or psychotherapist worth his license can confirm.
+
+## Proof the salmon mousses intended to murder me once they'd got what they wanted, and why they're probably still intend to do that
+
+- Even though I have done the impossible for them...
+- They've obliterated my access to jobs, healthcare, support, friends who aren't spies, a normal life and more.
+- They've obliterated my access to communities on social media by battering me relentlessly online, forcing me to delete all my accounts for a bit of peace.
+- They attempt to weaken me in *any way* possible.
+- They're now blocking my book production online.
+- They're not blocking me opening new social media accounts.
+- There is constant mass-stalking wherever I am in the world: including taunting and insults in the street, constant "intrigues" (it's getting really boring now - oh wait, it completely stopped yesterday didn't it ;), sending spies with sinister intentions everywhere... oh wait, that's also stopped hasn't it.
+- Hmmm. 
+- Has it all stopped now?
+- Very nearly... except they just blocked me from opening a new Facebook and X account this morning so that I can spread the word about the salmon mousses.
+- Oh wait, maybe the way too powerful, porn-addict tech bros did that, playing catch up as usual.
+- If we're not safe here, and the mousses won't let me stay, I think you should let me take squirrel with me. At least together we have a fighting chance don't you think?
+- We could snuck him out.. :D
