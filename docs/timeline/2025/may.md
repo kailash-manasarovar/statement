@@ -26,10 +26,12 @@ function googleTranslateElementInit() {
 - I note this.
 - Me and mum met Tanya on the [eclipse tour of 2006 in Egypt](../2001-to-2010/2006.md#total-eclipse-of-the-sun).
 - I believe today (August 2026, time of writing) that this is where I was first signed up without my knowledge or consent for the CIA's intuitive program whose main goal was to somehow deal with the criminal gangs of Dénia, a major thorn in their side.
-- I did a pretty good job too, it must be admitted.
+- I did a pretty good job too, they cannot deny it.
 - Mum still has Tanya on her Facebook.
-- I wonder if her popping up like this is a sign from the FBI to tell me they're working on my case, but it's so top secret they can't speak to me directly.
-- Tanya had told us she lived in a town which I immediately linked to the FBI. I think I even told my mother this.
+- I'm interested that Tanya's name is Tanya; rather like Tonia. Coincidence? Or have they been after him all along.
+- At the Anantara, I wonder if her popping up like this is a sign from the FBI to tell me they're working on my case, but it's so top secret they can't speak to me directly.
+- Tanya had told us she lived in a town (did she say Langley, I don't think it was that but it was somewhere in Virginia) which I immediately linked to the FBI. 
+- I think I even told my mother this.
 - I also wonder now (time of writing) if the first surreptitious surgery took place at the Anantara.
 
 !!! tip "I just realized why they did this"
@@ -46,7 +48,7 @@ function googleTranslateElementInit() {
 - I had to wonder about these ladies too.
 - This was early days in my *how-spies-operate* intensive training and I was being drugged continuously still so I really had no idea what was going on.
 - I felt extremely comforted seeing these women at the hotel, however, and it made me feel much safer against the unease with my neighbors on the 8th floor.
-- Also, in August 2026, I realize that all these spy games means there is photographic and video evidence of *all* evildoing to hand - we'll see Tanya, and the medical team, and the birthday party - and this is going to be true of everything I've said in this police statement.
+- Also, in August 2026, I realize that all these spy games means there is photographic and video evidence of *all* evildoing to hand - we'll see Tanya, and the medical team, and the birthday party - and this is going to be true of every evil mousse-machination I've detailed in this police statement.
 
 ### Seagulls nesting
 
