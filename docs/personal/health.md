@@ -8,31 +8,37 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## Hip injury
+## Post-surgical internal injury in the left hip/groin region
 
 - In December 2025, during the first few seconds of a Thai boxing fitness course I had signed up for at Fitkoh in Samui, my hip crunched and gave way.
-- It is still not fully healed in August 2026.
+- It was extremely painful, but only when I did certain body movements. Other than that, it was unnoticeable.
+- Whatever it is, it is still not fully healed in August 2026.
 - It felt like a serious and structural injury at the time, except it was inexplicable to me that something serious could happen after a few steps of gentle jogging - I had been hiking in the Pyrenees just months before - so I didn't take it seriously and expected it to get better quickly, like most things with me.
+- It didn't get better, and I was very disappointed about it.
 - It is only now that all this makes more horrible sense.
 - We are asked to jog around the practice space for about ten minutes before class begins, barefoot.
-- I ran gently for about ten meters, then something crunched in my left hip area, and I was unable to run anymore due to the searing pain at every step, which stopped completely when I stopped running.
-- I believe this was an injury caused by multiple clandestine surgeries to my lower abdomen with no proper aftercare nor concern by the medics performing multiple keyhole surgeries on my lower abdomen while reopening recent surgical wounds.
+- I ran gently for about ten meters, then something crunched in my left hip/groin area, and I was unable to run anymore due to the searing pain at every step, which stopped completely when I stopped running.
+- I believe this was an injury caused by multiple clandestine surgeries to my lower abdomen with no proper aftercare nor concern by the medics performing keyhole surgeries, in adverse and unclean conditions, unavoidably reopening recent surgical wounds.
 - I believe all this will be very obvious on examination.
-- I had been operated on just weeks before in November in Bangkok, maybe even twice or three times in quick succession (at the Anantara and the Oriental Residence next to the American Embassy - both heaving with agents) while disregarding any rest period my body would have needed to recuperate.
-- I had been already been operated on in August in Cauterets, then before in May in Dublin too, at the same surgical sites doing exactly the same procedure.
+- I had been operated on just weeks before in November in Bangkok, maybe even twice or three times in quick succession (at the Anantara and the Oriental Residence next to the American Embassy - both heaving with agents) while they disregarded any rest period my body would have needed to recuperate.
+- I had already been operated on in August in Cauterets, then before in May in Dublin too, at the same surgical sites doing exactly the same procedure.
 - I understand that fascia, nerves, and tendons are cut to reach ovaries during these keyhole operations.
-- I believe my abdomen's distension, slow digestion time, and general dis-ease since surgeries began are due to these surgeries.
+- I believe my abdomen's distension, slow digestion time, and general dis-ease since all this began are due entirely to these surgeries. (I guess that's why everyone has been so insulting about my weight - online and in the street - up to a couple of days ago. Projected guilt.)
 - I believe the man the salmon mousses sent to talk to me at Fitkoh in Koh Samui in December 2025, a British man traveling with his Spanish or Romanian wife and their small son, was one of the medics.
 - Looking back, I had been unusually exhausted in Bangkok and Samui, and I put it down to trauma having just found out my dad had starred in sedated-rape-porn with me in 2015.
 - But it was more than that because I was unusually tired and had no energy at all. I could hardly ride a bike 100 meters.
-- You know, I'm still feeling tired like this in August 2026 and I do not think my body has had any time to recuperate while evildoers have been biting chunks out of it, while I'm sedated, in April 2026 again in Dublin, and in Bali in July in 2026.
-- The British medic (originally from Peterborough, he said, living in Dubai, he said) at Fitkoh popped up the day after the hip injury and was ostensibly discussing effects of poisoning - I had told him that - and gave me some tests which proved something was wrong with my brain function.
-- When I mentioned my hip injury, he seemed very concerned, overly concerned perhaps, and I asked him for help but every time I saw him again he moved away from me, or didn't talk to me, they wouldn't look me in the eye, and he didn't reply to messages on his WhatsApp which was a Romanian number.
+- You know, I'm still feeling tired like this in August 2026 and I do not think my body has had any time to recuperate while evildoers have been biting chunks out of it, while I'm sedated, in April 2026 again in Dublin, and in Bali just a month ago.
+- The British medic (originally from Peterborough, he said, living in Dubai, he said) at Fitkoh popped up the day after the hip injury and was ostensibly discussing effects of poisoning - I had told him about that - and he gave me some tests which proved something was wrong with my brain function.
+- When I mentioned my hip injury, he seemed very concerned, overly concerned perhaps, and I asked him for help but every time I saw him again he moved away from me, or didn't talk to me, wouldn't look me in the eye, and he didn't reply to messages on his WhatsApp which was a Romanian number.
 - In March 2026, I told the salmon mousses via hacked communication channels that I felt I needed medical attention and needed help.
-- As part of this short message I also mentioned wanting to "go home", and this was repeated to me in a taunting manner by an American Transforming Touch classmate in Dublin just a month later in April 2025, after more egg theft, and she made me cry.
+- As part of this short message I also mentioned wanting to "go home", and this was repeated to me in a taunting manner by an American Transforming Touch classmate in Dublin just a month later in April 2026, after more egg theft, and she made me cry.
 - Instead of doing anything to help me, they set up more elaborate "bridge" episodes in France, before performing more sedated surgery in Dublin and Bali.
+- I guess people are compelled to taunt, bully, and upset someone they are doing extreme evil to, or do their earpieces tell them what to say without them knowing what's happening in their names; the ice cold management.
 - I guess everyone got the memo and was certain I was going to be murdered.
-- I guess people enjoy taunting and upsetting someone in that position, or do their earpieces tell them to do this; their ice cold management.
+- My guess is the budget for stealing my eggs is now in the $100s of million. We are talking travel for hundreds and hundreds, doctors, medics, military, NASA, vehicles including lorries.. then the backend support must be enormous.
+- The idiots!
+- I guess God lured them all in, knowing they'd default to stupid, and then He could get on with the massive backlog of evildoing.
+- *Whatever it took, Father. Whatever it took.*
 - As I mentioned, the injury is still there, I feel a weakness in that area which makes me reluctant to run - although I did run for a short while recently (pre-Loka Yoga) and it was OK for a very short gentle jog, *but* I felt like I shouldn't push it and there were some twinges.
 - Post Loka-Yoga, I feel the weakness there again without doing anything much.
 - So knowing full well I was injured, and not caring, they fiercely assailed me by carrying on biting chunks out of me while I was unconscious.
@@ -44,6 +50,9 @@ function googleTranslateElementInit() {
 - My guess is as well as the now confirmed photographic evidence of multiple sedated surgeries in numerous locations of surgeons and mousse medical teams operating in Bangkok, Bali, Dublin, Cauterets and elsewhere, there will be photographic evidence of *EVERYONE* hanging around me wherever I've been since October 2024 when I survived the gypsy poisoning in Carrer Furs.
 - Even Citadines where I stayed just after in November 2024 seemed to me to be accommodating child-rape pornographers (children screaming in pain in the night), but maybe it was surgery instead, and maybe the maid was crying about me too - the local people know everything, remember.
 - As well as photographic evidence, the mousses have not been the only people hacking me since 2006, and I'm told the gypsies and Adams will also have copies of the texts I refer to here which I didn't keep because of the relentless overwhelm of hacking designed to make me isolated myself even more, then I'd be easier to dispatch with, amiright? Of course I am.
+
+!!! tip "From here..."
+    - All sections from here were written when I considered my only enemies to be the porn-gangs of Spain, North London's finest, and my tech colleagues and had no idea who was really behind it all.
 
 ## Homeopath
 
