@@ -33,7 +33,7 @@ function googleTranslateElementInit() {
 - In March 2026, I told the salmon mousses via hacked communication channels that I felt I needed medical attention and needed help.
 - Instead of doing anything to help me, they set up more elaborate "bridge" episodes in France, before performing more sedated surgery in Dublin and Bali.
 - As part of this short message I also mentioned wanting to "go home", and this was repeated to me in a taunting manner by an American Transforming Touch classmate in Dublin just a month later in April 2026, after more egg theft, and she made me cry.
-- I guess people are compelled to taunt, bully, and upset someone they are doing extreme evil to - or ice cold management are telling them what to do and say through their earpieces, without them knowing what's happening in their names.
+- I guess people are compelled to taunt, bully, and upset someone they are doing extreme evil to - or ice cold management are telling them what to do and say through their earpieces, without them knowing what's really happening in their names.
 - The Transforming Touch community connecting into the wider trauma-therapy community is massive, international, very public and online, and these people, agents, (there must be some non-agent therapists amongst them) are very well known and are treating multiple vulnerable clients!
 - I guess everyone got the memo and was certain I was going to be murdered, just like the Spanish did.
 - My guess is the budget for stealing my eggs is now in the $100s of millions. We are talking travel for hundreds and hundreds of agents, doctors, medics, military, NASA, buildings, whole housing estates, taking over small beach towns, multiple vehicles including lorries, then there was squirrel's extraction with UN helicopters and God knows what else... then on top the backend support must be enormous!
@@ -44,7 +44,11 @@ function googleTranslateElementInit() {
 - Post Loka-Yoga, I feel the weakness there again without doing anything much and even while swimming.
 - So knowing full well I was injured, and not caring, they fiercely assailed me by carrying on biting chunks out of me while I was unconscious.
 - The medic at Fitkoh was staying with his family for a few months. I'd recognize him in an instant.
-- His wife had been told to ignore me, she didn't even smile or say hello.
+- His Spanish-speaking wife had been told to ignore me, she didn't even smile or say hello.
+- I can't remember the name he gave me, but he looked a lot like this actor but was a bit balding.
+
+![The medic](../content/images/the-medic.jpg)
+
 - Wait till I tell you about the UN woman there...
 - It was hard to tell if there were any normal people at Fitkoh while I was there; they all appeared to be agents.
 - I was thinking it's easy for them to seal off an area like this as it's just one road in and out, like the Holiday Inn at Nusa Dua.
