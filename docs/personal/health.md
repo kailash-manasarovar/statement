@@ -33,9 +33,12 @@ function googleTranslateElementInit() {
 - In March 2026, I told the salmon mousses via hacked communication channels that I felt I needed medical attention and needed help.
 - Instead of doing anything to help me, they set up more elaborate "bridge" episodes in France, before performing more sedated surgery in Dublin and Bali.
 - As part of this short message I also mentioned wanting to "go home", and this was repeated to me in a taunting manner by an American Transforming Touch classmate in Dublin just a month later in April 2026, after more egg theft, and she made me cry.
+- I had told no-one else that I wanted to go home, and only mentioned it once in this communication.
 - I guess people are compelled to taunt, bully, and upset someone they are doing extreme evil to - or ice cold management are telling them what to do and say through their earpieces, without them knowing what's really happening in their names.
+- I suspect this was the beginning of them setting me up to believe they were someone else in Tibet and Bali, just like they always do.
 - The Transforming Touch community connecting into the wider trauma-therapy community is massive, international, very public and online, and these people, agents, (there must be some non-agent therapists amongst them) are very well known and are treating multiple vulnerable clients!
-- I guess everyone got the memo and was certain I was going to be murdered, just like the Spanish did.
+- I can't believe when they're told to say this and that, that they know the full implications of what they've been tasked with.
+- And at management level, I guess everyone got the memo and were certain I was going to be murdered, just like the Spanish had.
 - My guess is the budget for stealing my eggs is now in the $100s of millions. We are talking travel for hundreds and hundreds of agents, doctors, medics, military, NASA, buildings, whole housing estates, taking over small beach towns, multiple vehicles including lorries, then there was squirrel's extraction with UN helicopters and God knows what else... then on top the backend support must be enormous!
 - The idiots!
 - I guess God lured them all in, knowing they'd default to stupid, and then He could get on with the massive backlog of evildoing.
