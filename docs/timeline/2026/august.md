@@ -202,3 +202,5 @@ function googleTranslateElementInit() {
 - But mostly about love.
 - And I'd really love to get to the research stage as early as is reasonably possible.
 - Thank you.
+
+![Psalm 146](../../content/images/psalm-146.png)
