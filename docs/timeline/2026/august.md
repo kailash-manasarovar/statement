@@ -193,3 +193,12 @@ function googleTranslateElementInit() {
 - Wait till I get the updates into Amazon.. they're blocking me a little now... and then we're good to go. 
 - Feel free to send out the website to the world too.
 - Together, we can DO THIS!
+
+## A new project
+
+- Something is bubbling, fertilizing, thinking about emerging...
+- Something about Love, and God, and family, and about how everything is going to be OK.
+- Something about repentance and forgiveness.
+- But mostly about love.
+- And I'd really love to get to the research stage as early as is reasonably possible.
+- Thank you.
