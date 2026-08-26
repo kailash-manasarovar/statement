@@ -31,25 +31,29 @@ function googleTranslateElementInit() {
 - The British medic (originally from Peterborough, he said, living in Dubai, he said) at Fitkoh popped up the day after the hip injury and was ostensibly discussing effects of poisoning - I had told him about that - and he gave me some tests which proved something was wrong with my brain function.
 - When I mentioned my hip injury, he seemed very concerned, overly concerned perhaps, and I asked him for help but every time I saw him again he moved away from me, or didn't talk to me, wouldn't look me in the eye, and he didn't reply to messages on his WhatsApp which was a Romanian number.
 - In March 2026, I told the salmon mousses via hacked communication channels that I felt I needed medical attention and needed help.
-- As part of this short message I also mentioned wanting to "go home", and this was repeated to me in a taunting manner by an American Transforming Touch classmate in Dublin just a month later in April 2026, after more egg theft, and she made me cry.
 - Instead of doing anything to help me, they set up more elaborate "bridge" episodes in France, before performing more sedated surgery in Dublin and Bali.
-- I guess people are compelled to taunt, bully, and upset someone they are doing extreme evil to, or do their earpieces tell them what to say without them knowing what's happening in their names; the ice cold management.
-- I guess everyone got the memo and was certain I was going to be murdered.
-- My guess is the budget for stealing my eggs is now in the $100s of million. We are talking travel for hundreds and hundreds, doctors, medics, military, NASA, vehicles including lorries.. then the backend support must be enormous.
+- As part of this short message I also mentioned wanting to "go home", and this was repeated to me in a taunting manner by an American Transforming Touch classmate in Dublin just a month later in April 2026, after more egg theft, and she made me cry.
+- I guess people are compelled to taunt, bully, and upset someone they are doing extreme evil to - or ice cold management are telling them what to do and say through their earpieces, without them knowing what's happening in their names.
+- The Transforming Touch community connecting into the wider trauma-therapy community is massive, international, very public and online, and these people, agents, (there must be some non-agent therapists amongst them) are very well known and are treating multiple vulnerable clients!
+- I guess everyone got the memo and was certain I was going to be murdered, just like the Spanish did.
+- My guess is the budget for stealing my eggs is now in the $100s of millions. We are talking travel for hundreds and hundreds of agents, doctors, medics, military, NASA, buildings, whole housing estates, taking over small beach towns, multiple vehicles including lorries, then there was squirrel's extraction with UN helicopters and God knows what else... then on top the backend support must be enormous!
 - The idiots!
 - I guess God lured them all in, knowing they'd default to stupid, and then He could get on with the massive backlog of evildoing.
 - *Whatever it took, Father. Whatever it took.*
 - As I mentioned, the injury is still there, I feel a weakness in that area which makes me reluctant to run - although I did run for a short while recently (pre-Loka Yoga) and it was OK for a very short gentle jog, *but* I felt like I shouldn't push it and there were some twinges.
-- Post Loka-Yoga, I feel the weakness there again without doing anything much.
+- Post Loka-Yoga, I feel the weakness there again without doing anything much and even while swimming.
 - So knowing full well I was injured, and not caring, they fiercely assailed me by carrying on biting chunks out of me while I was unconscious.
 - The medic at Fitkoh was staying with his family for a few months. I'd recognize him in an instant.
 - His wife had been told to ignore me, she didn't even smile or say hello.
 - Wait till I tell you about the UN woman there...
 - It was hard to tell if there were any normal people at Fitkoh while I was there; they all appeared to be agents.
-- I was thinking it's easy for them to seal off an area like this as it's one road in and out, like the Holiday Inn at Nusa Dua too.
-- My guess is as well as the now confirmed photographic evidence of multiple sedated surgeries in numerous locations of surgeons and mousse medical teams operating in Bangkok, Bali, Dublin, Cauterets and elsewhere, there will be photographic evidence of *EVERYONE* hanging around me wherever I've been since October 2024 when I survived the gypsy poisoning in Carrer Furs.
+- I was thinking it's easy for them to seal off an area like this as it's just one road in and out, like the Holiday Inn at Nusa Dua.
+- My guess is as well as the now confirmed photographic evidence of multiple sedated surgeries performed by criminal surgeons and mousse medical teams operating in Bangkok, Bali, Dublin, Cauterets and elsewhere, there will be photographic evidence of *EVERYONE* hanging around me wherever I've been since October 2024 when I survived the gypsy poisoning in Carrer Furs.
 - Even Citadines where I stayed just after in November 2024 seemed to me to be accommodating child-rape pornographers (children screaming in pain in the night), but maybe it was surgery instead, and maybe the maid was crying about me too - the local people know everything, remember.
-- As well as photographic evidence, the mousses have not been the only people hacking me since 2006, and I'm told the gypsies and Adams will also have copies of the texts I refer to here which I didn't keep because of the relentless overwhelm of hacking designed to make me isolated myself even more, then I'd be easier to dispatch with, amiright? Of course I am.
+- As well as photographic evidence, the mousses have not been the only people hacking me since 2006, and I'm told the gypsies and Adams will also have copies of the texts I refer to here which I didn't keep because of the relentless overwhelm of hacking designed to make me isolate myself even more, so I'd be easier to dispatch with, amiright? Of course I am.
+- My view, incidentally, is that the gypsies and Adams know and have evidence to prove that I had been working as an intuitive for the CIA since 2006, unpaid and without my knowledge, and for that reason I was super-targeted, brain-damaged, in fact the porn-gangs threw the book at me. 
+- Everything they did was a finger up to the mousses, everything, and that's why the compensation is going to dwarf Lockerbie (one wonders now if the Lockerbie compensation level was agreed to enable some unsuspecting and unpaid agent work - remember, Auggie knew about it back in 1999 - as well as the projected guilt).
+- I expect, however, that even they wouldn't be quite so stupid as to think that they could steal God's special gifts via egg-theft.
 
 !!! tip "From here..."
     - All sections from here were written when I considered my only enemies to be the porn-gangs of Spain, North London's finest, and my tech colleagues and had no idea who was really behind it all.
