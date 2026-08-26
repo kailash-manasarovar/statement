@@ -73,6 +73,17 @@ function googleTranslateElementInit() {
 
 - The nice thing about this tweet is that I wrote it while surrounded by mousses at the Anantara Riverside in Bangkok... and wait till I tell you about the first time I noticed the mousses there, when they made themselves known to me in 2017, and I mistakenly thought they were my friends which is why I returned there.
 
+## Physical tension and stress related rib injury
+
+- I believe, since watching all these disaster investigations, that because my rib had had a break earlier in my life, it was structurally weak and would fail quality testing for exaggerated levels of stress.
+- So, with heavy men leaning on me, over and over and over, while I was unconscious and without being able to alert anyone to the pain or danger, it snapped easily in March 2024.
+- And, the heavy men just kept on coming, over and over, so like the [hip/groin injury from repeated surgeries](#post-surgical-internal-injury-in-the-left-hipgroin-region) my rib has never had a chance to heal and just worsens.
+- What's even more worrying about this is that it continues up to now (August 2026), snapping apart whenever I carry heavy bags - something I've no choice in while roaming around the world without a home - or when I do yoga poses I've been doing forever without issue (May 2026).
+- I feel it while swimming and it seemed stressed during an aqua aerobics class just a week ago (time of writing August 2026).
+- So, this makes me wonder if the "surgeons" didn't also have a quick go at me too, especially if they had a porn-subscription and knew who I was, which is hardly unlikely.
+- Is this why I felt and remembered them entering my back passage in Bali.
+- I bet there's photographic evidence of all that too.
+
 ## Homeopath
 
 - The homeopath I saw in Dénia from early 2023 to March 2024 was Ana Villalba.
