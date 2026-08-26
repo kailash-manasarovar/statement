@@ -45,7 +45,7 @@ function googleTranslateElementInit() {
 - So knowing full well I was injured, and not caring, they fiercely assailed me by carrying on biting chunks out of me while I was unconscious.
 - The medic at Fitkoh was staying with his family for a few months. I'd recognize him in an instant.
 - His Spanish-speaking wife had been told to ignore me, she didn't even smile or say hello.
-- I can't remember the name he gave me, but he looked a lot like this actor but was a bit balding.
+- I can't remember the name he gave me, but he looked a lot like this actor except he was a bit balding.
 
 ![The medic](../content/images/the-medic.jpg)
 
@@ -61,6 +61,17 @@ function googleTranslateElementInit() {
 
 !!! tip "From here..."
     - All sections from here were written when I considered my only enemies to be the porn-gangs of Spain, North London's finest, and my tech colleagues and had no idea who was really behind it all.
+
+### Mirror, mirror on the wall
+
+- I used to taunt the porn-gangs right on back on X.
+- One thing I liked to taunt them about was who was winning the fight by suggesting it was me, but really saying it was God.
+- Little did I know, they knew very well I was the mousse's lurer, they just didn't expect me to overcome everything they threw at me.
+- Well, I was right about who the true lurer is.
+
+![Mirror mirror](../content/images/mirror-mirror.png)
+
+- The nice thing about this tweet is that I wrote it while surrounded by mousses at the Anantara Riverside in Bangkok... and wait till I tell you about the first time I noticed the mousses there, when they made themselves known to me in 2017, and I mistakenly thought they were my friends which is why I returned there.
 
 ## Homeopath
 
