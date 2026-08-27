@@ -352,6 +352,20 @@ function googleTranslateElementInit() {
 - It's too much to process while I'm starting to write this police statement and I'm still feeling unwell for some reason too.
 - I believe now I was shepherded online to this accommodation specifically by the porn-gangs so that they knew where I was and what I was doing, and that they used it for *other stuff* too.
 
+### A woman who looks like Naama Levy is in reception
+
+- I'm coming back from shopping or coffee, or whatever. I did go out every day while I was staying here.
+- As I approach the hotel reception, I see a woman standing there with some others.
+- She stops and stares at me.
+- Later, I realize it is the same way [Tanya Harding stopped and stared at me](../2025/may.md#tanya-harding-is-in-reception) at reception in the Anantara in Dublin in April 2025.
+- I cannot figure out what I'm seeing, at all, or why, because Naama is still a hostage in Gaza.
+- I believe my sight is failing from poisons, I'm stressed about kidney damage, and I'm high all the time - although this was from poisons in my toiletries and not drugs, necessarily, but could be.
+- My mind is neither clear nor secure, and I'm extremely anxious all the time from being continually stalked online and in the streets of Bangkok.
+- So, I think I must be hallucinating and I pretty much forget about it, until today time of writing 27th August 2026.
+- Of course, seeing this made me think about Naama again, and everything that had happened in Israel, and spurred me on even more strongly. 
+- So it was a gift of inspiration, for me, as I had just started writing this police statement.
+- I expect that was the very last thing the mousses intended.
+
 ### Porn-addicts of Bangkok out in force
 
 - I realize pretty quickly I'm being watched very closely by the porn-gangs while I'm in Bangkok; online and in person.
