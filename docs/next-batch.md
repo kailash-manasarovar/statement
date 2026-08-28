@@ -22,4 +22,6 @@
 1. And as for the lupins, well, my fight with the lupins is over. And it looks like everyone won. The best sort of fight. So no names.
 1. And I was just wondering how crazy it would be if everyone started to realize how cool Israel really is. That would be another one of those best sort of fights.
 1. Seeing as there's photo and video evidence of blumin' EVERYTHING... we'll have it at Lourdes on December 8th 2023 too, won't we. Horrific. It'll also be on Lourdes sanctuary CCTV.
+1. Addition to the comparison table in CORE PROCESS: *Total lack of respect for human life*.
+
 
