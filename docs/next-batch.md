@@ -23,6 +23,9 @@
 1. And I was just wondering how crazy it would be if everyone started to realize how cool Israel really is. That would be another one of those best sort of fights.
 1. Seeing as there's photo and video evidence of blumin' EVERYTHING... we'll have it at Lourdes on December 8th 2023 too, won't we. Horrific. It'll also be on Lourdes sanctuary CCTV.
 1. Addition to the comparison table in CORE PROCESS: *Total lack of respect for human life*.
-1. Anyhoo... widening my tent pegs, as it were... my guess is everyone will wanna be in my tent. No, everyone sane will already be in my tent, and those that aren't will be so desperate to get in.
+1. Anyhoo... widening my tent pegs, as it were... my guess is everyone will wanna be in my tent. No, everyone sane will already be in my tent, and those that aren't will be so desperate to get in, and the door is not closed to them but there are conditions to maintain inside the tent and it just might be too much for people, who knows.
 1. Was someone paying the porn-gangs to murder British women after putting them in criminal porn? Did the two horrible things come together? Did other porn-gang members go for trophy-Brits/US women like the Walmart woman? Is that why he was grinning relentlessly and she was crying. Has it been war between them (stalemate really) for decades; innocent women, children and babies bearing the brunt of it all? Seems likely dunnit.
+1. How many? Hundreds, a thousand, over a thousand? Thousands?
+1. Who but God could save us from such a horrible knotted web of evildoing sucking everyone and anyone into it, especially if you had a mistaken thought about things. What's quite marvelous about all this is that they thought their own "weapons" wouldn't suddenly turn on them - in inevitable double-edged sword behavior, as JC puts it in ACIM. But perhaps some of those "weapons" were never supposed to be used in this way, they were in fact being misused and are instead defenses that cannot attack, and work for only one boss, The Boss, Himself, and once He asserts Himself, we can only sit and pass round the popcorn till it's over.
+1. Please God let it be over soon.
 
