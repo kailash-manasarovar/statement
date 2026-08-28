@@ -27,3 +27,4 @@
 1. How many? Hundreds, a thousand, over a thousand? Thousands?
 1. Who but God could save us from such a horrible knotted web of evildoing sucking everyone and anyone into it, especially if you had a mistaken thought about things. What's quite marvelous about all this is that they thought their own "weapons" wouldn't suddenly turn on them - in inevitable double-edged sword behavior, as JC puts it in ACIM. But perhaps some of those "weapons" were never supposed to be used in this way, they were in fact being misused and are instead defenses that cannot attack, and work for only one boss, The Boss, Himself, and once He asserts Himself, we can only sit and pass round the popcorn till it's over.
 1. Please God let it be over soon.
+1. Correction: Wound reopening in July 2026, not 2024 as stated in November 2025.
