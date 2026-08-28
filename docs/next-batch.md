@@ -21,3 +21,5 @@
 1. Stein came up... but I don't know who this is. Judith Stein is ringing around my ears but Stein might also have been the woman who upset me in Dublin. Perhaps they're the same people. It's unclear.
 1. And as for the lupins, well, my fight with the lupins is over. And it looks like everyone won. The best sort of fight. So no names.
 1. And I was just wondering how crazy it would be if everyone started to realize how cool Israel really is. That would be another one of those best sort of fights.
+1. Seeing as there's photo and video evidence of blumin' EVERYTHING... we'll have it at Lourdes on December 8th 2023 too, won't we. Horrific. It'll also be on Lourdes sanctuary CCTV.
+
