@@ -12,7 +12,7 @@
 1. Fiona is the key. Saint Michael's team told me Fiona, I thought it could be her, but it didn't make sense. It's her. *And* she's an old friend.
 1. Karina is coming up now, but I'm not sure who she is.
 1. I see Glastonbury at Loka Yoga every morning in class, I tell them all after seeing it every morning for days, and then it's gone I don't see it anymore.
-1. November 22 - when my Hanuman figure pops out of my bag and everyone's interested...Trish is reporting back. She has been instructed to report back on everything I do because they know I am a CIA intuitive. Do you think they thought I knew? Or they just didn't care either way. The latter most likely. Surely someone knew.
+1. November 22 - when my Hanuman figure pops out of my bag and everyone's interested...Trish is reporting back. She has been instructed to report back on everything I do because they know I am a CIA intuitive.
 1. May 2023: The lives of others. The message (if you translate it) even more so. Can't believe i missed it all. must have been SERIOUSLY HIGH!
 1. Massive emotions - just saying.
 1. December 2022: Hanuman entry into this story early on was remarkable, and he has never left me for a second. It was even earlier than I thought too. October 2019 with guruji in Rishikesh (is that was lady at 2. wanted to hear about?)
