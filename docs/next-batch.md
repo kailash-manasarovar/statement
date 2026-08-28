@@ -1,11 +1,10 @@
 # Next Batch
 
-- It's prudent to add all this to the book.
-- Next batch after first print of the ebook next week.
+- Notes on next batch of updates.
 
 ## TODO: list
 
-1. Naama Levy at Citadines.
+1. Naama Levy at Citadines - added. Worth keeping at the top.
 1. Christine Betterton Jones's friend who works at the British foreign office comes on a walk with us in June 2022. She's has her baby with her on her back. She wants to know all about my Indian trips, where I go, who I see, etc etc. She seems like a spy to me... I ask her if she knows Rich Freed as he also works at the FO, and had been stationed in Pakistan at one stage as second to the ambassador or something huge like that. She said no. It seemed unlikely to me she wouldn't know him.
 1. After I write and publish my book, The Liar, Rich Freed's dad follows me on an early Twitter account I set up to promote it. The dad, or Rich's brother maybe, one of them, is playing polo in his profile pic. I never met his dad. I told Rich about this because it was bit weird tbf. He said nothing.
 1. Fiona's murdered ACIM student - July 2022 Glastonbury Wearyall Hill. Fiona played us her singing live in Glastonbury Town Hall in the 90s I think, and called her "my love". She didn't seem sad when she told us she'd been murdered. I guess she got over it, or perhaps she's angry, unclear. She then plays, inordinately gushing as she does so, New York (the r&b one, female singer, is it Beyonce, I've no idea... never grabbed me much). I find all this a bit strange, notable, exaggerated, offkey, rememberable.
@@ -29,4 +28,3 @@
 1. How many? Hundreds, a thousand, over a thousand? Thousands?
 1. Who but God could save us from such a horrible knotted web of evildoing sucking everyone and anyone into it, especially if you had a mistaken thought about things. What's quite marvelous about all this is that they thought their own "weapons" wouldn't suddenly turn on them - in inevitable double-edged sword behavior, as JC puts it in ACIM. But perhaps some of those "weapons" were never supposed to be used in this way, they were in fact being misused and are instead defenses that cannot attack, and work for only one boss, The Boss, Himself, and once He asserts Himself, we can only sit and pass round the popcorn till it's over.
 1. Please God let it be over soon.
-
