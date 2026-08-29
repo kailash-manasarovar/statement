@@ -35,3 +35,6 @@
 1. Report snake episode at Loka Yoga, so astonishing I thought it had to be a robot. (Snakes warn me something evil is coming, or before me, used to see them in Denia before "events" too, significantly 12th June on my way to class there was a snake in the curb..). Loka Yoga was easily the biggest snake of them all. It stopped me dead in my tracks, it was massive, girth of a 2 litre coke bottle, about 5 meters although i didn't see the front of it, crossing the road from one padi to the other. As I said, I thought it was a robot it was SO EXTRAORDINARY... and there were robots about. But snakes do like to warn me. As do beetles. The day before Winston May destroyed my life, three beetles came out of the chimney... The latest beetle in Jerusalem was dead. And I believe that's a very good omen for me, for the children and babies, for the team, and for the world.
 1. On the busses with Ray Archer.
 1. Is Bali on Tiktok? And they wouldn't even do anything about women sedated and mass-raped at work because of their sinister history? Letting Elon in on it, while he knew full well he'd be untouchable. It's incredible.
+1. Number 6 trumpet teacher: add Viktor porn with the bankteller example.
+1. Add Walmart trophy hunter to *male family members* in protagonists.
+1. Add hacked GA from November 2025 to April 2026.
