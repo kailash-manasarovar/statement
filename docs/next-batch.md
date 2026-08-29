@@ -38,7 +38,7 @@
 1. Number 6 trumpet teacher: add Viktor porn with the bankteller example.
 1. Add Walmart trophy hunter to *male family members* in protagonists.
 1. Add hacked GA from November 2025 to April 2026.
-1. China taxi.
+1. China taxi where the driver was organized by the hotel - spys everywhere. He is interested in me and at one stage tells me, after I've told him I'm going trekking in Tibet: *they'll organize a team* and I assumed he was talking about a team of agents to accompany me on the trip, which they did do, but they were pretending they were from multiple agencies, and they were just mousses.
 1. The sooner 31, the sooner World Peace. amiright?
 1. Babies and pregnancy signals in Israel module 2 May 2025 and how I read it as "when the investigation is over" and everyone can speak plainly, I might consider having babies.
 1. Mrs Wasserman asks me what I think of Jonathan her nephew at the Wall. I say he's very nice. She stops, then adds quickly, and his wife is very nice too. I say I'm sure she is. Mrs Wasserman weeps. Did she think that was an agreement from me?
