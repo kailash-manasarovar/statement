@@ -197,6 +197,9 @@ nav:
 
 extra:
   social:
+    - icon: fontawesome/brands/threads
+      name: Fear & Loathing in Las Marinas on Substack
+      link: https://substack.com/@jackchardwood
     - icon: fontawesome/brands/x-twitter
       name: 1FRGVN on X
       link: https://x.com/1FRGVN
