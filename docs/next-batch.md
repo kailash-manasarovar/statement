@@ -28,7 +28,7 @@
 ### 2013
 
 1. After I write and publish my book, The Liar, Rich Freed's dad follows me on an early Twitter account I set up to promote it. The dad, or Rich's brother maybe, one of them, is playing polo (please look this up if you skimmed over it first time) in his profile pic. I never met his dad. I told Rich about this because it was bit weird tbf. He said nothing.
-1. Rich Freed and I do a re-birthing session with *the* Stella in Koh Phangan. She is ice cold.
+1. Rich Freed and I do a re-birthing session with *the* Stella in Koh Phangan. She is ice cold towards me. I mention this online in Bali in July 2026. Crickets. Every time I mentioned Richard Freed, it's like there's a collective gulp.
 
 ### June 2022
 
@@ -70,7 +70,7 @@
 
 ### December 2024
 
-1. Texting Rich Freed from the Spa Samui desperate for some help. He says he is in Bali.
+1. Texting Rich Freed from the Spa Samui desperate for some help. He texts me back he is in Bali.
 
 ### May 2025
 
@@ -118,6 +118,7 @@
 1. Report snake episode at Loka Yoga, so astonishing I thought it had to be a robot. (Snakes warn me something evil is coming, or before me, used to see them in Denia before "events" too, significantly 12th June on my way to class there was a snake in the curb..). Loka Yoga was easily the biggest snake of them all. It stopped me dead in my tracks, it was massive, girth of a 2 litre coke bottle, about 5 meters although i didn't see the front of it, crossing the road from one padi to the other. As I said, I thought it was a robot it was SO EXTRAORDINARY... and there were robots about. But snakes do like to warn me. As do beetles. The day before Winston May destroyed my life, three beetles came out of the chimney... The latest beetle in Jerusalem was dead. And I believe that's a very good omen for me, for the children and babies, for the team, and for the world.
 1. In Bali at Loka Yoga, constant references to "Project Jonathan" fly by on online communication channels (mostly Substack at this stage) while they are sedating me every night and the keyhole surgery scar returns. When I do find out about the surgeries, I realize they're dropping the Jews in it - perhaps they're aware my internal injuries are not going to be ignorable for so long. This action of the mousses throwing the Jews under the bus becomes significant and top-of-mind and I start to think about Sullivan...
 1. Was Vincent from Singapore the surgeon at Loka Yoga. He, his mum, and one other woman "Carolina" (did she switch accents from German to Australian? that seemed to be happening with them too) who was pretending off-and-on to be a "bridge" manager official, were staying close to me in one estate while the majority of the other participants stayed in a different place. Something happened to Vincent, he was injured while surfing he told me. I wonder what really happened...
+1. Did Rich Freed, Stella, and the mousses procure the women like myself and Natalia to send into hell, hacking our devices and getting info? Does that mean Domingo is a mousse-pal, an inside man?
 
 ### August 2026
 
