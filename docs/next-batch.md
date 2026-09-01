@@ -88,6 +88,7 @@
 
 ### November 2025
 
+1. Campaigning with Reform, I'm paired up with an agent. I have been walking all day every day for days... fast, like usual. She starts to slow me down but doesn't say why. She starts walking really slowly. It's a bit weird because we've tons to do and not a lot of time. I wonder if someone told her to make sure I didn't walk too fast because I'd been injured during surgery and had stitches. My hip (it's groin actually, I kept saying hip cos groin doesn't make sense) was hurting a lot that day.
 1. I wonder if there was a further surgery at Napasa Samui also, please was full of agents too. And one day at the beach I had a snake episode.
 1. Add hacked GA from November 2025 to April 2026.
 1. Mousses pretending they're helping me with the investigation: Holly Hunter look alike at the Anantara. Tweeted about this. Someone replies *Liar*. The mousses are pretending to be the criminal gangs now, keeping me distracted for violation purposes.
