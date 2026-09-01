@@ -101,6 +101,10 @@
 
 1. TT in April 2026, Steve is bullying Gerardine and Yvonne.
 
+### May 2026
+
+1. Air France to Beijing. I was filmed laughing at the Snoopy videos with Woodstock wearing his particularly unique hat.
+
 ### June 2026
 
 1. China taxi where the driver was organized by the hotel - spys everywhere. He is interested in me and at one stage tells me, after I've told him I'm going trekking in Tibet: *they'll organize a team* and I assumed he was talking about a team of agents to accompany me on the trip, which they did do, but they were pretending they were from multiple agencies, and they were just mousses.
