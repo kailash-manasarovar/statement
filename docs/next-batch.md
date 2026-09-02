@@ -33,7 +33,7 @@
 
 ### 2014
 
-- Mousse activity on the Tube with Domingo. Someone, a woman, opening her mouth wide in a sarcastic shock face at him. He has his back to me. I can see her. Warning? It worked. From that moment I really found him despicable... but was that the intention, i.e. no warning, part of the twisted choreography? The fact that Domingo is an inside man is just blowing my mind. Did everyone know? How did he get away with it? Are they all great chums? Of course they are. That's the point. They're all great chums apart from the ones who weren't involved. But this begs the question, how did they manage to exert such power over their neighbors? Did the mousses step in to sort anyone out who complained? Is that it? Is that why the locals were poisoned and murdered too?
+- Mousse activity on the Tube with Domingo. Someone, a woman, opening her mouth wide in a sarcastic shock face at him. He has his back to me. I can see her. Warning? It worked. From that moment I really found him despicable... but was that the intention, i.e. no warning, part of the twisted choreography? The fact that Domingo is an inside man is just blowing my mind. Did everyone know? How did he get away with it? Are they all great chums? Of course they are. That's the point. They're all great chums apart from the ones who weren't involved. But this begs the question, how did they manage to exert such power over their neighbors? Did the mousses step in to sort anyone out who complained? Is that it? Is that why the locals were poisoned and murdered too? Did he go for me (and my dad, mother, and brother) as power play... knowing the Lockerbie connection and other stuff too? Total insanity.
 
 ### June 2022
 
