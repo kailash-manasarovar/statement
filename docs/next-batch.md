@@ -122,7 +122,7 @@
 
 ### July 2026
 
-1. Online communication from day 1 is about "no more stories", so I say, OK, no more stories, and you can see I stop writing in the repo, and I said it online a lot... except story additions keep coming from the past so I end up doing a lot of writing/editorial on past sections and new past sections. Why would they be so keen for me to stop writing? I did wonder at the time, but it seemed sensible to play their game at least till I figured out what was going on.
+1. Online communication from day 1 is about "no more stories", so I say, OK, no more stories, and you can see I stop writing in the repo, and I said it online a lot... you will see it on Facebook even... except story additions keep coming in from the past so I end up doing a lot of writing/editorial on past sections and new past sections. Why would they be so keen for me to stop writing? I did wonder at the time, but it seemed sensible to play their game at least till I figured out what was going on.
 1. I see Glastonbury Tor from the windows at Loka Yoga every morning in class. It's such a strong vision, I decide to tell them all after seeing it every morning for days. Once I've told them all, it's gone and I don't see it anymore. And that's nearly as surprising.
 1. Correction: Wound reopening in July 2026, not 2024 as stated in November 2025.
 1. Taryn and her boyfriend come round to check the windows have been blacked out in Bali. I have been doing my bible study, which entails opening the bible wherever it may open and reading that bit. The doorbell rings and I leave the open bible on the bed to go and answer the door. They come up to see the work on the windows. My bible is open on the bed at Isaiah 31. The helpers and the helped.
