@@ -35,7 +35,7 @@
 - I guess this is proof Robert was manipulated into thinking he'd be doing "porn" and then they raped him, for porn, and then he told mum..
 - But somehow they both decided it was my fault. Which is extraordinary. And that anything that happened to me was irrelevant and I could basically be discarded, even pushed closer towards suicide etc (I'll add those recordings later).
 - It's really horrible. I can't understand how they could do this. How it could be justifiable unless they told Robert what was in store for me and how he had to help them, or else, and she chose their way along with him.
-- Does this "throwing me under the bus" explain dad's actions the following years too? 
+- Does this "throwing me under the bus" explain dad's actions the following years too? They all knew and neglected to warn me?
 
 ### 2013
 
