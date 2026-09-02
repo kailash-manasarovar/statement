@@ -31,6 +31,10 @@
 1. Rich Freed and I do a re-birthing session with *the* Stella in Koh Phangan. She is ice cold towards me. I mention this online in Bali in July 2026. Crickets. Every time I mentioned Richard Freed, it's like there's a collective gulp.
 1. Same trip to Thailand, Rich and I are having something to eat at the spa, chatting, I'm making corrections to The Liar after having read Stephen King's On Writing. I mention briefly the "yoga teacher" in Rishikesh (meaning Jitendra Das) and Rich says, *Oh you mean the rapist!* and it's so incongruous and shocking actually - I never said he was a rapist to anyone - I laugh nervously. He was leaking a little here and there, wasn't he.
 
+### 2014
+
+- Mousse activity on the Tube with Domingo. Someone, a woman, opening her mouth wide in a sarcastic shock face at him. He has his back to me. I can see her. Warning? It worked. From that moment I really found him despicable... but was that the intention, i.e. no warning, part of the twisted choreography? The fact that Domingo is an inside man is just blowing my mind. Did everyone know? How did he get away with it? Are they all great chums? Of course they are. That's the point. They're all great chums apart from the ones who weren't involved.
+
 ### June 2022
 
 1. Christine Betterton Jones's friend who works at the British foreign office comes on a walk with us in June 2022. She's has her baby with her on her back. She wants to know all about my Indian trips, where I go, who I see, etc etc. She seems like a spy to me... I ask her if she knows Rich Freed as he also works at the FO, and had been stationed in Pakistan at one stage as second to the ambassador or something huge like that. She said no. It seemed unlikely to me she wouldn't know him.
