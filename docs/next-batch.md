@@ -141,4 +141,5 @@
 
 ### Conclusion
 
+1. One wonders, given mousse involvement, control, and management of very nearly everything, if not everything I have detailed in this police statement - people, events, who does what, controlling communities, staged activities, torture chambers, who says what to who, who goes to jail (no-one), who gets bumped off, etc., if they should be held responsible for all of it.
 1. And for the record: I'm only interested in the gazing-house; not the money, fame, or bites of roasted meat although they are indeed tasty.
