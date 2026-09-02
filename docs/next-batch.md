@@ -119,6 +119,7 @@
 1. In Bali at Loka Yoga, constant references to "Project Jonathan" fly by on online communication channels (mostly Substack at this stage) while they are sedating me every night and the keyhole surgery scar returns. When I do find out about the surgeries, I realize they're dropping the Jews in it - perhaps they're aware my internal injuries are not going to be ignorable for so long. This action of the mousses throwing the Jews under the bus becomes significant and top-of-mind and I start to think about Sullivan...
 1. Was Vincent from Singapore the surgeon at Loka Yoga. He, his mum, and one other woman "Carolina" (did she switch accents from German to Australian? that seemed to be happening with them too) who was pretending off-and-on to be a "bridge" manager official, were staying close to me in one estate while the majority of the other participants stayed in a different place. Something happened to Vincent, he was injured while surfing he told me. I wonder what really happened...
 1. Did Rich Freed, Stella, and the mousses procure the women like myself and Natalia to send into hell, hacking our devices and getting info? Does that mean Domingo is a mousse-pal, an inside man?
+1. Was setting up Stella in Bali at Loka Yoga the beginning of them throwing her under the bus?
 
 ### August 2026
 
