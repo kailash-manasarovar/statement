@@ -149,6 +149,7 @@
 ### December 2025
 
 1. Oliver name of medic at Fitkoh.
+1. Just before they add an event to my Google calendar, and I pack and no-one comes, for the last few days before that on whatever comes up on my front page is messages about a intense 30 day AI course.
 
 ### April 2026
 
