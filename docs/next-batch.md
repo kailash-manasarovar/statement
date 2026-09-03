@@ -71,6 +71,10 @@
 
 1. May 2023: The lives of others. The message in the tweet (if you translate it) is astonishing. I can't believe I missed it all, it was so obvious. I guess this is proof I was totally out of my mind on herbs, drugs, hallucinogens, whatever. And, I guess many of the tweets I have posted in this police statement must be similarly breathtaking.
 
+### August 2023
+
+- These dates have been tampered with: [Torus email](content/documents/emails/torus-scam-email-august-2023.pdf) because I was interacting with this recruiter in Cauterets at my desk in the hotel there, not at home. This Morgan McCarthy no longer exists on LinkedIn. I think this was part of the set up for me taking a job with Polygon with the Elon scam already in play.
+
 ### December 2023
 
 1. CCTV at Lourdes on December 8th 2023 too. We'll like also be on Lourdes sanctuary CCTV.
