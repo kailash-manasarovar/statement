@@ -25,8 +25,8 @@
     1. God does not support it and sends the DANA.
     1. The rogue band of lupins does not heed the warning; some even accepting government awards on the day the mousses order her murder.
     1. Our heroine is innocent of all blame, and knows it, and is unashamed of anything that has happened (a bit embarrassed sometimes) and there is no reason for anyone to hate her, but still they do.
-    1. So she prays. A lot. And survives attempts at her murder again and again and again.
-    1. The mousses are dumbfounded and don't know what to do now.
+    1. So she prays. A lot. And survives attempts at her murder again and again and again - see Jesus's instructions on this in the gospels.
+    1. The mousses are dumbfounded and don't know what to do.
     1. They formally take over, relieving the rogue band of lupins from their failing efforts.
     1. The mousses want what she has: the ability to survive poisoning.
     1. So they decide, in their infinite lack of wisdom, that they will make babies from her eggs, that they will steal, and those babies will survive poisoning.
