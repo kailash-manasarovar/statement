@@ -7,15 +7,29 @@
 ### Home
 
 1. New summary: 
-    1. Lupins do terrible thing at mousses request - with the help of the onions.
-    1. Lupins are asked by someone very angry at terrible thing to help them with revenge against the mousses.
-    1. Lupins get started on revenge program, and realize they are completely untouchable; in fact the whole region is.
-    1. They go formally criminal insane, worsening over decades to the current state of industrial-scale baby-rape and implementing mass online manipulation revenge policies against the mousses.
-    1. Apparently normal men are sucked into the hell, with no escape - but maybe they don't mind.
-    1. Our hero enters the pic, totally unawares of what's going on, is targeted and fights the good fight.
-    1. She does so well, in fact, they get worse and worse on her, telling the whole region to hate her, which they agree to do, while she feels completely innocent (and is, in fact) of all blame and can find no reason for anyone to hate her, but they do.
-    1. So she prays. A lot. And survives again and again and again. (Minus the nearly two years now bit where one criminal gang (the mousses) swaps for another (the lupins) and causes her EVEN WORSE DISTRESS AND PAIN... if that were possible, yes, it was possible).
-    1. And here we are.
+    1. Lupins do terrible thing at mousse's request - with the help of the onion-soups.
+    1. Lupins only get paid half of what they've been promised by the mousses. The other half is never forthcoming. Lupins are told all sort of BS about why they're not getting paid.
+    1. Lupins get started on revenge program to the half that didn't pay them and that means murdering innocent tax-paying British women either visiting the region or living there.
+    1. This rogue band of lupins then go formally criminal insane, mainly because they are never called to account for their actions and they never get their missing money either.
+    1. It doesn't get any better for this rogue group of lupins, in fact their insanity worsens over the years to the current state of industrial-scale baby-rape, full infiltration by criminal pornographers into the Spanish school system, and alongside that, implementing mass online manipulation revenge policies against the mousses which have been very effective.
+    1. This rogue band of lupins has been watching too many Sergio Leone films and believe they "live for revenge" -> I have a fake account with that as profile, in fact.
+    1. To feed the porn-hell they are creating, thousands and thousands of apparently normal men are sucked in, seemingly with no escape - but maybe they don't mind, are they told *why* they'll never see a prison cell (a lie, but the rogue band of lupin do not know it's a lie, do they)?
+    1. Our heroine enters the pic, totally unawares of what's going on, totally innocent, but with a tendency to say interesting things and make strange shapes with her face.
+    1. She is targeted and made famous in sedated rape-porn internationally. So famous that random men recognize her wherever she goes in the world. 
+    1. She fights the good fight over two decades.
+    1. She does so well, surprising everyone, that the rogue group of lupins gets worse and worse just to see how much sexual-torture she is prepared to endure (she doesn't know, she's sedated) and telling lies so that the whole region in Spain will hate her and support her early demise.
+    1. God does not support it and sends the DANA.
+    1. The rogue band of lupins does not heed the warning; some even accepting government awards on the day the mousses order her murder.
+    1. Our heroine is innocent of all blame, and knows it, and is unashamed of anything that has happened (a bit embarrassed sometimes) and there is no reason for anyone to hate her, but still they do.
+    1. So she prays. A lot. And survives attempts at her murder again and again and again.
+    1. The mousses are dumbfounded and don't know what to do now.
+    1. They formally take over, relieving the rogue band of lupins from their failing efforts.
+    1. The mousses decide they want what she has: the ability to survive poisoning.
+    1. So they decide, in their infinite lack of wisdom, that they will make babies from her eggs, that they will steal, and those babies will survive poisoning.
+    1. They appear to all be atheists, or if they are religious, helplessly arrogant.
+    1. And here we are. 
+    1. Me still here - a bunch of kids on the way or just born with unknown fathers and adopted mothers I WILL BE RESCUING from! With God's help.
+    1. Such wisdom, such power, such might, such fearfulness: the mousses totally lost their minds and stole and sold my eggs off to the highest bidder, some of whom were involved in the earlier tech-bro rape-porn attacks which puts these children in jeopardy wherever they are in the world their whole lives until they're rescued by the servants of God.
 
 ### 1990
 
