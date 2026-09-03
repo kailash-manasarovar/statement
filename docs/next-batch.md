@@ -9,7 +9,9 @@
 1. New summary: 
     1. Lupins do terrible thing at mousse's request - with the help of the onion-soups.
     1. Lupins only get paid half of what they've been promised by the mousses. The other half is never forthcoming. Lupins are told all sort of BS about why they're not getting paid.
-    1. Lupins get started on revenge program to the half that didn't pay them and that means murdering innocent tax-paying British women either visiting the region or living there.
+    1. The lie the mousses tell these lupins is what fuels the rest of this sorry story.
+    1. These lupins (simple parochial folk really) go horribly rogue.
+    1. They get started on their rogue-lupin revenge program on the mousse-half that didn't pay them, and that means murdering innocent tax-paying British women visiting the region or living there.
     1. This rogue band of lupins then go formally criminal insane, mainly because they are never called to account for their actions and they never get their missing money either.
     1. It doesn't get any better for this rogue group of lupins, in fact their insanity worsens over the years to the current state of industrial-scale baby-rape, full infiltration by criminal pornographers into the Spanish school system, and alongside that, implementing mass online manipulation revenge policies against the mousses which have been very effective.
     1. Mousse-controlled government officials in Spain forbid normal law-enforcement to address these horrific crimes.
@@ -26,7 +28,7 @@
     1. So she prays. A lot. And survives attempts at her murder again and again and again.
     1. The mousses are dumbfounded and don't know what to do now.
     1. They formally take over, relieving the rogue band of lupins from their failing efforts.
-    1. The mousses decide they want what she has: the ability to survive poisoning.
+    1. The mousses want what she has: the ability to survive poisoning.
     1. So they decide, in their infinite lack of wisdom, that they will make babies from her eggs, that they will steal, and those babies will survive poisoning.
     1. And they will be very disappointed, putting those children at huge risk.
     1. The mousses appear to be atheists, or if they are religious, helplessly arrogant folk who haven't a clue Who God Is.
