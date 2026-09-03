@@ -23,7 +23,7 @@
     1. She fights the good fight over two decades.
     1. She does so well in fact, surprising everyone, that the rogue group of lupins gets worse and worse just to see how much sexual-torture she is prepared to endure (she doesn't know, she's sedated) and telling lies about her so that the whole region in Spain will hate her and support her early demise.
     1. God does not support it and sends the DANA.
-    1. The rogue band of lupins does not heed the warning; some even accepting government awards on the day the mousses order her murder.
+    1. The rogue band of lupins does not heed the warning; some even accepting mousse-funded government awards on the very day the mousses order her murder.
     1. Our heroine is innocent of all blame, and knows it, and is unashamed of anything that has happened (a bit embarrassed sometimes) and there is no reason for anyone to hate her, but still they do.
     1. So she prays. A lot. And survives attempts at her murder again and again and again - see Jesus's instructions on this in the Gospels.
     1. The mousses are dumbfounded and don't know what to do.
