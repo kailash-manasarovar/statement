@@ -29,11 +29,11 @@
     1. The mousses are dumbfounded and don't know what to do.
     1. They formally take over, relieving the rogue band of lupins from their failing efforts.
     1. The mousses want what she has: the ability to survive poisoning.
-    1. So they decide, in their infinite lack of wisdom, that they will make babies from her eggs, that they will steal, and those babies will survive poisoning.
+    1. So they decide, in their infinite lack of wisdom, that they will make babies from her eggs, that they will steal after sedating her, and those babies will survive poisoning.
     1. And they will be very disappointed, putting those children at huge risk.
     1. The mousses appear to be atheists, or if they are religious, helplessly arrogant folk who haven't a clue Who God Is.
     1. And here we are. 
-    1. Me still here - a bunch of kids on the way or just born with unknown fathers and adopted mothers I WILL BE RESCUING from shortly! With God's help.
+    1. Me still here - a bunch of kids on the way or just born with unknown fathers and adopted mothers I WILL BE RESCUING from shortly! With God's Help. He told me. And it's in the bible
     1. Such wisdom, such power, such might, such fearfulness: the mousses totally lost their minds and stole and sold my eggs off to the highest bidder, some of whom were involved in the earlier tech-bro rape-porn attacks which puts these children in even more jeopardy wherever they are in the world their whole lives until they're rescued by the servants of God.
 
 !!! tip "There is no healing... without...
