@@ -31,6 +31,9 @@
     1. Me still here - a bunch of kids on the way or just born with unknown fathers and adopted mothers I WILL BE RESCUING from! With God's help.
     1. Such wisdom, such power, such might, such fearfulness: the mousses totally lost their minds and stole and sold my eggs off to the highest bidder, some of whom were involved in the earlier tech-bro rape-porn attacks which puts these children in jeopardy wherever they are in the world their whole lives until they're rescued by the servants of God.
 
+!!! tip "There is no healing... without...
+    - The abomination of desolation factored in. And that is spilling the onion-soup all over the world. Sorry.
+
 ### 1990
 
 1. Is this Sullivan *the* Sully from the film? I didn't think the man was a pilot but maybe he trained. I guess we'll find out.
