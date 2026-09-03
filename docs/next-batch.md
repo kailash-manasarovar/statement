@@ -12,8 +12,10 @@
     1. Lupins get started on revenge program to the half that didn't pay them and that means murdering innocent tax-paying British women either visiting the region or living there.
     1. This rogue band of lupins then go formally criminal insane, mainly because they are never called to account for their actions and they never get their missing money either.
     1. It doesn't get any better for this rogue group of lupins, in fact their insanity worsens over the years to the current state of industrial-scale baby-rape, full infiltration by criminal pornographers into the Spanish school system, and alongside that, implementing mass online manipulation revenge policies against the mousses which have been very effective.
-    1. This rogue band of lupins has been watching too many Sergio Leone films and believe they "live for revenge" -> I have a fake account with that as profile, in fact.
-    1. To feed the porn-hell they are creating, thousands and thousands of apparently normal men are sucked in, seemingly with no escape - but maybe they don't mind, are they told *why* they'll never see a prison cell (a lie, but the rogue band of lupin do not know it's a lie, do they)?
+    1. Mousse-controlled government officials in Spain forbid normal law-enforcement to address these horrific crimes.
+    1. The rogue band of lupins in Denia has been watching too many Sergio Leone films and believe they "live for revenge" -> I have a fake account with that as profile, in fact.
+    1. To feed the murderous porn-hell they are creating, and an integral part of their revenge policy, thousands and thousands of apparently normal men are sucked into it; seemingly with no escape - but maybe they don't mind (are they told *why* they'll never see a prison cell -a lie, but the rogue band of lupins do not know it's a lie yet, do they)?
+    1. Good (better than the rogue ones) lupins in the region don't know what to do and it's gone on so long that even their own children are in danger!
     1. Our heroine enters the pic, totally unawares of what's going on, totally innocent, but with a tendency to say interesting things and make strange shapes with her face.
     1. She is targeted and made famous in sedated rape-porn internationally. So famous that random men recognize her wherever she goes in the world. 
     1. She fights the good fight over two decades.
