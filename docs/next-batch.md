@@ -46,7 +46,7 @@
     - And eliminating rogue operations wherever they may be found.
     - And dedicating the future to God and His miracles.
 
-1. Squirrel brings a whole nest of vipers with him in August 2025 -> for reasons vague and unbeknownst to me at this stage. Is it the *bad but not as bad as* Domingo's lot? Have they managed to convince the UN and mousses they're in danger? Why am I still running around being stalked continuously and operated on and injured on a regular basis if they're in that much danger? Oh yeah, the mousses are in fact the ones we need to worry about.
+1. Squirrel brings a whole nest of vipers with him in August 2025 -> for reasons vague and unbeknownst to me at this stage. Is it the *bad but not as bad as* Domingo's lot? Have they managed to convince the UN and the mousses they're the ones in danger? Why am I still running around being stalked continuously and operated on and injured on a regular basis by the mousses if these people in that much danger? Oh yeah, the mousses are in fact the ones we need to worry about. Did they ship them all to Israel for their "switcheroo" blame passing they're fully committed to? Indeed, it's like an unconscious twitch, isn't it. 
 
 ### 1990
 
