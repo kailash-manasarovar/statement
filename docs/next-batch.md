@@ -38,7 +38,7 @@
     1. Me still here - a bunch of kids on the way or just born with unknown fathers and adopted mothers I WILL BE RESCUING from shortly! With God's Help. He told me. And it's in the Bible.
     1. Such wisdom, such power, such might, such fearfulness: the mousses totally lost their minds, stole and sold my eggs off to the highest bidder, some of whom were involved in the earlier tech-bro rape-porn attacks, which puts these children in even more jeopardy wherever they are in the world their whole lives until they're rescued by the servants of God. Which IS happening next.
     1. But the most sickening thing about the mousse pivot is... they have spent nearly three years obsessing over me while Spanish babies, children, and women continue to be sedated, raped, and murdered at the altar of porn in Las Marinas.
-    1. And perhaps even more sickening is the fact that these perverts used this lie, believing it to be true themselves, to convince men to take part in the most vile acts imaginable, assuring them they would never be called to account. Their betrayal is [add-word-we-do-not-have-to-describe-such-evil-here].
+    1. And perhaps even more sickening is the fact that these perverts used this lie, believing it to be true themselves, to convince men to take part in the most vile acts imaginable, assuring them they would never be called to account. Their betrayal is [add-word-we-do-not-have-to-describe-such-evil-here]. 
 
 !!! tip "There is no healing without"
     - The abomination of desolation factored in. And that means spilling the 50 million onion-soups all over the world. Sorry.
@@ -47,7 +47,7 @@
     - And eliminating rogue operations wherever they may be found.
     - And dedicating the future to God and His miracles.
 
-1. Squirrel brings a whole nest of vipers with him in August 2025 -> for reasons vague and unbeknownst to me at this stage. Is it the *bad but not as bad as* Domingo's lot? Have they managed to convince the UN and the mousses they're the ones in danger? Why am I still running around being stalked continuously and operated on and injured on a regular basis by the mousses if these people in that much danger? Oh yeah, the mousses are in fact the ones we need to worry about. Did they ship them all to Israel for their "switcheroo" blame passing they're fully committed to? Indeed, it's like an unconscious twitch, isn't it. 
+1. Squirrel brings a whole nest of vipers with him in August 2025 -> for reasons vague and unbeknownst to me at this stage. Is it the *bad but not as bad as* Domingo's lot? Have they managed to convince the UN and the mousses they're the ones in danger? Why am I still running around being stalked continuously and operated on and injured on a regular basis by the mousses if even a nest of vipers are in that much danger? And did they ship them all off to Israel so they could save face, more "switcheroo" blame passing. Indeed, it's like an unconscious twitch, isn't it. 
 
 ### 1990
 
