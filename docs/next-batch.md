@@ -38,6 +38,7 @@
     1. Me still here - a bunch of kids on the way or just born with unknown fathers and adopted mothers I WILL BE RESCUING from shortly! With God's Help. He told me. And it's in the Bible.
     1. Such wisdom, such power, such might, such fearfulness: the mousses totally lost their minds, stole and sold my eggs off to the highest bidder, some of whom were involved in the earlier tech-bro rape-porn attacks, which puts these children in even more jeopardy wherever they are in the world their whole lives until they're rescued by the servants of God. Which IS happening next.
     1. But the most sickening thing about the mousse pivot is... they have spent nearly three years obsessing over me while Spanish babies, children, and women continue to be sedated, raped, and murdered at the altar of porn in Las Marinas.
+    1. And perhaps even more sickening is the fact that these perverts used this lie, believing it to be true themselves, to convince men to take part in the most vile acts imaginable, assuring them they would never be called to account. Their betrayal is [add-word-we-do-not-have-to-describe-such-evil-here].
 
 !!! tip "There is no healing without"
     - The abomination of desolation factored in. And that means spilling the 50 million onion-soups all over the world. Sorry.
