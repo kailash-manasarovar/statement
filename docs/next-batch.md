@@ -178,6 +178,7 @@
 
 1. China taxi where the driver was organized by the hotel - spys everywhere. He is interested in me and at one stage tells me, after I've told him I'm going trekking in Tibet: *they'll organize a team* and I assumed he was talking about a team of agents to accompany me on the trip, which they did do, but they were pretending they were from multiple agencies, and they were just mousses.
 1. I notice multiple little scratches on the skin around the area of my left kidney, as if a little gnat had been biting away at me, but only there and nowhere else.
+1. Who dun it? A couple of them probably. The rest were independent witnesses from multiple jurisdictions.
 
 ### July 2026
 
