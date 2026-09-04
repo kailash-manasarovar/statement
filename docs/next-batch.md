@@ -198,6 +198,10 @@
 1. In Jerusalem I visit the Wall every day, it's like visiting God Himself. Some days I visit David's tomb too - these are often the days when I feel like I'm on the battlefield and need some spiritual-warrior strength. I'm very conscious of the bloodline to Jesus but I'm not interested in the Christian sites so much.
 1. One day in Jerusalem, I suggest to my online friends that squirrel and I might do well in India because if the mousses are controlling everyone, at least me and him might stand a chance together in India - I talk a lot like this online (I never save these things, but they always know) ... I also look up "asylum in India" processes online. The next morning outside David's tomb they've set up an Indian woman with a MASSIVE plastic sign saying something like "Join us, you will be safe", or some such.. this is why I say these things about escape to India... but if the mousses control India, then that's out too even!
 
+### September 2026
+
+- Looking forward to another productive month of additions and publishing, and hopefully not too much mousse fannying around, por favor.
+
 ### Vidal Sastre Sanchez Hornero
 
 1. Number 6 trumpet teacher: add Viktor porn with the bankteller example.
