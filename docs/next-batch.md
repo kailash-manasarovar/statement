@@ -136,6 +136,10 @@
 
 1. Texting Rich Freed from the Spa Samui desperate for some help. He texts me back he is in Bali.
 
+### January 2025
+
+1. Paul's description of how he caught Diana as she fell in Camden High Street!
+
 ### May 2025
 
 1. Babies and pregnancy signals in Israel module 2 May 2025 and how I read it as "when the investigation is over" and everyone can speak plainly, I might consider having babies.
