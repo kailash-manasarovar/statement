@@ -180,7 +180,7 @@
 ### August 2026
 
 1. In Dubai after a month of swimming a km to a mile every day or every two days at the YMCA in Jerusalem, the groin injury - it is inner groin - is paining me during the night. It's something to do with the mattress which puts my rump/hips/groin in a lower position than my legs. I swim breaststroke and so kick out a lot and noticed the groin injury complaining a bit while swimming but it doesn't make sense unless it is structural, a caused injury, broken sutures, something surgical gone wrong and reopened again and again.
-1. And who was the woman at departures? I got jealous and remembered how awful that all was and started thinking of a cave or the nunnery again... was she Brunhilda?
+1. And who was the woman at departures? I got jealous and remembered how awful that all was and started thinking of a cave or the nunnery again... was she Brunhilda? Isaiah 57. A nest indeed.
 
 ### Vidal Sastre Sanchez Hornero
 
