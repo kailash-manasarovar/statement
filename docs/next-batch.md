@@ -48,6 +48,13 @@
     - And dedicating the future to God and His miracles.
 
 1. Squirrel brings a whole nest of vipers with him in August 2025 -> for reasons vague and unbeknownst to me at this stage. Is it the *bad but not as bad as* Domingo's lot? Have they managed to convince the UN and the mousses they're the ones in danger? Why am I still running around being stalked continuously and operated on and injured on a regular basis by the mousses if even a nest of vipers are in that much danger? And did they ship them all off to Israel so they could save face, more "switcheroo" blame passing. Indeed, it's like an unconscious twitch, isn't it. 
+1. Another obvious question is... if we now know the mousses were drugging me throughout 2025, why would they be so keen I didn't remember the switcheroo men? Is it so they can continue to protect themselves? Is that why (did I hear it was a UN raid?) they shipped half the team off to Israel, to silence them?
+1. My view is that, given how they have treated me, they fully intended to murder me. I mean, where else do their actions towards me lead to logically?
+1. But, also, they have had to be "pretending" they care, and are doing something, not just to me but to bloody everyone looking now and that's a lot of people... which is good. I'm so glad I never shut up!
+1. Were the Spanish in Jerusalem in a terribly celebratory mood because finally they can see a future where they might be able to protect their own children? If so, please forgive me for giving you all such a hard time...
+1. Is the recent "drowning" in a hot tob of a young British couple on holiday a step up in the "life of revenge" of the Lopez Cano's?
+1. If they found out they'd been lied to by the mousses all these years - people who have been pretending to be their friends, just like they did to me - would they all self-implode do you think?
+1. Where do the mousses think such a course of action ends? Both sides can't keep bumping people off forever, can they?
 
 ### 1990
 
@@ -82,6 +89,13 @@
 - One thing about Domingo on this trip which I found extremely weird was his little black bag... it was a businessman's bag, nearly a full briefcase, let's say halfway there, very formal. I couldn't understand why he would bring such a thing it was so strange. I just remembered it in his hand as he was jumping up and down. I never figured out why he would carry a bag like that, and when he became so obviously evil I wondered if it was for *paperwork* of some sort. It was a paperwork bag/case (not a briefcase exactly). At the time, I thought he was so ignorant (unworldly, like he'd never been out of Denia) that he must be trying to impress someone, me maybe, but not for long he was so rude to me and we hadn't even left Spain. Did they not get paid, or was this the most outrageous switcheroo the mousses have ever set up? (We know they like them so much). And no-one stood up to them.
 - Interestingly, the words I used to describe Domingo's "immature unworldliness" to Inma that Christmas - like he'd never been out of Denia in his life - Paloma repeated back at me verbatim in October 2024. Perhaps a certain immaturity such as Domingo's would be prone to believe a "switcheroo" set up without too much question. In the words of Violetta Cope from my TT class, the irony is *delicious*! They have been *desperate* I believe such an outrage too. Would they have realized what such a lie would trigger? I doubt it.
 - In March 2023, at one of my piano classes with Maria H, Mercedes is there. She has brought Maria a black bag as a gift, and it's the same size, color, shape, and style as the bag Domingo carried with him to London with me. I'm so high I see it, notice it, think they're crazy, and then forget about it. They must have thought I was fully in on it - and maybe someone (upstairs) wanted them to think that... and put words in my mouth. That's interesting isn't it. Like the ape thing before... and the woman on the tube blowing my (not) cover and putting me in even more danger. I bet there's loads more examples of this I'm so intuitive I just play people back at themselves all the time, so easily misread.
+
+### 2019
+
+- I visit Chris Ludwick, this is when I tell him about crypto and he gets into it.
+- He has a picture of Diana on his wall, it's a bit incongruous. I ask him why he's got Diana up.
+- He says "cos I like her".
+- I think, fair enough.
 
 ### June 2022
 
