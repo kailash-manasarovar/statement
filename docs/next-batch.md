@@ -7,10 +7,12 @@
 ### Home
 
 1. New summary: 
-    1. Lupins do terrible thing at mousse's request - with the help of the onion-soups.
-    1. Lupins only get paid half of what they've been promised by the mousses. The other half is never forthcoming. Lupins are told all sorts of BS about why they're not getting paid.
-    1. The lie the mousses tell these lupins is what fuels the rest of this sorry story.
-    1. These lupins (simple parochial folk really) go horribly rogue.
+    1. Rogue group of lupins do terrible thing at mousse's request - with the help of the onion-soups.
+    1. Lupins only get paid half of what they've been promised by the mousses. The other half is never forthcoming (I wonder if they just didn't get paid at all, that'd make one sufficiently angry).
+    1. Did the shock of the enormous and totally unexpected reaction to their evil frighten them?
+    1. Lupins are told all sorts of BS about why they're not getting paid by the mousses they work closely with on other matters, mousses insisting it's nothing to do with them.
+    1. The *biggest lie the world has ever known* that the mousses tell these lupins is what fuels the rest of this sorry story.
+    1. These lupins (simple parochial folk really) go horribly rogue - I suppose the mousses thought so little of them, and it was such a horrific request, and upset so many people, that they unwisely thought this was the way to hide from the responsibility for it forever. Quite the error!
     1. They get started on their rogue-lupin revenge program on the mousse-half that (they believe) didn't pay them, and that means murdering innocent tax-paying British women visiting the region or living there.
     1. This rogue band of lupins then go formally criminal insane, mainly because they are never called to account for their actions and they never get their (apparently) missing money either.
     1. It doesn't get any better for this rogue group of lupins, in fact their insanity worsens over the decades to the current state of industrial-scale baby-rape and pedophilia, full infiltration by criminal pornographers into the Spanish school system, horror jacuzzi deaths in Cullera, and alongside that, implementing mass online-manipulation revenge policies against the mousses which have been unusually and whole-world-destroyingly effective.
@@ -43,6 +45,8 @@
     - Remember?
     - And eliminating rogue operations wherever they may be found.
     - And dedicating the future to God and His miracles.
+
+1. Squirrel brings a whole nest of vipers with him in August 2025 -> for reasons vague and unbeknownst to me at this stage. Is it the *bad but not as bad as* Domingo's lot? Have they managed to convince the UN and mousses they're in danger? Why am I still running around being stalked continuously and operated on and injured on a regular basis if they're in that much danger? Oh yeah, the mousses are in fact the ones we need to worry about.
 
 ### 1990
 
@@ -85,6 +89,7 @@
 ### July 2022
 
 1. Fiona's murdered ACIM student - July 2022 Glastonbury Wearyall Hill. Fiona played us her singing live in Glastonbury Town Hall in the 90s I think, and called her "my love". She didn't seem sad when she told us she'd been murdered. I guess she got over it, or perhaps she's angry, unclear. She then plays, inordinately gushing as she does so, New York (the r&b one, female singer, is it Beyonce, I've no idea... never grabbed me much). I find all this a bit strange, notable, exaggerated, offkey, rememberable. 
+1. I emailed Fiona at some point asking for a link to her music. I was going to put it on one of my "play lists" so I guess it was around summer 2023 I reached out to her. There was no reply. Did she get the email?
 1. Fiona is the key. Saint Michael's team told me Fiona and I remembered my old friend Fiona Thompson but they did not look like each other. I thought it could be Fiona from Wearyall Hill, but it didn't make sense so I went with Hazel. It's her. *And* she's an old friend.
 1. Karina is coming up now, but I'm not sure who she is. Is that Hazel?
 1. Stein came up... but I don't know who this is. Judith Stein is ringing around my ears but Stein might also have been the woman who upset me in Dublin. Maybe this is the *Karina*... I guess we'll find out.
@@ -145,15 +150,17 @@
 1. Add hacked GA from November 2025 to April 2026.
 1. Mousses pretending they're helping me with the investigation: Holly Hunter look alike at the Anantara. Tweeted about this. Someone replies *Liar*. The mousses are pretending to be the criminal gangs now, keeping me distracted for violation purposes.
 1. Mousses pretending they're helping me with the investigation: American woman in BKK after I left the Oriental on her phone loudly saying, *we're gonna get every last one of them*.
+1. Visiting India. On the way back from Ahmadabad to BKK, there is a "team" - quick aside: every time I fly now there are agents assigned to sit with me. However, this is a particularly unusual team. Three "very" Jewish looking American men shepherded by a couple of Indian officials. I'm sitting in the front pretty much alone (the first few rows are clear apart from me, and one Indian official woman sitting directly in front of me). These three get on and they're mucking around and quite funny, I mean they're behaving like giggly children, and they're making me laugh too, the stewardess tells them to behave. Everyone stretches out to sleep (the rest of the plane is full). One of them sitting behind me says: *you're safe now* or things of that nature. I know this is all for me and I'm expected to think it's a rescue team. They do not rescue me.
 
 ### December 2025
 
 1. Oliver name of medic at Fitkoh.
-1. Just before they add an event to my Google calendar, and I pack and no-one comes, for the last few days before that on whatever comes up on my front page is messages about a intense 30 day AI course.
+1. Just before they add an event to my Google calendar, and I pack and no-one comes, for the last few days before that on whatever comes up on my front page is messages about a intense 30 day AI course I'm going to be beginning.. the implication is once I've been rescued I can start learning AI intensely. Again, like the Calendar entry, it feels bogus but whatever.
 
 ### April 2026
 
 1. TT in April 2026, Steve is bullying Gerardine and Yvonne.
+1. Steve, Robin, and I are having dinner at the hotel near the Avila centre. It's probably just a couple of days before the first course begins and maybe the first time I see them. Steve announces that the King is visiting Trump next week and at that time he will step down, move to the Caribbean, and his son will become king. I ask Steve where he heard this (nonsense, I don't say nonsense but my face and grin is saying it)? Steve seems a little surprised I haven't just accepted everything he just told me. He mumbles AOL.. I know he's being fed BS online, but I'm a little curious as to how they trigger him to say it to me, is this a "formal" instruction, or manipulated?
 1. My brother's friend Milan, a Jain, is on the phone recommending fertility herbs. In fact, that's about all he says with any actual content in it. I buy some and take them probably from April/May 2025 through to the end of the year. Coincidence? He's apparently in tech and I extend an invite into the forgivenet and he dismisses it completely, but keeps on telling me about the fertility herbs. MOUSSE!
 
 ### May 2026
