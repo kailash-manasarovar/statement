@@ -99,6 +99,12 @@
 1. November 22 - when my Hanuman figure pops out of my bag on a walk with the British ladies and everyone's interested...Trish is standing to one side reporting back. She has been instructed to report back on everything I do because they know I am a CIA intuitive.
 1. Hanuman's entry into this story early on was remarkable, and he has never left me for a second. It was even earlier than I thought too. October 2019 with guruji in Rishikesh (is that was lady at 2. wanted to hear about?)
 
+### Jan-May 2023
+
+- Is this the moment to tell them about the impressions I was doing of her when walking through the tunnel on my way home from the conservatory, totally high, and probably just dosed up with a sedative kicking in.
+- There'll be footage of that.
+- I can still feel my face going into that position... I never knew what that was all about, hadn't a clue. Just a simple servant of the Lord.
+
 ### May 2023
 
 1. May 2023: The lives of others. The message in the tweet (if you translate it) is astonishing. I can't believe I missed it all, it was so obvious. I guess this is proof I was totally out of my mind on herbs, drugs, hallucinogens, whatever. And, I guess many of the tweets I have posted in this police statement must be similarly breathtaking.
