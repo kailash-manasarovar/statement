@@ -48,13 +48,15 @@
     - And dedicating the future to God and His miracles.
 
 1. Squirrel brings a whole nest of vipers with him in August 2025 -> for reasons vague and unbeknownst to me at this stage. Is it the *bad but not as bad as* Domingo's lot? Have they managed to convince the UN and the mousses they're the ones in danger? Why am I still running around being stalked continuously and operated on and injured on a regular basis by the mousses if even a nest of vipers are in that much danger? And did they ship them all off to Israel so they could save face, more "switcheroo" blame passing. Indeed, it's like an unconscious twitch, isn't it. 
-1. Another obvious question is... if we now know the mousses were drugging me throughout 2025, why would they be so keen I didn't remember the switcheroo men? Is it so they can continue to protect themselves? Is that why (did I hear it was a UN raid?) they shipped half the team off to Israel, to silence them?
-1. My view is that, given how they have treated me, they fully intended to murder me. I mean, where else do their actions towards me lead to logically?
+1. Another obvious question is... if we now know the mousses were drugging me throughout 2025, why would they be so keen I didn't remember the switcheroo men? Is it so they can continue to protect themselves because the switcheroo men can spill the beans? Is that why (did I hear it was a UN raid?) they shipped half the team off to Israel, to silence them, keep them from talking?
+1. Do you think if my viper chums did start to speak, or anyone did outside of mousse control, the lie would become VERY QUICKLY APPARENT to the whole world? I bet it would.
+1. My view is that, given how they have treated me, they fully intended to murder me. I mean, where else do their actions towards me lead to logically? There is nowhere else for their plots to go/
 1. But, also, they have had to be "pretending" they care, and are doing something, not just to me but to bloody everyone looking now and that's a lot of people... which is good. I'm so glad I never shut up!
-1. Were the Spanish in Jerusalem in a terribly celebratory mood because finally they can see a future where they might be able to protect their own children? If so, please forgive me for giving you all such a hard time...
-1. Is the recent "drowning" in a hot tob of a young British couple on holiday a step up in the "life of revenge" of the Lopez Cano's?
-1. If they found out they'd been lied to by the mousses all these years - people who have been pretending to be their friends, just like they did to me - would they all self-implode do you think?
-1. Where do the mousses think such a course of action ends? Both sides can't keep bumping people off forever, can they?
+1. Remind me to never shut up!
+1. Were the Spanish in Jerusalem in a terribly celebratory mood because finally they can see a future where they might be able to protect their own children? If so, please forgive me for giving you all such a hard time... it's been quite a twist and turn of a thousand knots to undo...
+1. Is the recent "drowning" in a hot tob of a young British couple on holiday in Cullera - incidentally where Paloma told me to move to - a step up in the "life of revenge" of the Lopez Cano's?
+1. If the Lopez Cano's found out they'd been lied to by the mousses all these years - people who have been pretending to be their friends, just like they did to me - would they all self-implode do you think?
+1. Where do the mousses think such courses of action ends? Both sides can't keep bumping people off forever, can they? 
 
 ### 1990
 
