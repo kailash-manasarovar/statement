@@ -9,7 +9,7 @@
 1. New summary: 
     1. Rogue group of lupins do terrible thing at mousse's request - with the help of the onion-soups.
     1. Lupins only get paid half of what they've been promised by the mousses. The other half is never forthcoming (I wonder if they just didn't get paid at all, that'd make one sufficiently angry).
-    1. Did the shock of the enormous and totally unexpected reaction to their evil frighten them?
+    1. Did the sound of thunder promised by the shock of the enormous and totally unexpected reaction to their evil frighten everyone and get them scrabbling around making deadly errors?
     1. Lupins are told all sorts of BS about why they're not getting paid by the mousses they work closely with on other matters, mousses insisting it's nothing to do with them.
     1. The *biggest lie the world has ever known* that the mousses tell these lupins is what fuels the rest of this sorry story.
     1. These lupins (simple parochial folk really) go horribly rogue - I suppose the mousses thought so little of them, and it was such a horrific request, and upset so many people, that they unwisely thought this was the way to hide from the responsibility for it forever. Quite the error!
