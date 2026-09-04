@@ -151,6 +151,7 @@
 1. Mousses pretending they're helping me with the investigation: Holly Hunter look alike at the Anantara. Tweeted about this. Someone replies *Liar*. The mousses are pretending to be the criminal gangs now, keeping me distracted for violation purposes.
 1. Mousses pretending they're helping me with the investigation: American woman in BKK after I left the Oriental on her phone loudly saying, *we're gonna get every last one of them*.
 1. Visiting India. On the way back from Ahmadabad to BKK, there is a "team" - quick aside: every time I fly now there are agents assigned to sit with me. However, this is a particularly unusual team. Three "very" Jewish looking American men shepherded by a couple of Indian officials. I'm sitting in the front pretty much alone (the first few rows are clear apart from me, and one Indian official woman sitting directly in front of me). These three get on and they're mucking around and quite funny, I mean they're behaving like giggly children, and they're making me laugh too, the stewardess tells them to behave. Everyone stretches out to sleep (the rest of the plane is full). One of them sitting behind me says: *you're safe now* or things of that nature. I know this is all for me and I'm expected to think it's a rescue team. They do not rescue me.
+1. It is events like this (yes, there are more) that make me certain, as in KNOWING certainty, of how far up India's arse the mousses are.
 
 ### December 2025
 
@@ -188,6 +189,8 @@
 
 1. In Dubai after a month of swimming a km to a mile every day or every two days at the YMCA in Jerusalem, the groin injury - it is inner groin - is paining me during the night. It's something to do with the mattress which puts my rump/hips/groin in a lower position than my legs. I swim breaststroke and so kick out a lot and noticed the groin injury complaining a bit while swimming but it doesn't make sense unless it is structural, a caused injury, broken sutures, something surgical gone wrong and reopened again and again.
 1. And who was the woman at departures? I got jealous and remembered how awful that all was and started thinking of a cave or the nunnery again... was she Brunhilda? Isaiah 57. A nest indeed. Gosh, this is gonna be such a cool parallel plot line.
+1. In Jerusalem I visit the Wall every day, it's like visiting God Himself. Some days I visit David's tomb too - these are often the days when I feel like I'm on the battlefield and need some spiritual-warrior strength. I'm very conscious of the bloodline to Jesus but I'm not interested in the Christian sites so much.
+1. One day in Jerusalem, I suggest to my online friends that squirrel and I might do well in India because if the mousses are controlling everyone, at least me and him might stand a chance together in India - I talk a lot like this online (I never save these things, but they always know) ... I also look up "asylum in India" processes online. The next morning outside David's tomb they've set up an Indian woman with a MASSIVE plastic sign saying something like "Join us, you will be safe", or some such.. this is why I say these things about escape to India... but if the mousses control India, then that's out too even!
 
 ### Vidal Sastre Sanchez Hornero
 
