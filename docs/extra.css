@@ -870,3 +870,25 @@ div.main .nav-content {
 	}
 }
 /** END OF SECTION FRONT PAGES **/
+
+.kindle-link {
+  display: inline-block;
+  margin-left: 12px;
+  padding: 5px 10px;
+  border-radius: 5px;
+  background: #f59e0b;
+  color: #fff !important;
+  text-decoration: none !important;
+  font-size: 0.65em;
+  font-weight: 600;
+  line-height: 1.2;
+  white-space: nowrap;
+  vertical-align: middle;
+}
+
+.kindle-link:hover {
+  background: #d97706;
+  color: #fff !important;
+  text-decoration: none !important;
+}
+/**
