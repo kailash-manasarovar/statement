@@ -237,7 +237,9 @@
 
 - Looking forward to another productive month of additions and publishing, and hopefully not too much mousse fannying around, por favor.
 - Speaking of Great Rays, I think we found another greatest-of-all-time to add to the collection: *Dennis Moore and his lupins*, amiright? I'm sketchy on this but it feels like it might be spectacular.
-- Another CIA prepared dwelling in Cauterets. Just like the one in July-August 2025 they had months to prepare it. I dunno, obviously there's still monitoring stuff but it seems like it might be quieter than expected... oh apart from the door ring which is a no doubt an intuitive-threat, and the same font as the Futarderie, except I really don't care what they do or say now, they went above and beyond and must be judged on their own standards.
+- Another CIA prepared dwelling in Cauterets. Just like the one in July-August 2025, they had months to prepare it. I dunno, obviously there's still monitoring stuff but it seems like it might be quieter than expected... oh apart from the door ring which is a no doubt an intuitive-threat - did they forget to remove it? It's the same font as the *Futarderie*, except I really don't care what they do or say now, they went above and beyond and must be judged by their own lofty standards.
+
+![Madame Sordes](content/images/madame-sordes.png)
 
 ### Vidal Sastre Sanchez Hornero
 
