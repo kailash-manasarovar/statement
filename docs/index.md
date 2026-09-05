@@ -217,16 +217,16 @@ I continue to walk with God.
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
-- And throughout my stay in Cauterets after poisoning, they gave me a lot of information online.
-- They told me he was going to be rescued and taken to Israel and they even gave me a date and time (it was a Monday that's all I can remember), and we were even doing the same body position the evening it happened, am i right?
+- After saying "sorry hola" on my mobile before poisoning - to confuse me - and throughout my stay in Cauterets after surviving poisoning, the Americans gave me a lot of information online.
+- They told me he was going to be rescued and taken to Israel and they even gave me a date and time for it - it was a Monday that's all I can remember, I was in the mountains that day or the day after.
 - And, online, they were pretending to me they were *only* Israelis and only Israeli's were involved in rescuing him, and him alone.
 - I understand why the Americans were lying to me about Israel; they do that *ALL THE TIME* and we expect it from them.
 - But why lie to me about the nature of the extraction? What did they hope to gain? How were they planning on manipulating the story around favorably to them? My view is when we hear what they told everyone - the UN, the other mousses, and the Israeli's - we will know.
 - Or do they not even tell anyone anything; they just order and you have to follow. Seems likely.
-- On my recent visit to Israel in July-August 2025, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and one other I had never seen before but it seems any communication is memorable, even without the body's perceptive faculties, which is *soooo* interesting, don't you think.
-- So I'm not sure where we go from here. It's so curious, I can't imagine what the American's intentions were... undoubtedly they're just waiting for me to die all these years. 
+- On my recent visit to Israel in July-August 2025, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and one other I had never seen before but it seems any communication is memorable.
+- So I'm not sure where we go from here. It's so curious. I can't imagine what the American's intentions were... undoubtedly they've been waiting for me to die all these years. 
 - I expect they intended to bump me off in [Bali at the torture chamber](timeline/2026/july.md#loka-yoga) because I have become their biggest problem which is ironic given they set me up to help them.
-- The sword of truth.
+- The sword of truth when wielded by liars.
 - So many things are explained now, and I'm so happy to know that even their foreign ideas cannot touch the sword of truth.
 - I just wonder what they've been telling you all too. Has it just been lies, lies, lies all the way?
 - Of course it has.
