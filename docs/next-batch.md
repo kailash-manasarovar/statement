@@ -187,6 +187,7 @@
 ### September 2025
 
 1. At module 3, Jonathan tells me out of the blue he has the shingles virus. He doesn't tell me anything else. It's out of the blue, incongruent, and I again assume he's thinking about being a sperm doner. Again, it's hints and signals, the way they do, so I just stay quiet about it, note it, find the idea of motherhood very appealing, and wonder what's going on in everyone's heads , why are they thinking about me in this way. I must be special, a little thought flies by but I don't entertain it too much and there's too much other stuff going on (constant stalking/drugging in London, dad, family, no support for hideous crimes against me and thousands of other women and children and babies, squirrel just been extracted to Israel, etc, etc.. it's intense) and so this is just another weirdness which honestly I don't have time to figure out means they've been stealing my eggs since April 2025 at least.
+1. I'm hearing "You are mine", all throughout the course.. I tell my friends online later, they don't believe me. It's interesting because everyone else thought I was theirs didn't they. Amazing how people just assume ownership of you!
 
 ### November 2025
 
