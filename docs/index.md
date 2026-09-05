@@ -210,7 +210,7 @@ I continue to walk with God.
 ### My helpers are sequestered in Israel after a UN raid
 
 - In July 2025, American Catholics, with help from the UN, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
-- They have been there ever since; working as online leaches which is what they were doing in Spain but for Adams's international porn enterprise and whichever criminal enterprise paid them.
+- They have been there ever since; working as online leaches which is what they were doing in Spain mainly for Adams's international criminal porn enterprise.
 - This had been planned for sometime but they required confirmation that I survive poisoning before they went ahead.
 - This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, in preparation.
 - And this is why [they tasked the Lopez-Cano's with my murder](timeline/2025/july.md#poisoning-ordered-by-the-mousses), which is extraordinary and adds to my assertion that the Lopez-Cano's do not know the truth about why they didn't get paid back in the 90s.
