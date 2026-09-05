@@ -211,7 +211,7 @@ I continue to walk with God.
 
 - In July 2025, American Catholics, with help from the UN, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
 - They have been there ever since; working as online leaches which is what they were doing in Spain mainly for Adams's international criminal porn enterprise.
-- This had been planned for sometime but they required confirmation that I survive poisoning before they went ahead.
+- This had been planned for some time (and may coincide with a [reported mass arrest on 22 July](https://www.europapress.es/nacional/noticia-liberadas-162-mujeres-victimas-red-explotacion-sexual-varias-provincias-espana-20250722093030.html) not yet formally confirmed), but the UN required confirmation that I survive poisoning.
 - This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, in preparation.
 - And this is why [they tasked the Lopez-Cano's with my murder](timeline/2025/july.md#poisoning-ordered-by-the-mousses), which is extraordinary and adds to my assertion that the Lopez-Cano's do not know the truth about why they didn't get paid back in the 90s.
 
