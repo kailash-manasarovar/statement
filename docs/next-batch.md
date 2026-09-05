@@ -59,6 +59,17 @@
 1. If the Lopez Cano's found out they'd been lied to by the mousses all these years - people who have been pretending to be their friends, just like they did to me - would they all self-implode do you think?
 1. Where do the mousses think such courses of action ends? Both sides can't keep bumping people off forever, can they? 
 1. I think the world needs to know, don't you? And let the chips fall where they fall. It's gone on too long now and the children have never once been out of peril since it started.
+1. Questions:   
+    1. The big one. Who decided to let them carry on with the lie, and why. I assume that mostly people are unaware of what they're supporting, or may have suspicions. 
+    1. What outcomes have their been for carrying on with the lie:
+        1. Dead women and children.
+        1. Baby-rape industrialists.
+        1. Tech-bro mass insanity.
+        1. The unquestionable disastrous state of society.
+        1. God, this is nearly a total rewrite, except I had closed in on the truth so very nearly, it looks like it will just be a small adjustment.
+        1. Given we have information about everything, an actual law-enforcement case for who murdered who (never mind why) is quick and easy and the children can be immediately safe.
+        1. Teachers at the conservatory and the wider educational system! It's not so sinister, yet, and they seem to be at the forefront of it all.
+        1. Let the chips fall where they fall as the more sinister stuff comes out... just BLOODY DO SOMETHING WILL YOU!!!! #ffs 
 
 ### 1990
 
@@ -225,6 +236,8 @@
 ### September 2026
 
 - Looking forward to another productive month of additions and publishing, and hopefully not too much mousse fannying around, por favor.
+- Speaking of Great Rays, I think we found another greatest-of-all-time to add to the collection: *Dennis Moore and his lupins*, amiright? I'm sketchy on this but it feels like it might be spectacular.
+- Another CIA prepared dwelling in Cauterets. Just like the one in July-August 2025 they had months to prepare it. I dunno, obviously there's still monitoring stuff but it seems like it might be quieter than expected... oh apart from the door ring which is a no doubt an intuitive-threat, and the same font as the Futarderie, except I really don't care what they do or say now, they went above and beyond and must be judged on their own standards.
 
 ### Vidal Sastre Sanchez Hornero
 
