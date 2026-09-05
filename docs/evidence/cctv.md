@@ -1,4 +1,4 @@
-# CCTV and surveillance
+# CCTV & surveillance
 
 <div id="google_translate_element"></div>
 <script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## CCTV
 
-- This is all terrible naive and innocent.
+- This is all terribly naive and innocent.
 
 ### La Colada laundry
 
@@ -39,6 +39,7 @@ function googleTranslateElementInit() {
 
 ## Surveillance
 
+- This is me all grown up now.
 - I now have friends (and a few dwindling enemies) literally everywhere.
 
 ### My laptop and phone
@@ -47,6 +48,7 @@ function googleTranslateElementInit() {
 - Indians.
 - Chinese.
 - British.
+- Israel.
 - Europeans and UN.
 - Criminal gangs including Italian mafia.
 - Gypsies everywhere.
