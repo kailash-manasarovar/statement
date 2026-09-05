@@ -211,23 +211,21 @@ I continue to walk with God.
 
 - In July 2025, American Catholics, with help from the UN, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
 - They have been there ever since; working as online leaches which is what they were doing in Spain mainly for Adams's international criminal porn enterprise.
-- This had been planned for some time (and may coincide with a [reported mass arrest on 22 July](https://www.europapress.es/nacional/noticia-liberadas-162-mujeres-victimas-red-explotacion-sexual-varias-provincias-espana-20250722093030.html) not yet formally confirmed), but the UN required confirmation that I survive poisoning.
-- This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, in preparation.
-- And this is why [they tasked the Lopez-Cano's with my murder](timeline/2025/july.md#poisoning-ordered-by-the-mousses), which is extraordinary and adds to my assertion that the Lopez-Cano's do not know the truth about why they didn't get paid back in the 90s.
+- This had been planned for some time (and may coincide with a [reported mass arrest on 22 July](https://www.europapress.es/nacional/noticia-liberadas-162-mujeres-victimas-red-explotacion-sexual-varias-provincias-espana-20250722093030.html)), but the UN required confirmation that I survive poisoning.
+- This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, to prep me.
+- And this is why [they tasked the Lopez-Cano's with poisoning me](timeline/2025/july.md#poisoning-ordered-by-the-mousses), which is extraordinary and adds to my assertion that the Lopez-Cano's do not know the truth about why they didn't get paid back in the 90s.
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
-- After saying "sorry hola" on my mobile before poisoning - to confuse me - and throughout my stay in Cauterets after surviving poisoning, the Americans gave me a lot of information online.
-- They told me he was going to be rescued and taken to Israel and they even gave me a date and time for it - it was a Monday that's all I can remember, I was in the mountains that day or the day after.
-- And, online, they were pretending to me they were *only* Israelis and only Israeli's were involved in rescuing him, and him alone.
+- After [seeing the woman poisoner from Dénia](timeline/2025/july.md#poisoning-ordered-by-the-mousses) in reception at my hotel, and then reading "sorry hola" on my mobile before poisoning, and throughout my stay in Cauterets after surviving poisoning, the Americans gave me a lot of information online.
+- They told me my friend was going to be rescued and taken to Israel and they even gave me a date and time for it - it was a Monday that's all I can remember, I was up in the high mountains that day or the day after.
+- And, online, they were pretending to me they were Israel, and that only Israelis were involved in rescuing him and him alone.
 - I understand why the Americans were lying to me about Israel; they do that *ALL THE TIME* and we expect it from them.
-- But why lie to me about the nature of the extraction? What did they hope to gain? How were they planning on manipulating the story around favorably to them? My view is when we hear what they told everyone - the UN, the other mousses, and the Israeli's - we will know.
-- Or do they not even tell anyone anything; they just order and you have to follow. Seems likely.
-- On my recent visit to Israel in July-August 2025, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and one other I had never seen before but it seems any communication is memorable.
+- But why lie to me about the nature of the extraction? What did they hope to gain? How were they planning on manipulating the story around favorably to themselves? Were they getting themselves into an inordinate pickle and panicking?
+- On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and a female gang member I had never seen before but it seems any communication is memorable.
 - So I'm not sure where we go from here. It's so curious. I can't imagine what the American's intentions were... undoubtedly they've been waiting for me to die all these years. 
-- I expect they intended to bump me off in [Bali at the torture chamber](timeline/2026/july.md#loka-yoga) because I have become their biggest problem which is ironic given they set me up to help them.
-- The sword of truth when wielded by liars.
-- So many things are explained now, and I'm so happy to know that even their foreign ideas cannot touch the sword of truth.
+- I expect they intended to bump me off in [Bali at their torture chamber](timeline/2026/july.md#loka-yoga) because I have become their biggest problem which is ironic given they set me up to help them: the sword of truth when wielded by liars.
+- So many things are explained now, and I'm so happy to know that even their despicable foreign ideas cannot touch the sword of truth.
 - I just wonder what they've been telling you all too. Has it just been lies, lies, lies all the way?
 - Of course it has.
 
