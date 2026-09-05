@@ -112,6 +112,10 @@
 - He says "cos I like her".
 - I think, fair enough.
 
+### 2021
+
+- CoderPad because I was being bullied out of my job and was utterly bored out of my mind cos they weren't giving me work. Mousses.
+
 ### June 2022
 
 1. Christine Betterton Jones's friend who works at the British foreign office comes on a walk with us in June 2022. She's has her baby with her on her back. She wants to know all about my Indian trips, where I go, who I see, etc etc. She seems like a spy to me... I ask her if she knows Rich Freed as he also works at the FO, and had been stationed in Pakistan at one stage as second to the ambassador or something huge like that. She said no. It seemed unlikely to me she wouldn't know him.
@@ -178,6 +182,7 @@
 ### July 2025
 
 1. Hip/groin started to complain in Cauterets in August. I thought I had twinged it while trekking. Over next few months, while walking it complained a lot but I kept walking on it, something intensely, like all day just walk walk walk... never had an issue with that before. I think the botch (probably not a botch if you let the patient know they have to take A LOT OF REST for it to heal) might have happened in Cauterets, then weakened further in Bangkok, then pop!
+1. After I survive poisoning, Steve gets inexplicably sick and loses tons of weight and *his physician* tells him he has a rare disease which means he needs chemo once-a-week.
 
 ### September 2025
 
@@ -226,6 +231,7 @@
 1. Was Vincent from Singapore the surgeon at Loka Yoga. He, his mum, and one other woman "Carolina" (did she switch accents from German to Australian? that seemed to be happening with them too) who was pretending off-and-on to be a "bridge" manager official, were staying close to me in one estate while the majority of the other participants stayed in a different place. Something happened to Vincent, he was injured while surfing he told me. I wonder what really happened...
 1. Did Rich Freed, Stella, and the mousses procure the women like myself and Natalia to send into hell, hacking our devices and getting info? Does that mean Domingo is a mousse-pal, an inside man?
 1. Was setting up Stella in Bali at Loka Yoga the beginning of them throwing her under the bus?
+1. Meeting Alex in Mamilla. Alex is excited about the app. When I tell him how it's a global currency of love he gets scared and scurries away. I believe Alex could be Mrs Wasserman's nephew.
 
 ### August 2026
 
