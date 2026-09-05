@@ -188,7 +188,7 @@ I continue to walk with God.
 
 ![Planning the murder of innocents](content/images/planning-the-murder-of-innocents.png)
 
-## A friend on the inside, and his family
+## A friend on the inside, and his gang
 
 - At some point during [the switcheroo-porn production at the music school](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel), probably in March 2023, something inexplicable and miraculous happened between myself and a gang member.
 - I had become temporarily conscious one night while sedated in my bed and found [the trumpet teacher sobbing his heart out in my arms](timeline/2023/march.md#dreaming-of-the-trumpet-teacher).
@@ -209,7 +209,7 @@ I continue to walk with God.
 
 ### My helpers are sequestered in Israel after a UN raid
 
-- In July 2025, the American Catholics, with the UN help, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
+- In July 2025, American Catholics, with help from the UN, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
 - They have been there ever since; working as online leaches which is what they were doing in Spain but for Adams's international porn enterprise and whichever criminal enterprise paid them.
 - This had been planned for sometime but they required confirmation that I survive poisoning before they went ahead.
 - This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, in preparation.
@@ -217,9 +217,10 @@ I continue to walk with God.
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
-- And throughout my stay in Cauterets after poisoning, they told me he was going to Israel online, and this is where I got my information from.
-- And, online, they were pretending to me they were *only* Israelis involved in rescuing him, and him alone, that was the implication.
-- I understand why they were lying to me about Israel, cos they do that ALL THE TIME.
+- And throughout my stay in Cauterets after poisoning, they gave me a lot of information online.
+- They told me he was going to be rescued and taken to Israel and they even gave me a date and time (it was a Monday that's all I can remember), and we were even doing the same body position the evening it happened, am i right?
+- And, online, they were pretending to me they were *only* Israelis and only Israeli's were involved in rescuing him, and him alone.
+- I understand why the Americans were lying to me about Israel; they do that *ALL THE TIME* and we expect it from them.
 - But why lie to me about the nature of the extraction? What did they hope to gain? How were they planning on manipulating the story around favorably to them? My view is when we hear what they told everyone - the UN, the other mousses, and the Israeli's - we will know.
 - Or do they not even tell anyone anything; they just order and you have to follow. Seems likely.
 - On my recent visit to Israel in July-August 2025, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and one other I had never seen before but it seems any communication is memorable, even without the body's perceptive faculties, which is *soooo* interesting, don't you think.
@@ -400,7 +401,7 @@ I continue to walk with God.
 - Are all victims of horror-porn, even the unwitting ones, summarily maimed or killed?
 - Staying alive and well is always a strong motive.
 - Are people's children threatened?
-- My online helper - [the repentant trumpet teacher who I have forgiven](#a-friend-on-the-inside-and-his-family) - told me repeatedly that the gang will kidnap your kids if you go against them.
+- My online helper - [the repentant trumpet teacher who I have forgiven](#a-friend-on-the-inside-and-his-gang) - told me repeatedly that the gang will kidnap your kids if you go against them.
 - It seems likely that a criminal porn-enterprise with expertise in sedating, surveillance, manipulation, and spy-cam tech, with members all over Europe and the UK - including Portugal as I found out on my trip to Fatima in October 2024 - would be behind the Madeline McCann kidnap.
 - Did they target Madeline to teach someone a lesson, like they do?
 - Tweets like this one made me wonder if they kept her alive as a bargaining chip.
