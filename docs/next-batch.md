@@ -36,9 +36,12 @@
     1. The mousses appear to be atheists, or if they are religious, helplessly arrogant folk who haven't a clue Who God Is.
     1. And here we are. 
     1. Me still here - a bunch of kids on the way or just born with unknown fathers and adopted mothers I WILL BE RESCUING from shortly! With God's Help. He told me. And it's in the Bible.
-    1. Such wisdom, such power, such might, such fearfulness: the mousses totally lost their minds, stole and sold my eggs off to the highest bidder, some of whom were involved in the earlier tech-bro rape-porn attacks, which puts these children in even more jeopardy wherever they are in the world their whole lives until they're rescued by the servants of God. Which IS happening next.
+    1. Such wisdom, such power, such might, such fearfulness: the mousses totally lost their minds, stole and sold my eggs off to the highest bidder, some of whom were involved in the earlier tech-bro rape-porn attacks, which puts these children in even more jeopardy wherever they are in the world their whole lives until they're rescued by the servants of God. Which IS happening next. 
     1. But the most sickening thing about the mousse pivot is... they have spent nearly three years obsessing over me while Spanish babies, children, and women continue to be sedated, raped, and murdered at the altar of porn in Las Marinas.
     1. And perhaps even more sickening is the fact that these perverts used this lie, believing it to be true themselves, to convince men to take part in the most vile acts imaginable, assuring them they would never be called to account. Their betrayal is [add-word-we-do-not-have-to-describe-such-evil-here]. 
+    1. Did I hear they were told someone "forgot" to pay them? If so, that's more than extraordinary. Did they not smell a rat? No-one "forgets" to pay, it's crazy. They were so shocked at the reaction the mousses decided they would distance themselves totally and blame the innocent, like they do.
+    1. I'm amazed actually, the budget for keeping this quiet could probably feed small nations for decades.
+    1. But the most interesting thing is how they never questioned the veracity of the claim - which is just incomprehensible to me - and I wonder if that's because their violent misogyny is so deeply ingrained they had no capacity to think outside the box, as it were. An utter tragedy.
 
 !!! tip "There is no healing without"
     - The abomination of desolation factored in. And that means spilling the 50 million onion-soups all over the world. Sorry.
@@ -56,6 +59,7 @@
 1. Remind me to never shut up!
 1. Were the Spanish in Jerusalem in a terribly celebratory mood because finally they can see a future where they might be able to protect their own children? If so, please forgive me for giving you all such a hard time... it's been quite a twist and turn of a thousand knots to undo...
 1. Is the recent "drowning" in a hot tob of a young British couple on holiday in Cullera - incidentally where Paloma told me to move to - a step up in the "life of revenge" of the Lopez Cano's?
+1. By the way, can you check if these two were the ones staying in the next room to mine in Cauterets in [August 2023 when I was supposed to have sex with the mountain guide](timeline/2023/august.md#climbing-the-viscos). Thanks.
 1. If the Lopez Cano's found out they'd been lied to by the mousses all these years - people who have been pretending to be their friends, just like they did to me - would they all self-implode do you think?
 1. Where do the mousses think such courses of action ends? Both sides can't keep bumping people off forever, can they? 
 1. I think the world needs to know, don't you? And let the chips fall where they fall. It's gone on too long now and the children have never once been out of peril since it started.
@@ -69,7 +73,7 @@
         1. God, this is nearly a total rewrite, except I had closed in on the truth so very nearly, it looks like it will just be a small adjustment.
         1. Given we have information about everything, an actual law-enforcement case for who murdered who (never mind why) is quick and easy and the children can be immediately safe.
         1. Teachers at the conservatory and the wider educational system! It's not so sinister, yet, and they seem to be at the forefront of it all.
-        1. Let the chips fall where they fall as the more sinister stuff comes out... just BLOODY DO SOMETHING WILL YOU!!!! #ffs 
+1. And just to say that I was studying music with people who were behind *that*, and thought it was OK! I mean... I knew humans were insane but... the world needs help quick.
 
 ### 1990
 
