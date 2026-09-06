@@ -75,6 +75,7 @@
         1. Teachers at the conservatory and the wider educational system! It's not so sinister, yet, and they seem to be at the forefront of it all.
 1. And just to say that I was studying music with people who were behind *that*, and thought it was OK! I mean... I knew humans were insane but... the world needs help quick.
 1. It's time to take a deep breath and clear it all up, and don't worry about the thunder, you know what they're like (oh, by the way sir, we have a fix for that... it's something I've been obsessing over for oooo, 3 years now)...
+1. In fact, I have been obsessing over this fix [since August 2023 when I went up the Viscos](timeline/2023/august.md#climbing-the-viscos) with the man who had been promised I'd invite him back to my room afterwards.
 
 ### 1990
 
