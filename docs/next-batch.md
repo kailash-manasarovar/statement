@@ -130,6 +130,7 @@
 
 ### 2021
 
+- While the "Portuguese" man is visiting (Mark right?) I am headhunted for a job with the UN in Fiji.
 - CoderPad because I was being bullied out of my job and was utterly bored out of my mind cos they weren't giving me work. Mousses.
 
 ### June 2022
