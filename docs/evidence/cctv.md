@@ -69,3 +69,7 @@ function googleTranslateElementInit() {
 
 - But it's all good when you give it to God for His Purposes.
 - <3
+- I just wanted to say that of all those on the list, the majority I believe are my friends. And even a good proportion of those on the mistake-makers side are too.
+- That's what I believe.
+- And I guess impact is what we've been using to put off the inevitable for all these years... and thus it has grown and grown, I don't think there's any way out without a bit of impact apart from seriously the world actually ending!
+- But again, my obsession these last three years has been all about squirrel and his special gifts. And I can guarantee that impact is lessened in this way... and God comes back to us all.

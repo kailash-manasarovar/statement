@@ -77,6 +77,16 @@
 1. It's time to take a deep breath and clear it all up, and don't worry about the thunder, you know what they're like (oh, by the way sir, we have a fix for that... it's something I've been obsessing over for oooo, 3 years now)...
 1. In fact, I have been obsessing over this fix [since August 2023 when I went up the Viscos](timeline/2023/august.md#climbing-the-viscos) with the man who had been promised I'd invite him back to my room afterwards.
 
+#### Auggie
+
+- Does it all hinge on Auggie? I was wondering... because, you see, he defected to the same side essentially thinking he was exercising vengeance.
+- So it sounds like he and everyone else really did believe the lie.
+- He thought he was "dropped in it" by the Lopez-Cano's and he defected to the side pretending to be law-enforcers.. the side giving them all such a hard time... (lie-enforcers really).
+- But in fact, the mousses dropped him in it and we can prove this because of what I always said was Hazel's account; `@taruann` who sent me the image to trigger my memory of him from 2001. Which worked. He must have thought it was the Las Marinas lot, but it wasn't.
+- Can we find out who owns this account for real? My guess is rogue mousses.
+- Hazel was always just a placeholder, it appears.
+- Amiright? I don't know... maybe a little bit.
+
 ### 1990
 
 1. Is this Sullivan *the* Sully from the film? I didn't think the man was a pilot but maybe he trained. I guess we'll find out.
