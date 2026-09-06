@@ -85,7 +85,7 @@
 - But in fact, the mousses dropped him in it and we can prove this because of what I always said was Hazel's account; `@taruann` who sent me the image to trigger my memory of him from 2001. Which worked. He must have thought it was the Las Marinas lot, but it wasn't.
 - Can we find out who owns this account for real? My guess is rogue mousses.
 - Hazel was always just a placeholder, it appears.
-- Perhaps, if not mousses, `@taruann` is a fatberg prodder.
+- Perhaps, if not mousses, `@taruann` is a fatberg prodder, oh, is it squirrel?
 
 ### 1990
 
