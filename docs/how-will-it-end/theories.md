@@ -41,14 +41,14 @@ function googleTranslateElementInit() {
 1. So she prays. A lot. And survives attempts at her murder again and again and again - see Jesus's instructions on this in the Gospels.
 1. The salmon-mousse security-service criminal gang replaces the lupins.
 1. They spend years lying to our heroine to try to convince her there is an investigation going on and that someone cares about the babies, children, and women being sedated, raped, and murdered at the altar of porn in Las Marinas.
-1. It's a lie.
+1. It's all lies!
 1. They're distracting her. They have no intention of bringing any criminals to justice.
 
 ### Auggie
 
-- In August 2024, the lupins sent [Auggie to Cauterets](../timeline/2024/august.md#ugly).
+- In August 2024, the lupins send [Auggie to Cauterets](../timeline/2024/august.md#ugly).
 - A few weeks later, the salmon mousses, or perhaps the good lupins, it's unclear who exactly, triggered [my memory of Auggie from 2001](../timeline/2001-to-2010/2001.md#amsterdam) with a picture of what I had seen in Amsterdam on the `@taruann` account who I thought on a loop was squirrel, then Trish, then Hazel, then mostly Hazel :).
-- Auggie believed the rogue lupins had offered him up - because the situation had started to become unstable for the criminals around that time - and so he defected to the salmon mousse side.
+- Auggie believed the rogue lupins had offered him up - because the situation had started to become unstable for the criminals around that time due to the help I was getting from the good lupins - and so he defected to the salmon mousse side.
 - I can say this for certain because [I saw him in Dublin in April 2026 with a mousse operative](../timeline/2026/april.md#i-see-auggie-augustus) and they were all over me like scabies at that time.
 - So, his mistake was that he defected to the same side essentially; thinking he was exercising vengeance.
 - Which means that he and everyone else really did believe the lie - that only a small group of salmon mousses were responsible for the original event and that the main salmon mousse teams were interested in prosecuting the criminals and stopping the murders, which they're not!
@@ -58,38 +58,17 @@ function googleTranslateElementInit() {
 
 - This statement came from a [dream I had in November 2023](../timeline/2023/november.md#dreaming-of-jesus-christ).
 - Vidal Sastre Sanchez Hornero is a criminal sex gang that controls women and girls.
-- They have been operational for decades, targeting women with money, such as [the ceramics artist](../timeline/2023/july.md#plate-lady-early-in-the-month) I mention in a previous section.
-- Their modus operandi is to target a woman or girl, gain access to their electronic devices, and drug them in a clandestine manner.
-- From here they can manipulate the mind of the target usually starting with an apparently real romantic relationship which is then reinforced by NLP/hypnosis techniques online.
-- Targets are tricked into trusting the romantic partner.
-- For younger targets, at this point, nudes are requested by the gang. The target believes their romantic partner is requesting them and so sends them.
-- From here, this may extend into 'sex tapes' which the target may or may not agree to.
-- The target will be wholly unaware of the fact that all these photos and videos are being monetized on porn networks.
-- The gang has operated in freedom for decades and is protected by the highest orders of the land.
-- This means that they are completely free to infiltrate schools and learning establishments and target minors.
+- They have been operational for decades, originally targeting women with money, such as [the ceramics artist](../timeline/2023/july.md#plate-lady-early-in-the-month) I mention in a previous section, and then targeting youngsters for porn such as music and dance students I mention seeing examples of on YouTube.
+- The gang has operated in freedom for decades and, since the late 90s, has been free to worsen and grow due to the protection granted by the highest orders of the land - the salmon mousses!
 - As time has passed, the nature of the porn that makes the most money for the gangs has evolved from brutalizing adult women into rape of children and babies.
 - If gang members wanted to escape this life of crime, they would find it nearly impossible and require a miracle.
 
 ![Evil gang redemption](../content/images/evil-gang-redemption.png)
 
-### Support from the community
+## The bull fight.. evolved
 
-- It is still too difficult for me to imagine that Spanish communities would support the targeting of their own children in learning establishments.
-- So what could possibly persuade an entire community to terrorize a woman who seems to be the only person in the region that cares about the safety and wellbeing of their children?
-- Do they understand that only foreign children are targeted and so turn a blind eye?
-- Are they persuaded that the targets they are instructed to terrorize are somehow deserving of such treatment?
-- Or do they simply not care about the children?
-
-!!! tip
-    - My previous theories, in which you might track my lack of, then growing, mental clarity as I emerged from three years of drugging and poisoning, are in earlier commits.
-
-### The bull fight.. evolved
-
-- Over the last three years, I have felt a lot like a Spanish bull in the ring, tormented and tortured by a large group of men, the community cheering them on.
-- I believe that, in essence, this terrorizing of vulnerable living beings by brave male Spaniards is the foundation of what happened to me.
-- An age old tradition of silencing uppity women, I expect.
-- Except now, with the porn epidemic in full swing, and men more and more enticed into pedophilia and worse as they bore of the daily sexual violence against women and children, with baby-rape porn the most lucrative of all, a culture like this is probably doomed if they don't do something about it, and quick.
+- While living in Dénia from February 2022 to October 2024, I felt like a Spanish bull in the ring, tormented and tortured by a group of arrogant men, the community cheering them on.
+- I believe that, in essence, this public enjoyment of terrorized and vulnerable living beings by brave male Spaniards is at the foundation of what happened to me.
+- Except now, with the porn epidemic in full swing, with men sucked helpless into pedophilia and worse as they bore of sexual violence, a culture like this is probably doomed if they don't do something, and quick.
 
 ![The bullfight evolved](../content/images/bull-fight.png)
-
-- A little ipad testy-poo.
