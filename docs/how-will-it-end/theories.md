@@ -8,6 +8,8 @@ function googleTranslateElementInit() {
 }
 </script>
 
+![How's it going to end?](../content/images/hows-it-going-to-end.webp)
+
 ## The biggest lie the world has ever known
 
 1. Rogue group of lupins do terrible thing at salmon mousse's request thirty years ago - with the help of the onion-soup.
@@ -52,11 +54,11 @@ function googleTranslateElementInit() {
 - I can say this for certain because [I saw him in Dublin in April 2026 with a mousse operative](../timeline/2026/april.md#i-see-auggie-augustus) and they were all over me like scabies at that time.
 - So, his mistake was that he defected to the same side essentially; thinking he was exercising vengeance.
 - Which means that he and everyone else really did believe the lie - that only a small group of salmon mousses were responsible for the original event and that the main salmon mousse teams were interested in prosecuting the criminals and stopping the murders, which they're not!
-- He thought he was "dropped in it" by the Lopez-Cano's and he defected to the side pretending to be law-enforcers.. (lie-enforcers really).
+- He mistakenly defected to the lie-enforcers!
 
 ## *Vidal Sastre Sanchez Hornero control your sex*
 
-- This statement came from a [dream I had in November 2023](../timeline/2023/november.md#dreaming-of-jesus-christ).
+- This statement - including the strange third person grammar - came from a [dream I had in November 2023](../timeline/2023/november.md#dreaming-of-jesus-christ).
 - Vidal Sastre Sanchez Hornero is a criminal sex gang that controls women and girls.
 - They have been operational for decades, originally targeting women with money, such as [the ceramics artist](../timeline/2023/july.md#plate-lady-early-in-the-month) I mention in a previous section, and then targeting youngsters for porn such as music and dance students I mention seeing examples of on YouTube.
 - The gang has operated in freedom for decades and, since the late 90s, has been free to worsen and grow due to the protection granted by the highest orders of the land - the salmon mousses!
@@ -69,6 +71,6 @@ function googleTranslateElementInit() {
 
 - While living in Dénia from February 2022 to October 2024, I felt like a Spanish bull in the ring, tormented and tortured by a group of arrogant men, the community cheering them on.
 - I believe that, in essence, this public enjoyment of terrorized and vulnerable living beings by brave male Spaniards is at the foundation of what happened to me.
-- Except now, with the porn epidemic in full swing, with men sucked helpless into pedophilia and worse as they bore of sexual violence, a culture like this is probably doomed if they don't do something, and quick.
+- Except now, with the porn epidemic in full swing, and men sucked helpless into pedophilia and worse as they bore of sexual violence, a culture like this is probably doomed if they don't do something, and quick.
 
 ![The bullfight evolved](../content/images/bull-fight.png)
