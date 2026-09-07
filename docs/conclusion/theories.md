@@ -8,41 +8,45 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Current state of the investigation
 
-1. New summary: 
-    1. Rogue group of lupins do terrible thing at mousse's request - with the help of the onion-soups.
-    1. Lupins only get paid half of what they've been promised by the mousses. The other half is never forthcoming (I wonder if they just didn't get paid at all, that'd make one sufficiently angry).
-    1. Did the sound of thunder promised by the shock from the enormous and totally unexpected reaction to their evildoing frighten them and get them scrabbling around making deadly errors of judgement that have persisted and grown out of all proportion since then? I know this is in Madonna's Great Ray, but do we have a bible reference for this? There must be one, we've bible references for just about everything now don't we. I love you <3
-    1. Lupins are told all sorts of BS about why they're not getting paid by the mousses they work closely with on other matters, mousses insisting it's nothing to do with them.
-    1. The *biggest lie the world has ever known* that the mousses tell these lupins is what fuels the rest of this sorry story.
-    1. These lupins (simple parochial folk really) go horribly rogue - I suppose the mousses thought so little of them, and it was such a horrific request, and upset so many people, that they unwisely thought this was the way to hide from the responsibility for it forever. Quite the error!
-    1. They get started on their rogue-lupin revenge program on the mousse-half that (they believe) didn't pay them, and that means murdering innocent tax-paying British women visiting the region or living there.
-    1. This rogue band of lupins then go formally criminal insane, mainly because they are never called to account for their actions and they never get their (apparently) missing money either.
-    1. It doesn't get any better for this rogue group of lupins, in fact their insanity worsens over the decades to the current state of industrial-scale baby-rape and pedophilia, full infiltration by criminal pornographers into the Spanish school system, horror jacuzzi deaths in Cullera, and alongside that, implementing mass online-manipulation revenge policies against the mousses which have been unusually and whole-world-destroyingly effective.
-    1. Mousse-controlled government officials in Spain forbid normal law-enforcement to address these horrific crimes against the innocent, the young, and the vulnerable and so this world of fake-hope-in-revenge just gets worse and worse.
-    1. The rogue band of lupins in Denia had been watching too many Sergio Leone films and self-manipulated themselves into believing they "live for revenge" -> I even have a fake account screenshot with that message in the profile.
-    1. To feed the murderous porn-hell they are creating, and an integral part of their revenge policy, thousands and thousands of apparently normal men are sucked into it; seemingly with no escape - but maybe they don't mind (are they told *why* they'll never see a prison cell - a lie, but the rogue band of lupins do not know it's a lie, yet, are they scratching their heads now)?
-    1. Good lupins (well, marginally better than the rogue ones) in the region don't know what to do and it's gone on so long that even their own families are in danger from the rogue lupins!
-    1. Our heroine enters the pic, totally unawares of what's going on, totally innocent, but with a tendency to say interesting things and make strange shapes with her face. (The mousses signed her up for the intuitive program early on due to her strange face-shapes and trauma history, and sent her into the battlefield, expecting her to be killed but happy to ingest the information from her devices and home networks while she remained alive. God forbid she ever got wind of that; and then she did.)
-    1. She is targeted and made famous in sedated rape-porn internationally. So famous that random men recognize her wherever she goes in the world. 
-    1. She fights the good fight over two decades.
-    1. She does so well in fact, surprising everyone, that the rogue group of lupins gets worse and worse just to see how much sexual-torture she is prepared to endure (she doesn't know, she's sedated) and telling lies about her so that the whole region in Spain will hate her and support her early demise.
-    1. God does not support it and sends the DANA.
-    1. The rogue band of lupins does not heed the warning; some even accepting mousse-funded government awards on the very day the mousses order her murder.
-    1. Our heroine is innocent of all blame, and knows it, and is unashamed of anything that has happened (a bit embarrassed sometimes) and there is no reason for anyone to hate her, but still they do.
-    1. So she prays. A lot. And survives attempts at her murder again and again and again - see Jesus's instructions on this in the Gospels.
-    1. The mousses are dumbfounded and don't know what to do.
-    1. They formally take over, relieving the rogue band of lupins from their failing efforts.
-    1. The mousses want what she has: the ability to survive poisoning.
-    1. So they decide, in their infinite lack of wisdom, that they will make babies from her eggs that they will steal after sedating her, and surely those babies will survive poisoning and they can forge a superhero army, or something...
-    1. And they will be very disappointed (see Gospels as mentioned), putting those children at huge risk.
-    1. The mousses appear to be atheists, or if they are religious, helplessly arrogant folk who haven't a clue Who God Is.
-    1. And here we are. 
-    1. Me still here - a bunch of kids on the way or just born with unknown fathers and adopted mothers I WILL BE RESCUING from shortly! With God's Help. He told me. And it's in the Bible.
-    1. Such wisdom, such power, such might, such fearfulness: the mousses totally lost their minds, stole and sold my eggs off to the highest bidder, some of whom were involved in the earlier tech-bro rape-porn attacks, which puts these children in even more jeopardy wherever they are in the world their whole lives until they're rescued by the servants of God. Which IS happening next. 
-    1. But the most sickening thing about the mousse pivot is... they have spent nearly three years obsessing over me while Spanish babies, children, and women continue to be sedated, raped, and murdered at the altar of porn in Las Marinas.
-    1. And perhaps even more sickening is the fact that these perverts used this lie, believing it to be true themselves, to convince men to take part in the most vile acts imaginable, assuring them they would never be called to account. Their betrayal is [add-word-we-do-not-have-to-describe-such-evil-here]. 
-    1. Did I hear they were told someone "forgot" to pay them? If so, that's more than extraordinary. Did they not smell a rat? No-one "forgets" to pay, it's crazy. They were so shocked at the reaction the mousses decided they would distance themselves totally and blame the innocent, like they do.
+- Moved into here from the next batch of thoughts while in publishing mode.
+
+### The biggest lie the world has ever known
+
+1. Rogue group of lupins do terrible thing at salmon mousse's request thirty years ago - with the help of the onion-soup.
+1. Lupins are told that only a small subset of the mousses has asked for this; and the rest of them were not involved.
+1. After the event, the salmon mousses are so horrified by the sound of thunder, they decide to throw their compadres under the bus and distance themselves from the crime - they might have planned this from the start tbf.
+1. Lupins never get paid.
+1. Lupins go horribly rogue and totally insane with vengeance and rage.
+1. The subset of salmon mousses in the frame fail to stand up effectively to the wider salmon mousse group, and this is understandable maybe, but a mistake.
+1. Lupins are told all sorts of BS about why they're not getting paid; the wider salmon mousse group insisting it's nothing to do with them.
+1. Lupins are so aggrieved, they get started on their Sergio-Leone-type revenge program, and that means murdering innocent tax-paying British women visiting the region or living there.
+1. They still do not get paid.
+1. The murders continue.
+1. No one investigates. No one cares because the salmon mousses own Spain, and continually block any attempts at stopping these rogue lupins.
+1. And so it goes on, year after year, getting worse and worse.
+1. Aside from their vengeful purpose, the lupins go quite mad in every sense, turning a once thriving small Spanish town into the most famous criminal pornography studio in the world - ask any DIY pornographer worth his sedating drug collection.
+1. In fact their insanity worsens so badly over the decades to the current state of industrial-scale baby-rape and pedophilia, full infiltration by criminal pornographers into the Spanish school system, and alongside that, implementing mass online-manipulation revenge policies against the mousses which have been unusually effective.
+1. The lie the lupins believe is also believed by everyone else they tell, nearly, especially as no-one is coming to help the murdered women and children - assured by the mousses who control everything the Spanish do - and thus criminals from all around the world set up shop in Dénia where they know they'll never be brought to justice.
+1. North London criminal gangs make use of the same lie to spread criminal porn into the stratosphere, addicting millions if not billions of men to sex-murder fetishes, and causing events like [Bali](../timeline/2024/may.md#bali) where tech-workers sedated and raped their female colleague for a whole week, and invited the most famous man in the world who thinks he will never be brought to justice - this is continually asserted to him by the salmon mousses that surround him who are feeding him the lie of two millennia! And he believes it.
+1. Question: how many porn addicts have been told this lie? My friends certainly believed it (Paul, Matthew, etc.). My dad and brother believed it. How could they have all been told something so horrible, and we don't know about it? Is porn such a secret society it can be counted on to never tell on the worst things ever, while ever growing in participants and horribleness?
+1. Good lupins (well, marginally better than the rogue ones) in the region don't know what to do about the rogue ones who have become so criminally insane that even their own families are in danger!
+1. Our heroine enters the pic, totally unawares of what's going on, totally innocent, but with a tendency to say interesting things and make strange shapes with her face. (The mousses had signed her up for the intuitive program early on due to her strange face-shapes and trauma history, and sent her into the battlefield, expecting her to be killed but happy to ingest the information from her devices and home networks while she remained alive. God forbid she ever got wind of that; and then she did.)
+1. She is targeted and made famous in sedated rape-porn internationally. So famous that random men recognize her wherever she goes in the world. 
+1. She fights the good fight over two decades.
+1. She does so well in fact, surprising everyone, that the rogue group of lupins gets worse and worse just to see how much sexual-torture she is prepared to endure (she doesn't know, she's sedated) and telling lies about her so that the whole region in Spain will hate her and support her early demise.
+1. On the very day the mousses order her murder, a lupin bearing the name "Vidal Sastre Sanchez Hornero" is reported accepting a mousse-funded government award.
+1. God sends the DANA.
+1. The rogue band of lupins and their mousse masters do not heed the warning.
+1. Our heroine is innocent of all blame, and knows it, and is unashamed of anything that has happened (a bit embarrassed sometimes) and there is no reason for anyone to hate her, but still they do.
+1. So she prays. A lot. And survives attempts at her murder again and again and again - see Jesus's instructions on this in the Gospels.
+1. The salmon mousse security service criminal gang replaces the lupins.
+1. They spend years lying to our heroine to try to convince her there is an investigation going on and that someone cares about the Spanish babies, children, and women being sedated, raped, and murdered at the altar of porn in Las Marinas.
+1. It's a lie.
+1. They're distracting her. They have no intention of bringing any criminals to justice.
+
+
     1. I'm amazed actually, the budget for keeping this quiet could probably feed small nations for decades.
     1. But the most interesting thing is how they never questioned the veracity of the claim - which is just incomprehensible to me - and I wonder if that's because their violent misogyny is so deeply ingrained they had no capacity to think outside the box, as it were. An utter tragedy.
 
