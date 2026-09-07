@@ -30,13 +30,25 @@ Over the three years I lived in Carrer Furs, Dénia, after [finding the apartmen
 
 Eventually, because I had no idea about what was happening to me, and because the gang's attempts at frightening me always failed, they tried to murder me by poisoning.
 
-I continue to be gang-stalked and cyber-terrorized online and in-person to this day.
+I survived.
 
-In October 2025, I realized [something extraordinary about the Tenor Cortis conservatory of Dénia, a government-run music school](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars*.
+In July 2025, multiple security services got wind of my "gift" and decided they would test it out for themselves. They sent [their operatives from Dénia to Lourdes to murder me](timeline/2025/july.md#lourdes) while I was serving Our Lady at the baths - presumably so that I would think the original criminal gangs were still trying to kill me.
 
-Up to that time, I had been suffering constant clandestine drugging in the hope, I assume, I never realized that at least six different men had been acting as the same one man posing as a music teacher at the conservatory for the purposes of [their very famous switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) they frequently run for an international porn-addict audience. Since then, I was drugged a little in Lourdes in April 2026 and then again in July 2026 in Bali for purposes I have yet to understand.
+I survived.
+
+At this point, security services lost their minds completely. They decided that they would more formally steal my eggs (they had already performed sedated surgery on me in April), and someone else's sperm (the UN had just kidnapped my helper and taken him to Israel), to make surrogate babies. I guess they mistakenly thought our special "gift" might pass down to offspring, but I suspect their true desire was trophies, or perhaps laboratory samples. Whatever, it's utterly horrific and I urge these people - apparently Christians if you can believe that - to review the Bible on this, with particular focus on the words "my followers".
+
+It is my view that they intended to murder us both just as soon as they got what they wanted. It's hard to figure out what insanity like this intends but they despise my helper because he's gypsy, and they treated me like a labrat, injuring me and terrorzing me, constantly lying to me about an investigation, for YEARS, that i can see no other logical end goal in their heads.. and neither will anyone else.
+
+Thus one criminal gang replaced another and I continued to be sedated after going to bed but for a different purpose, and I have the surgical injuries to prove it.
+
+In October 2025, memories from sedated rape flooded back in and I realized [something extraordinary about the Tenor Cortis conservatory of Dénia, a government-run music school](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars*.
+
+I realized that at least seven different men had been acting as the same one man posing as a music teacher at the conservatory for the purposes of [the internationally renowned switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero). 
 
 Serious poisoning attempts have continued but their nature has changed from attempts to end my life to a sort of freak-show *let's see if she survives again*, the last time being [in Tibet in June 2026](timeline/2026/june.md#kailash).
+
+I continue to survive poisoning attempts while being gang-stalked and cyber-terrorized online and in-person to this day.
 
 I have to say, it's getting a bit annoying, but I do seem to be terribly famous because of it in certain circles. I am now stalked endlessly by security services and not so much the criminal gangs anymore, which is rather nice. 
 <!--
