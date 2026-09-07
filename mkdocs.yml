@@ -185,9 +185,9 @@ nav:
     - Health: personal/health.md
     - Expenses: personal/expenses.md
     - Hacking: personal/hacking.md
-  - Conclusion:
-    - Theories: conclusion/theories.md
-    - How will it end?: conclusion/how-will-it-end.md
+  - How will it end?:
+    - Theories: how-will-it-end/theories.md
+    - Justice: how-will-it-end/justice.md
   - The novel:
     - Fear and loathing in Las Marinas, Dénia: the-novel/book-cover.md
     - Optional book covers: the-novel/optional-covers.md

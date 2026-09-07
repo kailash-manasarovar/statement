@@ -216,7 +216,7 @@ function googleTranslateElementInit() {
 - A lot of my dreams had significant "brothers" symbolism.
 - The November dream turns into a nightmare.
 - I call out the name of Jesus Christ to help me.
-- JC comes and states, very loudly, [**Vidal Sastre Sanchez Hornero control your sex**](../../conclusion/theories.md#vidal-sastre-sanchez-hornero-control-women-and-girls).
+- JC comes and states, very loudly, [**Vidal Sastre Sanchez Hornero control your sex**](../../how-will-it-end/theories.md#vidal-sastre-sanchez-hornero-control-women-and-girls).
 
 ![JC holds the door open](../../content/images/jc-holds-the-door-open.png)
  
