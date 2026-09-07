@@ -14,6 +14,6 @@ The happiest ending to this woeful tale is when Spanish streets, and hospitals, 
 
 ![Geoffrey Epstein in jail](../content/images/geoff-in-prison.png)
 
-The salmon mousses have been blocking justice with their panicked lie-enforcement for nearly thirty years and this has allowed the porn-hellscape to grow into something apocalyptic.
+The salmon mousses have been blocking justice with their panicked lie-enforcement for nearly thirty years, and this has allowed the porn-hellscape to grow into something that is now apocalyptic.
 
 One has to wonder if the manner in which they let Epstein's criminal clients off the hook en masse is related. 
