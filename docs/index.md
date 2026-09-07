@@ -28,41 +28,29 @@ I am Dr Katharine Margaret Murphy, Y2775989H; previously residing at Carrer Furs
 
 Over the three years I lived in Carrer Furs, Dénia, after [finding the apartment available online on the 8th December 2021](timeline/2021/december.md#too-good-to-be-true-on-the-8th-december), and [signing the lease which included a death clause](timeline/2021/december.md#death-clause), and moving in on [15th December 2021 to find semen stains on the sofa](timeline/2021/december.md#semen-stains-on-the-sofa), I was drugged, poisoned, brain-damaged, repeatedly sedated and raped after going to bed, and live-streamed to millions of porn-addicts around the world.
 
-Eventually, because I had no idea about what was happening to me, and because the gang's attempts at frightening me always failed, they tried to murder me by poisoning.
+And just like they normally do to their (mostly British) foreign women victims as soon as they've finished with us, they tried to murder me by poisoning, a few times.
 
 I survived.
 
-In July 2025, multiple security services got wind of my "gift" and decided they would test it out for themselves. They sent [their operatives from Dénia to Lourdes to murder me](timeline/2025/july.md#lourdes) while I was serving Our Lady at the baths - presumably so that I would think the original criminal gangs were still trying to kill me.
+In July 2025, multiple security services had gotten wind of my "gift" and decided they would test it out for themselves. They sent [their operatives from Dénia to Lourdes to murder me](timeline/2025/july.md#lourdes) while I was serving Our Lady at the baths - presumably so that I would think the original criminal gangs were still trying to kill me.
 
 I survived.
 
-At this point, security services lost their minds completely. They decided that they would more formally steal my eggs (they had already performed sedated surgery on me in April), and someone else's sperm (the UN had just kidnapped my helper and taken him to Israel), to make surrogate babies. I guess they mistakenly thought our special "gift" might pass down to offspring, but I suspect their true desire was trophies, or perhaps laboratory samples. Whatever, it's utterly horrific and I urge these people - apparently Christians if you can believe that - to review the Bible on this, with particular focus on the words "my followers".
-
-It is my view that they intended to murder us both just as soon as they got what they wanted. It's hard to figure out what insanity like this intends but they despise my helper because he's gypsy, and they treated me like a labrat, injuring me and terrorzing me, constantly lying to me about an investigation, for YEARS, that i can see no other logical end goal in their heads.. and neither will anyone else.
+At this point, security services lost their minds completely. They decided that they would more formally steal my eggs (they had already performed [sedated surgery on me in April](timeline/2025/april.md#a-set-up-by-the-industrial-scale-baby-snatchers)), and someone else's sperm (the UN had just kidnapped my counterpart and taken him to Israel), to make surrogate babies. I guess they mistakenly thought our special "gift" might pass down to offspring, but I suspect their true desire was trophies, or perhaps human lab-rats. Whatever they thought, it's utterly horrific and I urge these people - apparently Christians - to review the Bible on this, with particular focus on the words "my followers".
 
 Thus one criminal gang replaced another and I continued to be sedated after going to bed but for a different purpose, and I have the surgical injuries to prove it.
 
-In October 2025, memories from sedated rape flooded back in and I realized [something extraordinary about the Tenor Cortis conservatory of Dénia, a government-run music school](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars*.
+In October 2025 just after Michaelmas, memories from sedated rape started to return and I realized [something extraordinary about the Tenor Cortis conservatory of Dénia, a government-run music school](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars*.
 
-I realized that at least seven different men had been acting as the same one man posing as a music teacher at the conservatory for the purposes of [the internationally renowned switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero). 
+Eight different men had posed as a single chamber music teacher at the conservatory for [Spain's internationally renowned switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and I had been so successfully brain-damaged by then, I believed they were all the same man.
 
-Serious poisoning attempts have continued but their nature has changed from attempts to end my life to a sort of freak-show *let's see if she survives again*, the last time being [in Tibet in June 2026](timeline/2026/june.md#kailash).
-
-I continue to survive poisoning attempts while being gang-stalked and cyber-terrorized online and in-person to this day.
-
-I have to say, it's getting a bit annoying, but I do seem to be terribly famous because of it in certain circles. I am now stalked endlessly by security services and not so much the criminal gangs anymore, which is rather nice. 
-<!--
-It's worth mentioning, perhaps, that for someone like myself to be the catalyst which breaks decades of women and children and now babies lured and led into the porn-gang's vile and often murderous clutches, no-one caring, is horrifying; true end-time activities. 
--->
 ![Novel cover](content/images/the-novel/cover.webp)
 
-However, these bizarre agent-overwhelm activities have limited the places I can stay in peace to an even greater extent.
+I remain homeless and essentially stateless (with no access to healthcare, police services, privacy, normal things like that..). My family threw me under the bus for the porn gangs years ago. I have symptoms of brain-damage which feel a bit like I've landed on another planet and I don't know how anything works. 
 
-I remain homeless and essentially stateless, with few friends and no supportive family. I have symptoms of brain-damage which feel a bit like I've landed on another planet and I don't know how anything works. Strangely, this has improved my meditations and prayers so I don't mind too much.
+I am unable to work because I continue to be recognized by random men all over the world and most of my colleagues and managers over the last decade or so were subscribing to my sex-slave switcheroo sedated rape-porn stardom!
 
-I am unable to work as before because most of my colleagues and managers over the last decade or so were subscribing to my sex-slave switcheroo porn-stardom!
-
-I continue to walk with God.
+However, I am aware of growing international support for my endeavors and I'm truly glad there is some sanity out there.
 
 ## Mass voyeurism, cyber-stalking, gang-stalking, honey-trapping, sedated spy-cam rape-porn, poisoning and drugging, and staggering levels of sexual violence against women, children, and babies
 
