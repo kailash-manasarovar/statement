@@ -218,6 +218,9 @@ extra:
     - icon: fontawesome/brands/x-twitter
       name: Fear & Loathing in Las Marinas on X
       link: https://x.com/ISurvivePoison 
+    - icon: material/rss
+      link: /feed_rss_updated.xml
+      name: Subscribe to our RSS Feed
 
       
 
@@ -258,11 +261,17 @@ markdown_extensions:
 plugins:
   - search
   - open-in-new-tab
+  - rss:
+      abstract_chars_count: 160 # Limit abstract length
+      rss_feed_enabled: true # Enable RSS feed
+      json_feed_enabled: true # Enable JSON feed
+      feeds_filenames:
+        json_created: feed_json_created.json
+        json_updated: feed_json_updated.json
+        rss_created: feed_rss_created.xml
+        rss_updated: feed_rss_updated.xml
+      use_git: true
   #- git-revision-date-localized
-  #- social:
-  #    cards_layout_options:
-  #      background_image: \content\images\the-novel\cover-2.webp
-  #      background_color: transparent
 
 validation:
   absolute_links: warn
