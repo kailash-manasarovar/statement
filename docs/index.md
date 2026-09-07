@@ -28,7 +28,7 @@ I am Dr Katharine Margaret Murphy, Y2775989H; previously residing at Carrer Furs
 
 Over the three years I lived in Carrer Furs, Dénia, after [finding the apartment available online on the 8th December 2021](timeline/2021/december.md#too-good-to-be-true-on-the-8th-december), and [signing the lease which included a death clause](timeline/2021/december.md#death-clause), and moving in on [15th December 2021 to find semen stains on the sofa](timeline/2021/december.md#semen-stains-on-the-sofa), I was drugged, poisoned, brain-damaged, repeatedly sedated and raped after going to bed, and live-streamed to millions of porn-addicts around the world.
 
-And just like they normally do to their (mostly British) foreign women victims as soon as they've finished with us, they tried to murder me by poisoning, a few times.
+When the porn gangs were finished with me, after [their eye-wateringly lucrative (for me) Bali porn-scam](timeline/2024/may.md#bali), they tried to murder me by poisoning, a few times; just like they have been doing with all their foreign (mostly British) victims for the last thirty years.
 
 I survived.
 
