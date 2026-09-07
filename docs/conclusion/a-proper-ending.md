@@ -8,8 +8,12 @@ function googleTranslateElementInit() {
 }
 </script>
 
-The universe requires justice, as do all victims of sex offenders and abusive woman-hating brutes. 
+Universal law requires justice. 
 
-Perhaps the happiest ending to this tale would be to make the streets and schools and learning establishments safe for young people again by jailing the evil doers.
+The happiest ending to this woeful tale is when Spanish streets, and hospitals, and schools, and police stations, and hotels, and children's after school learning establishments, and sports facilities, and private homes, are safe from criminal pornographers.
 
 ![Geoffrey Epstein in jail](../content/images/geoff-in-prison.png)
+
+The salmon mousses have been blocking justice with their panicked lie-enforcement for nearly thirty years and this has allowed the porn-hellscape to grow into something apocalyptic.
+
+One has to wonder if the manner in which they let Epstein's criminal clients off the hook en masse is related. 
