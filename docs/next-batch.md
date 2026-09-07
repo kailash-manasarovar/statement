@@ -201,10 +201,20 @@
 1. Hip/groin started to complain in Cauterets in August. I thought I had twinged it while trekking. Over next few months, while walking it complained a lot but I kept walking on it, something intensely, like all day just walk walk walk... never had an issue with that before. I think the botch (probably not a botch if you let the patient know they have to take A LOT OF REST for it to heal) might have happened in Cauterets, then weakened further in Bangkok, then pop!
 1. After I survive poisoning, Steve gets inexplicably sick and loses tons of weight and *his physician* tells him he has a rare disease which means he needs chemo once-a-week.
 
+### August 2025
+
+1. Squirrel brings a whole nest of vipers with him in August 2025 -> for reasons vague and unbeknownst to me at this stage. Is it the *bad but not as bad as* Domingo's lot? Have they managed to convince the UN and the mousses they're the ones in danger? Why am I still running around being stalked continuously and operated on and injured on a regular basis by the mousses if even a nest of vipers are in that much danger? And did they ship them all off to Israel so they could save face, more "switcheroo" blame passing. Indeed, it's like an unconscious twitch, isn't it. 
+
 ### September 2025
 
 1. At module 3, Jonathan tells me out of the blue he has the shingles virus. He doesn't tell me anything else. It's out of the blue, incongruent, and I again assume he's thinking about being a sperm doner. Again, it's hints and signals, the way they do, so I just stay quiet about it, note it, find the idea of motherhood very appealing, and wonder what's going on in everyone's heads , why are they thinking about me in this way. I must be special, a little thought flies by but I don't entertain it too much and there's too much other stuff going on (constant stalking/drugging in London, dad, family, no support for hideous crimes against me and thousands of other women and children and babies, squirrel just been extracted to Israel, etc, etc.. it's intense) and so this is just another weirdness which honestly I don't have time to figure out means they've been stealing my eggs since April 2025 at least.
 1. I'm hearing "You are mine", all throughout the course.. I tell my friends online later, they don't believe me. It's interesting because everyone else thought I was theirs didn't they. Amazing how people just assume ownership of you!
+
+### October 2025
+
+1. Another obvious question is... if we now know the mousses were drugging me throughout 2025, why would they be so keen I didn't remember the switcheroo men? Is it so they can continue to protect themselves because the switcheroo men can spill the beans? Is that why (did I hear it was a UN raid?) they shipped half the team off to Israel, to silence them, keep them from talking?
+1. Did they know that this bunch of people have been trying to stop the business for years too? And we couldn't have that now could we, because then there'd be questions...
+1. Do you think if my viper chums did start to speak, or anyone did outside of mousse control, the lie would become VERY QUICKLY APPARENT to the whole world? I bet it would.
 
 ### November 2025
 
@@ -257,6 +267,7 @@
 1. And who was the woman at departures? I got jealous and remembered how awful that all was and started thinking of a cave or the nunnery again... was she Brunhilda? Isaiah 57. A nest indeed. Gosh, this is gonna be such a cool parallel plot line.
 1. In Jerusalem I visit the Wall every day, it's like visiting God Himself. Some days I visit David's tomb too - these are often the days when I feel like I'm on the battlefield and need some spiritual-warrior strength. I'm very conscious of the bloodline to Jesus but I'm not interested in the Christian sites so much.
 1. One day in Jerusalem, I suggest to my online friends that squirrel and I might do well in India because if the mousses are controlling everyone, at least me and him might stand a chance together in India - I talk a lot like this online (I never save these things, but they always know) ... I also look up "asylum in India" processes online. The next morning outside David's tomb they've set up an Indian woman with a MASSIVE plastic sign saying something like "Join us, you will be safe", or some such.. this is why I say these things about escape to India... but if the mousses control India, then that's out too even!
+1. Were the Spanish in Jerusalem in a terribly celebratory mood because finally they can see a future where they might be able to protect their own children? If so, please forgive me for giving you all such a hard time... it's been quite a twist and turn of a thousand knots to undo...
 
 ### September 2026
 

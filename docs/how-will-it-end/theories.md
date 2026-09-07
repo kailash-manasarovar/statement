@@ -27,6 +27,7 @@ function googleTranslateElementInit() {
 1. In fact their insanity worsens so badly over the decades to the current state of industrial-scale baby-rape and pedophilia, full infiltration by criminal pornographers into the Spanish school system, and alongside that, implementing mass online-manipulation revenge policies against the mousses which have been unusually effective.
 1. The lie the lupins believe is also believed by everyone else they tell, nearly, especially as no-one is coming to help the murdered women and children - assured by the mousses who control everything the Spanish do - and thus criminals from all around the world set up shop in Dénia where they know they'll never be brought to justice.
 1. North London criminal gangs make use of the same lie to spread criminal porn into the stratosphere, addicting millions if not billions of men to sex-murder fetishes, and causing events like [Bali](../timeline/2024/may.md#bali) where tech-workers sedated and raped their female colleague for a whole week, and invited the most famous man in the world who thinks he will never be brought to justice - this is continually asserted to him by the salmon mousses that surround him who are feeding him the lie of two millennia! And he believes it.
+1. The onion-soup's passion for sedating and raping the women they know is taken up by criminals and used extensively across the world.
 1. Question: how many porn addicts have been told this lie? My friends certainly believed it (Paul, Matthew, etc.). My dad and brother believed it. How could they have all been told something so horrible, and we don't know about it? Is porn such a secret society it can be counted on to never tell on the worst things ever, while ever growing in participants and horribleness? And how could they do such terrible things on the basis of such a story? Are all porn-addicts sociopaths? Of course they are.
 1. Good lupins (well, marginally better than the rogue ones) in the region don't know what to do about the rogue ones who have become so criminally insane that even their own families are in danger!
 1. Our heroine enters the pic, totally unawares of what's going on, totally innocent, but with a tendency to say interesting things and make strange shapes with her face. (The mousses had signed her up for the intuitive program early on due to her strange face-shapes and trauma history, and sent her into the battlefield, expecting her to be killed but happy to ingest the information from her devices and home networks while she remained alive. God forbid she ever got wind of that; and then she did.)
@@ -38,60 +39,22 @@ function googleTranslateElementInit() {
 1. The rogue band of lupins and their mousse masters do not heed the warning.
 1. Our heroine is innocent of all blame, and knows it, and is unashamed of anything that has happened (a bit embarrassed sometimes) and there is no reason for anyone to hate her, but still they do.
 1. So she prays. A lot. And survives attempts at her murder again and again and again - see Jesus's instructions on this in the Gospels.
-1. The salmon mousse security service criminal gang replaces the lupins.
-1. They spend years lying to our heroine to try to convince her there is an investigation going on and that someone cares about the Spanish babies, children, and women being sedated, raped, and murdered at the altar of porn in Las Marinas.
+1. The salmon-mousse security-service criminal gang replaces the lupins.
+1. They spend years lying to our heroine to try to convince her there is an investigation going on and that someone cares about the babies, children, and women being sedated, raped, and murdered at the altar of porn in Las Marinas.
 1. It's a lie.
 1. They're distracting her. They have no intention of bringing any criminals to justice.
 
+### Auggie
 
-    1. I'm amazed actually, the budget for keeping this quiet could probably feed small nations for decades.
-    1. But the most interesting thing is how they never questioned the veracity of the claim - which is just incomprehensible to me - and I wonder if that's because their violent misogyny is so deeply ingrained they had no capacity to think outside the box, as it were. An utter tragedy.
+- In August 2024, the lupins sent [Auggie to Cauterets](../timeline/2024/august.md#ugly).
+- A few weeks later, the salmon mousses, or perhaps the good lupins, it's unclear who exactly, triggered [my memory of Auggie from 2001](../timeline/2001-to-2010/2001.md#amsterdam) with a picture of what I had seen in Amsterdam on the `@taruann` account who I thought on a loop was squirrel, then Trish, then Hazel, then mostly Hazel :).
+- Auggie believed the rogue lupins had offered him up - because the situation had started to become unstable for the criminals around that time - and so he defected to the salmon mousse side.
+- I can say this for certain because [I saw him in Dublin in April 2026 with a mousse operative](../timeline/2026/april.md#i-see-auggie-augustus) and they were all over me like scabies at that time.
+- So, his mistake was that he defected to the same side essentially; thinking he was exercising vengeance.
+- Which means that he and everyone else really did believe the lie - that only a small group of salmon mousses were responsible for the original event and that the main salmon mousse teams were interested in prosecuting the criminals and stopping the murders, which they're not!
+- He thought he was "dropped in it" by the Lopez-Cano's and he defected to the side pretending to be law-enforcers.. (lie-enforcers really).
 
-!!! tip "There is no healing without"
-    - The abomination of desolation factored in. And that means spilling the 50 million onion-soups all over the world. Sorry.
-    - Sorry.
-    - Remember?
-    - And eliminating rogue operations wherever they may be found.
-    - And dedicating the future to God and His miracles.
-
-1. Squirrel brings a whole nest of vipers with him in August 2025 -> for reasons vague and unbeknownst to me at this stage. Is it the *bad but not as bad as* Domingo's lot? Have they managed to convince the UN and the mousses they're the ones in danger? Why am I still running around being stalked continuously and operated on and injured on a regular basis by the mousses if even a nest of vipers are in that much danger? And did they ship them all off to Israel so they could save face, more "switcheroo" blame passing. Indeed, it's like an unconscious twitch, isn't it. 
-1. Another obvious question is... if we now know the mousses were drugging me throughout 2025, why would they be so keen I didn't remember the switcheroo men? Is it so they can continue to protect themselves because the switcheroo men can spill the beans? Is that why (did I hear it was a UN raid?) they shipped half the team off to Israel, to silence them, keep them from talking?
-1. Did they know that this bunch of people have been trying to stop the business for years too? And we couldn't have that now could we, because then there'd be questions...
-1. Do you think if my viper chums did start to speak, or anyone did outside of mousse control, the lie would become VERY QUICKLY APPARENT to the whole world? I bet it would.
-1. My view is that, given how they have treated me, they fully intended to murder me. I mean, where else do their actions towards me lead to logically? There is nowhere else for their plots to go/
-1. But, also, they have had to be "pretending" they care, and are doing something, not just to me but to bloody everyone looking now, and I expect the majority of their own side had no idea too, cos it's BEYOND EVIL ... and that's a lot of people... which is good. I'm so glad I never shut up!
-1. Remind me to never shut up!
-1. Were the Spanish in Jerusalem in a terribly celebratory mood because finally they can see a future where they might be able to protect their own children? If so, please forgive me for giving you all such a hard time... it's been quite a twist and turn of a thousand knots to undo...
-1. Is the recent "drowning" in a hot tob of a young British couple on holiday in Cullera - incidentally where Paloma told me to move to - a step up in the "life of revenge" of the Lopez Cano's?
-1. By the way, can you check if these two were the ones staying in the next room to mine in Cauterets in [August 2023 when I was supposed to have sex with the mountain guide](../timeline/2023/august.md#climbing-the-viscos). Thanks.
-1. If the Lopez Cano's found out they'd been lied to by the mousses all these years - people who have been pretending to be their friends, just like they did to me - would they all self-implode do you think?
-1. Where do the mousses think such courses of action ends? Both sides can't keep bumping people off forever, can they? 
-1. I think the world needs to know, don't you? And let the chips fall where they fall. It's gone on too long now and the children have never once been out of peril since it started.
-1. Questions:   
-    1. The big one. Who decided to let them carry on with the lie, and why. I assume that mostly people are unaware of what they're supporting, or may have suspicions. 
-    1. What outcomes have their been for carrying on with the lie:
-        1. Dead women and children.
-        1. Baby-rape industrialists.
-        1. Tech-bro mass insanity.
-        1. The unquestionable disastrous state of society.
-        1. God, this is nearly a total rewrite, except I had closed in on the truth so very nearly, it looks like it will just be a small adjustment.
-        1. Given we have information about everything, an actual law-enforcement case for who murdered who (never mind why) is quick and easy and the children can be immediately safe.
-        1. Teachers at the conservatory and the wider educational system! It's not so sinister - sorry, it is ridiculously sinister, I don't know how I said that - and the conservatory teachers and staff seem to be at the forefront of it all.
-1. And just to say that I was studying music with people who were behind *that*, and thought it was OK! I mean... I knew humans were insane but... the world needs help quick.
-1. It's time to take a deep breath and clear it all up, and don't worry about the thunder, you know what they're like (oh, by the way sir, we have a fix for that... it's something I've been obsessing over for oooo, 3 years now)...
-1. In fact, I have been obsessing over this fix [since August 2023 when I went up the Viscos](../timeline/2023/august.md#climbing-the-viscos) with the man who had been promised I'd invite him back to my room afterwards.
-
-#### Auggie
-
-- Does it all hinge on Auggie? I was wondering... because, you see, he defected to the same side essentially thinking he was exercising vengeance.
-- So it sounds like he and everyone else really did believe the lie.
-- He thought he was "dropped in it" by the Lopez-Cano's and he defected to the side pretending to be law-enforcers.. the side giving them all such a hard time... (lie-enforcers really).
-- But in fact, the mousses dropped him in it and we can prove this because of what I always said was Hazel's account; `@taruann` who sent me the image to trigger my memory of him from 2001. Which worked. He must have thought it was the Las Marinas lot, but it wasn't.
-- Can we find out who owns this account for real? My guess is rogue mousses.
-- Hazel was always just a placeholder, it appears.
-- Perhaps, if not mousses, `@taruann` is a fatberg prodder, oh, is it squirrel?
-
-## Vidal Sastre Sanchez Hornero control women and girls
+## *Vidal Sastre Sanchez Hornero control your sex*
 
 - This statement came from a [dream I had in November 2023](../timeline/2023/november.md#dreaming-of-jesus-christ).
 - Vidal Sastre Sanchez Hornero is a criminal sex gang that controls women and girls.
