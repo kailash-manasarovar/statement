@@ -48,7 +48,7 @@ Eight different men had posed as a single chamber music teacher at the conservat
 
 I remain homeless and essentially stateless (with no access to healthcare, police services, privacy, normal things like that..). My family threw me under the bus for the porn gangs years ago. I have symptoms of brain-damage which feel a bit like I've landed on another planet and I don't know how anything works. 
 
-I am unable to work because I continue to be recognized by random men all over the world and most of my colleagues and managers over the last decade or so were subscribing to my sex-slave switcheroo sedated rape-porn stardom!
+I am unable to work because I continue to be recognized by random men all over the world and most of my colleagues and managers were subscribing to my sex-slave switcheroo sedated rape-porn stardom!
 
 However, I am aware of growing international support for my endeavors and I'm truly glad there is some sanity out there.
 
