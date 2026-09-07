@@ -8,29 +8,26 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## Current state of the investigation
-
-- Moved into here from the next batch of thoughts while in publishing mode.
-
-### The biggest lie the world has ever known
+## The biggest lie the world has ever known
 
 1. Rogue group of lupins do terrible thing at salmon mousse's request thirty years ago - with the help of the onion-soup.
 1. Lupins are told that only a small subset of the mousses has asked for this; and the rest of them were not involved.
 1. After the event, the salmon mousses are so horrified by the sound of thunder, they decide to throw their compadres under the bus and distance themselves from the crime - they might have planned this from the start tbf.
 1. Lupins never get paid.
 1. Lupins go horribly rogue and totally insane with vengeance and rage.
-1. The subset of salmon mousses in the frame fail to stand up effectively to the wider salmon mousse group, and this is understandable maybe, but a mistake.
+1. The subset of salmon mousses in the frame fail to stand up effectively to the wider salmon mousse group; perhaps they tried and failed, like everyone else!
 1. Lupins are told all sorts of BS about why they're not getting paid; the wider salmon mousse group insisting it's nothing to do with them.
 1. Lupins are so aggrieved, they get started on their Sergio-Leone-type revenge program, and that means murdering innocent tax-paying British women visiting the region or living there.
 1. They still do not get paid.
 1. The murders continue.
-1. No one investigates. No one cares because the salmon mousses own Spain, and continually block any attempts at stopping these rogue lupins.
-1. And so it goes on, year after year, getting worse and worse.
+1. No one investigates.
+1. And no one cares because the salmon mousses own Spain, and continually block any attempts at stopping these rogue lupins.
+1. And so it goes on, year after year, getting worse and worse, apparently normal citizens realizing they can do the unthinkable without repercussions, the total descent of society.
 1. Aside from their vengeful purpose, the lupins go quite mad in every sense, turning a once thriving small Spanish town into the most famous criminal pornography studio in the world - ask any DIY pornographer worth his sedating drug collection.
 1. In fact their insanity worsens so badly over the decades to the current state of industrial-scale baby-rape and pedophilia, full infiltration by criminal pornographers into the Spanish school system, and alongside that, implementing mass online-manipulation revenge policies against the mousses which have been unusually effective.
 1. The lie the lupins believe is also believed by everyone else they tell, nearly, especially as no-one is coming to help the murdered women and children - assured by the mousses who control everything the Spanish do - and thus criminals from all around the world set up shop in Dénia where they know they'll never be brought to justice.
 1. North London criminal gangs make use of the same lie to spread criminal porn into the stratosphere, addicting millions if not billions of men to sex-murder fetishes, and causing events like [Bali](../timeline/2024/may.md#bali) where tech-workers sedated and raped their female colleague for a whole week, and invited the most famous man in the world who thinks he will never be brought to justice - this is continually asserted to him by the salmon mousses that surround him who are feeding him the lie of two millennia! And he believes it.
-1. Question: how many porn addicts have been told this lie? My friends certainly believed it (Paul, Matthew, etc.). My dad and brother believed it. How could they have all been told something so horrible, and we don't know about it? Is porn such a secret society it can be counted on to never tell on the worst things ever, while ever growing in participants and horribleness?
+1. Question: how many porn addicts have been told this lie? My friends certainly believed it (Paul, Matthew, etc.). My dad and brother believed it. How could they have all been told something so horrible, and we don't know about it? Is porn such a secret society it can be counted on to never tell on the worst things ever, while ever growing in participants and horribleness? And how could they do such terrible things on the basis of such a story? Are all porn-addicts sociopaths? Of course they are.
 1. Good lupins (well, marginally better than the rogue ones) in the region don't know what to do about the rogue ones who have become so criminally insane that even their own families are in danger!
 1. Our heroine enters the pic, totally unawares of what's going on, totally innocent, but with a tendency to say interesting things and make strange shapes with her face. (The mousses had signed her up for the intuitive program early on due to her strange face-shapes and trauma history, and sent her into the battlefield, expecting her to be killed but happy to ingest the information from her devices and home networks while she remained alive. God forbid she ever got wind of that; and then she did.)
 1. She is targeted and made famous in sedated rape-porn internationally. So famous that random men recognize her wherever she goes in the world. 
