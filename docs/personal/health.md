@@ -65,6 +65,13 @@ function googleTranslateElementInit() {
 !!! tip "From here..."
     - All sections from here were written when I considered my only enemies to be the porn-gangs of Spain, North London's finest, and my tech colleagues and had no idea who was really behind it all.
 
+### I create a callous in my palm while they do it
+
+- I started to see this callous on my left palm and there is no explanation for it.
+- I saw it in Dublin in April 2026 and in Bali in July 2026, but it is likely to have been there previously too.
+- It happens during the night, because I do not make the fists that would cause this during the day.
+- Once I'm in a safe environment, it heals and disappears.
+
 ### Mirror, mirror on the wall
 
 - I used to taunt the porn-gangs right on back on X.

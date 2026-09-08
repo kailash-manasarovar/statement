@@ -38,11 +38,11 @@ I survived.
 
 At this point, security services lost their minds completely. They decided that they would more formally steal my eggs (they had already performed [sedated surgery on me in April](timeline/2025/april.md#a-set-up-by-the-industrial-scale-baby-snatchers)), and someone else's sperm (the UN had just kidnapped my counterpart and taken him to Israel), to make surrogate babies. I guess they mistakenly thought our special "gift" might pass down to offspring, but I suspect their true desire was trophies, or perhaps human lab-rats. Whatever they thought, it's utterly horrific and I urge these people - apparently Christians - to review the Bible on this, with particular focus on the words "my followers".
 
-Thus one criminal gang replaced another and I continued to be sedated after going to bed but for a different purpose, and I have the surgical injuries to prove it.
+Thus one criminal gang replaced another and I continued to be sedated after going to bed but for a different purpose, and I have the surgical injuries and scars to prove it.
 
 In October 2025 just after Michaelmas, memories from sedated rape started to return and I realized [something extraordinary about the Tenor Cortis conservatory of Dénia, a government-run music school](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars*.
 
-Eight different men had posed as a single chamber music teacher at the conservatory for [Spain's internationally renowned switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and I had been so successfully brain-damaged by then, I believed they were all the same man.
+Eight different men had posed as a single chamber music teacher at the conservatory for [Spain's internationally renowned switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and I had been so successfully brain-damaged, I believed they were all the same man.
 
 ![Novel cover](content/images/the-novel/cover.webp)
 
