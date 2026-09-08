@@ -52,6 +52,47 @@ I am unable to work because I continue to be recognized by random men all over t
 
 However, I am aware of growing international support for my endeavors and I'm truly glad there is some sanity out there.
 
+## A friend on the inside, and his gang
+
+- At some point during [the switcheroo-porn production at the music school](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel), probably in March 2023, something inexplicable and miraculous happened between myself and a gang member.
+- I had become temporarily conscious one night while sedated in my bed and found [the trumpet teacher sobbing his heart out in my arms](timeline/2023/march.md#dreaming-of-the-trumpet-teacher).
+- My unconditional and relentless good feelings for this man continue to this day.
+- It turns out that the trumpet teacher gang had two sides: the psychotically and mistakenly vengeful side represented by [Domingo Cano Lopez, his family and friends, and teachers and staff at the conservatory](crimes/protagonists/domingo-et-al.md), and another bunch represented by [the man who cried in my arms](crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel). 
+- It seems that the Lopez-Cano's activities in the region had grown out of all proportion into something so hideous, so inexcusable - their mass psychosis putting the local people and even their own families at risk, especially the children and babies - that a group of local people had started to conspire against him too.
+- I was ignorantly at the center of it all: a victim for the Lopez-Cano's misjudged revenge process, a patsy for the good lupins desperate for a cessation to the rampant murder and pedophilia, and a spy-intuitive working for the CIA without my knowledge so that I might report back on those who needed to be kept from the truth at all costs.
+- So a conversation began between me and the trumpet teacher who cried; and his gang too.
+- And this conversation was, in fact, three way as the Americans were also participating.
+- And often it was even four-way, as the Lopez-Cano's joined in to abuse me horribly online and in the street and confuse everything in my mind.
+- Both (apparently friendly) sides drip-fed me information about the decades-long honey-trap enterprise in the region, the mass murder of British women and other foreigners, how the online manipulation tech functioned, and how they were required to use it on children and toddlers.
+- I received photos of some of the men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel).
+- I received photos of [multiple foreign victims of criminal porn scams and murder](timeline/2024/august.md#suspected-targets).
+- The good lupins told me about the baby-rape industry in Dénia, now thought to be the gang’s major source of income, and how if they complained about it their own children would be kidnapped.
+- They warned me about the poisoning in my home and my car.
+- Without their help, I would not be here today.
+
+### My helpers are kidnapped by the UN and taken to Israel
+
+- The good lupins were also having direct conversations with the mousses about things the Americans definitely don't anyone to know about, and you can see this very clearly from the screenshots I took while I was being terrorized online in my home.
+- I was so high and out of my mind on drugs and poisons, I understood nothing of this until the last few weeks (time of writing September 2026)!
+- In July 2025, American salmon mousses, with help from the UN, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
+- They did it in secret, yet wanted me to know about it for some reason, and then lied to me about the nature of it continuously online and in choreographed stalking events internationally since then.
+- The good lupins have been in Israel ever since; working as online leaches - in slavery or incarceration of some sort I assume - which is what they were doing in Spain for Adams's international criminal porn enterprise.
+- The UN raid had been in planning for some time (and coincides with a [reported mass arrest on 22 July](https://www.europapress.es/nacional/noticia-liberadas-162-mujeres-victimas-red-explotacion-sexual-varias-provincias-espana-20250722093030.html)), but the UN required confirmation that I survive poisoning before they agreed to kidnap these people.
+- This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, to prep me, which means the Catholic Church is also somehow involved.
+- And this is why [they tasked the Lopez-Cano's with poisoning me at Lourdes](timeline/2025/july.md#poisoning-ordered-by-the-mousses) - so that I'd still think I was in danger from them - but this is an extraordinary admission by the mousses of criminal involvement, if not management of what's going on in Dénia, and adds to [my assertion that the Lopez-Cano's have no clue at all about who didn't pay them back in the 90s](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known).
+
+![Super-hero squirrel](content/images/super-hero-squirrel.png)
+
+- After [seeing the woman poisoner from Dénia](timeline/2025/july.md#poisoning-ordered-by-the-mousses) in reception at my hotel, and then reading "sorry hola" on my mobile before poisoning, and throughout my stay in Cauterets after surviving poisoning, the Americans gave me a lot of false information online.
+- They told me my friend was going to be rescued and taken to Israel and they even gave me a date and time for it - it was a Monday that's all I can remember, I was up in the high mountains that day or the day after.
+- And, online, they were pretending to me they were Israeli, and that only Israelis were involved in rescuing him, and him alone.
+- I understand why the Americans were lying to me about Israel; they literally set Israel up to take the blame for nearly all their evil doing, unless there's a stronger option to hand.
+- But why lie to me about the nature of the extraction? What did they hope to gain? How were they planning on manipulating the story around favorably to themselves? 
+- My view is that once they had gotten what they psychotically (it has to be agreed) wanted from myself and my dear friend, they were planning to murder us all. Yes, the whole of lot of us. 
+- Certainly the way they have treated me over these last years - while doing NOTHING about the real crimes - makes it look like a certainty.
+- On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and a female gang member I had never seen before but it seems any manipulated communication is memorable.
+- All this *must* prove that the good lupins knew the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), my non-consensual role for the mousses and other things that the mousses would not like the world to know about, because classes at the conservatory where children are groomed and drugged by their serial-killing teachers continue to this day!
+
 ## Mass voyeurism, cyber-stalking, gang-stalking, honey-trapping, sedated spy-cam rape-porn, poisoning and drugging, and staggering levels of sexual violence against women, children, and babies
 
 ### Porn fatwa
@@ -187,47 +228,6 @@ However, I am aware of growing international support for my endeavors and I'm tr
 - I'm certain the caliphate knew it, and knew it very well, and have laughingly paid billions to get their own enemies to run their tech-weaponry.
 
 ![Planning the murder of innocents](content/images/planning-the-murder-of-innocents.png)
-
-## A friend on the inside, and his gang
-
-- At some point during [the switcheroo-porn production at the music school](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel), probably in March 2023, something inexplicable and miraculous happened between myself and a gang member.
-- I had become temporarily conscious one night while sedated in my bed and found [the trumpet teacher sobbing his heart out in my arms](timeline/2023/march.md#dreaming-of-the-trumpet-teacher).
-- My unconditional and relentless good feelings for this man continue to this day.
-- It turns out that the trumpet teacher gang had two sides: the psychotically and mistakenly vengeful side represented by [Domingo Cano Lopez, his family and friends, and teachers and staff at the conservatory](crimes/protagonists/domingo-et-al.md), and another bunch represented by [the man who cried in my arms](crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel). 
-- It seems that the Lopez-Cano's activities in the region had grown out of all proportion into something so hideous, so inexcusable - their mass psychosis putting the local people and even their own families at risk, especially the children and babies - that a group of local people had started to conspire against him too.
-- I was ignorantly at the center of it all: a victim for the Lopez-Cano's misjudged revenge process, a patsy for the good lupins desperate for a cessation to the rampant murder and pedophilia, and a spy-intuitive working for the CIA without my knowledge so that I might report back on those who needed to be kept from the truth at all costs.
-- So a conversation began between me and the trumpet teacher who cried; and his gang too.
-- And this conversation was, in fact, three way as the Americans were also participating.
-- And often it was even four-way, as the Lopez-Cano's joined in to abuse me horribly online and in the street and confuse everything in my mind.
-- Both (apparently friendly) sides drip-fed me information about the decades-long honey-trap enterprise in the region, the mass murder of British women and other foreigners, how the online manipulation tech functioned, and how they were required to use it on children and toddlers.
-- I received photos of some of the men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel).
-- I received photos of [multiple foreign victims of criminal porn scams and murder](timeline/2024/august.md#suspected-targets).
-- The good lupins told me about the baby-rape industry in Dénia, now thought to be the gang’s major source of income, and how if they complained about it their own children would be kidnapped.
-- They warned me about the poisoning in my home and my car.
-- Without their help, I would not be here today.
-
-### My helpers are kidnapped by the UN and taken to Israel
-
-- The good lupins were also having direct conversations with the mousses about things the Americans definitely don't anyone to know about, and you can see this very clearly from the screenshots I took while I was being terrorized online in my home.
-- I was so high and out of my mind on drugs and poisons, I understood nothing of this until the last few weeks (time of writing September 2026)!
-- In July 2025, American salmon mousses, with help from the UN, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
-- They did it in secret, yet wanted me to know about it for some reason, and then lied to me about the nature of it continuously online and in choreographed stalking events internationally since then.
-- The good lupins have been in Israel ever since; working as online leaches - in slavery or incarceration of some sort I assume - which is what they were doing in Spain for Adams's international criminal porn enterprise.
-- The UN raid had been in planning for some time (and coincides with a [reported mass arrest on 22 July](https://www.europapress.es/nacional/noticia-liberadas-162-mujeres-victimas-red-explotacion-sexual-varias-provincias-espana-20250722093030.html)), but the UN required confirmation that I survive poisoning before they agreed to kidnap these people.
-- This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, to prep me, which means the Catholic Church is also somehow involved.
-- And this is why [they tasked the Lopez-Cano's with poisoning me at Lourdes](timeline/2025/july.md#poisoning-ordered-by-the-mousses) - so that I'd still think I was in danger from them - but this is an extraordinary admission by the mousses of criminal involvement, if not management of what's going on in Dénia, and adds to [my assertion that the Lopez-Cano's have no clue at all about who didn't pay them back in the 90s](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known).
-
-![Super-hero squirrel](content/images/super-hero-squirrel.png)
-
-- After [seeing the woman poisoner from Dénia](timeline/2025/july.md#poisoning-ordered-by-the-mousses) in reception at my hotel, and then reading "sorry hola" on my mobile before poisoning, and throughout my stay in Cauterets after surviving poisoning, the Americans gave me a lot of false information online.
-- They told me my friend was going to be rescued and taken to Israel and they even gave me a date and time for it - it was a Monday that's all I can remember, I was up in the high mountains that day or the day after.
-- And, online, they were pretending to me they were Israeli, and that only Israelis were involved in rescuing him, and him alone.
-- I understand why the Americans were lying to me about Israel; they literally set Israel up to take the blame for nearly all their evil doing, unless there's a stronger option to hand.
-- But why lie to me about the nature of the extraction? What did they hope to gain? How were they planning on manipulating the story around favorably to themselves? 
-- My view is that once they had gotten what they psychotically (it has to be agreed) wanted from myself and my dear friend, they were planning to murder us all. Yes, the whole of lot of us. 
-- Certainly the way they have treated me over these last years - while doing NOTHING about the real crimes - makes it look like a certainty.
-- On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and a female gang member I had never seen before but it seems any manipulated communication is memorable.
-- All this *must* prove that the good lupins knew the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), my non-consensual role for the mousses and other things that the mousses would not like the world to know about, because classes at the conservatory where children are groomed and drugged by their serial-killing teachers continue to this day!
 
 ## From honey-traps to world domination
 
