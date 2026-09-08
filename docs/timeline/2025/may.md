@@ -93,6 +93,21 @@ function googleTranslateElementInit() {
 - So I said something like, *wow, people are really divided contentiously aren't they* and went for a walk.
 - Then, the very next day, someone actually did try to kill him!
 
+### God save the King!
+
+- During the course, I start thinking of King Charles, over and over.
+- He has become a theme in my mind.
+- It is so strange, there's no reason for it, and I don't understand it.
+- It's not like some of the other curious ideas I have at all. 
+- I feel like it's a foreign idea, so in my attempts to figure it out I wonder if I'm picking it up from someone else.
+- I decide that my partner who has a practice in Harley Street must treat the royals - it wouldn't be unusual for that to happen - and I leave it there.
+- But I do start to wonder if ideas can be *put* in an intuitives head, as it were, for manipulation purposes.
+- I kept having these bizarre thoughts about the King throughout the course, and there was always something much stronger telling me just to note it and not to worry about it. That it is *not* our business and so that's why I have never reported it.
+- And the ideas stopped once the course had ended too.
+- Interestingly, I have always had rather good feelings about the King, warm feelings, and when this happened strongly once again - in Dorset in early 2026 - I thought he actually might be coming to visit and I was quite excited about that.
+- It all clicked into place during/after [Bali in July 2026](../2026/july.md#loka-yoga) on the CIA psychological-torture intensive which had very little detrimental effect on me and, I think now, rather helped me enormously to get clear on a great many things - undoubtedly not their intention.
+- It's like it bubbles up... and I feel it's essential nature which overrides what they might have wanted me to think instead if it was different, or a lie!
+
 ### Hearing the bell in her earpiece
 
 - Of 8 of us in the circle, plus Steve, all said they were not able to hear the bell.
@@ -108,21 +123,6 @@ function googleTranslateElementInit() {
 - I've always thought Adam was working for Adams, since he turned up the year before and was seething.
 - He looks at his phone and then suddenly complains about the aches in his hands.
 - Steve asks him to come over and has a look at them.
-
-### They're putting ideas in my head
-
-- I start thinking of a person over and over.
-- He's a very famous person, that everyone in the world knows, and I had him in my head the whole course. It was bizarre.
-- I believe this is squirrel's matter, and they were trying to get me to write about it so that I would be murdered instantaneously.
-- There is no other reason for it that I can think of, and they had gotten what they wanted already.
-- If I'm right about what it was, then they're happy to throw anyone and everyone under the bus, no matter how big or loyal they're supposed to be to that person.
-- Steve even mentioned him out loud at lunch one day in a context which was supposed to trigger something in me - it's not clear if they're able to prompt him without his knowledge to say things like this, I think they do.
-- It was so strange at the time, I couldn't fathom it out.
-- But I knew enough to know that this was certainly not an Instruction from Himself.
-- Is that the true nature of the *intensives*?
-- I didn't know they could do this to unwitting intuitives but I guess it makes sense.
-- I kept having these bizarre thoughts throughout the course, and always something much stronger telling me just to note it and not to worry about it. That it is *not* our business.
-- It all clicked into place in [Bali in July 2026](../2026/july.md#loka-yoga) on the CIA psychological-torture intensive which had very little detrimental effect on me and, I think now, rather helped me enormously.
 
 ### Steve says he doesn't know when the courses are scheduled
 
