@@ -192,9 +192,9 @@ However, I am aware of growing international support for my endeavors and I'm tr
 
 - At some point during [the switcheroo-porn production at the music school](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel), probably in March 2023, something inexplicable and miraculous happened between myself and a gang member.
 - I had become temporarily conscious one night while sedated in my bed and found [the trumpet teacher sobbing his heart out in my arms](timeline/2023/march.md#dreaming-of-the-trumpet-teacher).
+- All sides have (hacked) footage of this event.
 - My unconditional and relentless good feelings for this man continue to this day.
 - It turns out that the trumpet teacher gang had two sides: the psychotically and mistakenly vengeful side represented by [Domingo Cano Lopez, his family and friends, and teachers and staff at the conservatory](crimes/protagonists/domingo-et-al.md), and another bunch represented by [the man who cried in my arms](crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel). 
-- All sides have footage of it.
 - It seems that the Lopez-Cano's activities in the region had grown out of all proportion into something so hideous, so inexcusable - their mass psychosis putting the local people and even their own families at risk, especially the children and babies - that a group of local people had started to conspire against him too.
 - I was ignorantly at the center of it all: a victim for the Lopez-Cano's misjudged revenge process, a patsy for the good lupins desperate for a cessation to the rampant murder and pedophilia, and a spy-intuitive working for the CIA without my knowledge so that I might report back on those who needed to be kept from the truth at all costs.
 - So a conversation began between me and the trumpet teacher who cried; and his gang too.
@@ -209,7 +209,7 @@ However, I am aware of growing international support for my endeavors and I'm tr
 
 ### My helpers are sequestered in Israel after a UN raid
 
-- They were also having direct conversations with the Americans about things they don't want anyone to know about and you can see this very clearly from the screenshots I took while I was being terrorized online.
+- The good lupins were also having direct conversations with the Americans about things they don't want anyone to know about and you can see this very clearly from the screenshots I took while I was being terrorized online.
 - I was so high, out of my mind on drugs and poisons, I understood none of it at all until the last few weeks (time of writing September 2026)!
 - In July 2025, American salmon mousses, with help from the UN, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
 - They did it in secret, yet wanted me to know about it for some reason, and then lied about the nature of it continuously, online and in choreographed stalking events internationally since then.
