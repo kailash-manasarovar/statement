@@ -72,26 +72,26 @@ However, I am aware of growing international support for my endeavors and I'm tr
 
 ### My helpers are kidnapped by the UN and taken to Israel
 
-- The good lupins were also having direct conversations with the mousses about things the Americans definitely don't anyone to know about, and you can see this very clearly from the screenshots I took while I was being terrorized online in my home.
+- The good lupins were also having direct conversations with the mousses about things the Americans definitely don't anyone to know about, and you can see this very clearly from the screenshots I took from the period I was being terrorized online in my home.
 - I was so high and out of my mind on drugs and poisons, I understood nothing of this until the last few weeks (time of writing September 2026)!
 - In July 2025, American salmon mousses, with help from the UN, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
 - They did it in secret, yet wanted me to know about it for some reason, and then lied to me about the nature of it continuously online and in choreographed stalking events internationally since then.
 - The good lupins have been in Israel ever since; working as online leaches - in slavery or incarceration of some sort I assume - which is what they were doing in Spain for Adams's international criminal porn enterprise.
 - The UN raid had been in planning for some time (and coincides with a [reported mass arrest on 22 July](https://www.europapress.es/nacional/noticia-liberadas-162-mujeres-victimas-red-explotacion-sexual-varias-provincias-espana-20250722093030.html)), but the UN required confirmation that I survive poisoning before they agreed to kidnap these people.
 - This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, to prep me, which means the Catholic Church is also somehow involved.
-- And this is why [they tasked the Lopez-Cano's with poisoning me at Lourdes](timeline/2025/july.md#poisoning-ordered-by-the-mousses) - so that I'd still think I was in danger from them - but this is an extraordinary admission by the mousses of criminal involvement, if not management of what's going on in Dénia, and adds to [my assertion that the Lopez-Cano's have no clue at all about who didn't pay them back in the 90s](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known).
+- And this is why [they tasked the Lopez-Cano's with poisoning me at Lourdes](timeline/2025/july.md#poisoning-ordered-by-the-mousses) - so that I'd still think I was in danger from them - an extraordinary admission by the mousses of criminal involvement, if not management of what's going on in Dénia, and adds to [my assertion that the Lopez-Cano's have no clue at all about who didn't pay them back in the 90s](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known).
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
 - After [seeing the woman poisoner from Dénia](timeline/2025/july.md#poisoning-ordered-by-the-mousses) in reception at my hotel, and then reading "sorry hola" on my mobile before poisoning, and throughout my stay in Cauterets after surviving poisoning, the Americans gave me a lot of false information online.
 - They told me my friend was going to be rescued and taken to Israel and they even gave me a date and time for it - it was a Monday that's all I can remember, I was up in the high mountains that day or the day after.
-- And, online, they were pretending to me they were Israeli, and that only Israelis were involved in rescuing him, and him alone.
-- I understand why the Americans were lying to me about Israel; they literally set Israel up to take the blame for nearly all their evil doing, unless there's a stronger option to hand.
+- And, online, they were pretending to me they were Israeli, and that only Israelis were involved in rescuing him and him alone.
+- I understand why the Americans were lying to me about Israel; they literally set Israel up to take the blame for nearly all their evil doing, unless there's a stronger or more politically favorable option(s) to hand.
 - But why lie to me about the nature of the extraction? What did they hope to gain? How were they planning on manipulating the story around favorably to themselves? 
 - My view is that once they had gotten what they psychotically (it has to be agreed) wanted from myself and my dear friend, they were planning to murder us all. Yes, the whole of lot of us. 
-- Certainly the way they have treated me over these last years - while doing NOTHING about the real crimes - makes it look like a certainty.
-- On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and a female gang member I had never seen before but it seems any manipulated communication is memorable.
-- All this *must* prove that the good lupins knew the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), my non-consensual role for the mousses and other things that the mousses would not like the world to know about, because classes at the conservatory where children are groomed and drugged by their serial-killing teachers continue to this day!
+- Certainly the way they have treated me, an apparent friend, over these last years - while doing **NOTHING** about the real crimes - makes our murder look very much like their certainty.
+- On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice and I hope gets even stronger), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and a female gang member I have never seen before but it seems any manipulated communication is memorable.
+- All this *must* prove that the good lupins know the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), my non-consensual role for the mousses and other things that the mousses would not like the world to know about, because classes at the conservatory where children are groomed and drugged by their serial-killing teachers continue to this day!
 
 ## Mass voyeurism, cyber-stalking, gang-stalking, honey-trapping, sedated spy-cam rape-porn, poisoning and drugging, and staggering levels of sexual violence against women, children, and babies
 
