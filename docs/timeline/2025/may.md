@@ -100,9 +100,8 @@ function googleTranslateElementInit() {
 - It's not like some of the other curious ideas I have at all. 
 - I feel like it's a foreign idea, so in my attempts to figure it out I wonder if I'm picking it up from someone else.
 - I decide that my partner who has a practice in Harley Street must treat the royals - it wouldn't be unusual for that to happen - and I leave it there.
-- But I do start to wonder if ideas can be *put* in an intuitives head, as it were, for manipulation purposes.
-- I kept having these bizarre thoughts about the King throughout the course, and there was always something much stronger telling me just to note it and not to worry about it. That it is *not* our business and so that's why I have never reported it.
-- And the ideas stopped once the course had ended too.
+- I kept having these bizarre thoughts about the King throughout the course, but there was always something much stronger telling me just to note it and not to worry about it. 
+- And the ideas stopped once the course had ended.
 - Interestingly, I have always had rather good feelings about the King, warm feelings, and when this happened strongly once again - in Dorset in early 2026 - I thought he actually might be coming to visit and I was quite excited about that.
 - It all clicked into place during/after [Bali in July 2026](../2026/july.md#loka-yoga) on the CIA psychological-torture intensive which had very little detrimental effect on me and, I think now, rather helped me enormously to get clear on a great many things - undoubtedly not their intention.
 
