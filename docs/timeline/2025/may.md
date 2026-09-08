@@ -70,7 +70,6 @@ function googleTranslateElementInit() {
 
 - I remember asking Yvonne on the first day of the intensive if I could leave my stuff overnight in the Avila centre, and everyone looking at each other - she's looking at Steve to get confirmation - and then saying no.
 - I said, *oh has there been some theft here*, and they all looked at each other intently again, Yvonne and Steve, one of the others, and she said quietly, *yes*.
-- Interesting.
 
 ### Yvonne tells me Steve is giving her a hard time
 
@@ -88,7 +87,7 @@ function googleTranslateElementInit() {
 - And I was shaking (cos you're not allowed to have a different view from them, or you can lose your job, get attacked, etc.) and my voice was quivering, but I said something like: *oh you mean the thousands of fit young men who hate women coming into the UK every day?*
 - And I could see faces contorting as I mentioned the obliteration of women's rights by the left, as if they agreed with me but knew they couldn't speak about it.
 - And there was some discussion, and politics was never spoke of again.
-- Although, incidentally, in April 2026 in Dublin on the second course where they were all agents and had started to bully me a little, politics came up quite a lot at tea times.
+- Although, incidentally, in April 2026 in Dublin on the second course where they were all agents and had started to bully me (a *roasting* they often called it online), politics came up quite a lot at tea times.
 - One woman even said, forcefully, that she wanted to murder Trump - and I was thinking, that's a bit strong.. I was shocked actually.. even more so because no-one else at the table seemed to disagree with her.
 - So I said something like, *wow, people are really divided contentiously aren't they* and went for a walk.
 - Then, the very next day, someone actually did try to kill him!
@@ -106,7 +105,6 @@ function googleTranslateElementInit() {
 - And the ideas stopped once the course had ended too.
 - Interestingly, I have always had rather good feelings about the King, warm feelings, and when this happened strongly once again - in Dorset in early 2026 - I thought he actually might be coming to visit and I was quite excited about that.
 - It all clicked into place during/after [Bali in July 2026](../2026/july.md#loka-yoga) on the CIA psychological-torture intensive which had very little detrimental effect on me and, I think now, rather helped me enormously to get clear on a great many things - undoubtedly not their intention.
-- It's like it bubbles up... and I feel it's essential nature which overrides what they might have wanted me to think instead if it was different, or a lie!
 
 ### Hearing the bell in her earpiece
 
