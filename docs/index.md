@@ -93,7 +93,10 @@ However, I am aware of growing international support for my endeavors and I'm tr
 - On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice and I hope it gets even stronger), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and a female gang member I have never seen before but it seems any manipulated communication is memorable.
 - All this *must* prove that the good lupins know the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), my non-consensual role for the mousses and other things that the mousses would not like the world to know about, because classes at the conservatory where children are groomed and drugged by their serial-killing teachers continue to this day!
 
-## Mass voyeurism, cyber-stalking, gang-stalking, honey-trapping, sedated spy-cam rape-porn, poisoning and drugging, and staggering levels of sexual violence against women, children, and babies
+## Background
+
+!!! danger "The conservatory's crimes"
+    - Mass voyeurism, cyber-stalking, gang-stalking, honey-trapping, sedated spy-cam rape-porn, poisoning and drugging, murder, and staggering levels of sexual violence against women, children, and babies.
 
 ### Porn fatwa
 
