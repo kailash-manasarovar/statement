@@ -107,9 +107,16 @@ function googleTranslateElementInit() {
 
 ### Hearing the bell in her earpiece
 
-- Of 8 of us in the circle, plus Steve, all said they were not able to hear the bell.
-- One other, including me, heard it.
-- wip
+- A Swedish woman is doing the work on her partner while the rest of us sit in a circle around the table - this is how the intensive course functions, 90% of the time you're sitting quietly in a circle watching the others work.
+- She has set her timer bell to go off in her earpiece, and I can hear it.
+- After she's finished, Steve wants to know how on earth she managed to keep time without a bell - because he didn't hear it.
+- Six of the others, bar one, say the same thing; *yeah, how did you do that?*.
+- She tells us she's set it to go off in her earpiece.
+- I tell everyone I could hear it clearly.
+- The other woman, a Polish acupuncturist living in Peterborough, also says she could hear it and she's surprised she's unusual in the group.
+- It was very audible and I don't have super hearing.
+- Are they all wearing earpieces which would block them from hearing low tones like this while someone is chattering away giving instructions?
+- I would never have thought such a thing [pre-Bali July 2026](../2026/july.md#loka-yoga) but here we are.
 
 ### Adam has pain in his hands
 
