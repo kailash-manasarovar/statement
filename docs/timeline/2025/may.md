@@ -116,17 +116,20 @@ function googleTranslateElementInit() {
 - The other woman, a Polish acupuncturist living in Peterborough, also says she could hear it and she's surprised she's unusual in the group.
 - It was very audible and I don't have super hearing.
 - Are they all wearing earpieces which would block them from hearing low tones like this while someone is chattering away giving instructions?
-- I would never have thought such a thing [pre-Bali July 2026](../2026/july.md#loka-yoga) but here we are.
+- I would never have thought such a thing [pre-Bali July 2026](../2026/july.md#loka-yoga).
 
 ### Adam has pain in his hands
 
-- So do I.
-- It's constant after driving long distances and I don't always wear gloves at this stage.
-- I'm still suffering from aches and pains from my pesticide-ridden clothing.
-- I complain about this online.
-- I've always thought Adam was working for Adams, since he turned up the year before and was seething.
-- He looks at his phone and then suddenly complains about the aches in his hands.
-- Steve asks him to come over and has a look at them.
+- I've been suspicious of Adam since the first course he attended.
+- I always assumed he was working for the criminal gangs and had been sent to spy on me, like some other course participants I already mentioned.
+- My car has been doused with pesticides and this seeps into the plastics and won't come out.
+- Whenever I drive without gloves, I start feeling that bone ache I had in my body when I was wearing pesticide-soaked clothes and shoes, and sleeping under the toxic duvet I brought to London with me from Spain.
+- I complain about this online, a lot, so everyone knows.
+- Furthermore, I have mentioned this to law-enforcement in multiple communications.
+- It's quite bad after driving from London to Wales and forgetting to wear gloves.
+- I often forgot to wear them and I believe this is due to constant gaslighting around me and no-one helping me so I just gave up on myself and went along with them in certain respects, thankfully not all.
+- Close to the end of the two days, I notice Adam is on his phone while we're talking, and then Steve asks if anyone has any questions and he suddenly puts his hand up and tells Steve he's having aches in his hands.
+- Steve asks him to come over and has a look at them for a few minutes, then Adam sits down again.
 
 ### Steve says he doesn't know when the courses are scheduled
 
