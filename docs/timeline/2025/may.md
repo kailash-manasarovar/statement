@@ -286,3 +286,26 @@ function googleTranslateElementInit() {
 - He doesn't want help, he doesn't want to be touched.
 - We're both upset.
 - He gets up and we carry on as if none of it happened.
+
+### Mrs Wasserman is the Rebbe's niece
+
+- Steve and I are at dinner in Mamilla one evening with Mrs Wasserman.
+- Over dinner they start talking about kabbalah, and Chabad - I'm actually counting the omer at that time using the Chabad website to do so.
+- Steve (feigns?) ignorance by seeming to only know about Kabbalah from Madonna.
+- I tell everyone I had written to the Rebbe twice.
+- Mrs Wasserman tell us she's his niece.
+- I gasp! I'm very impressed.
+- When Steve and I are talking later on about these things, he tells me that yeah, Mrs Wasserman is Jewish royalty.
+
+### Signs and signals of fertility and pregnancy
+
+- I was getting this from Mrs Wasserman, her nephew Jonathan, and even Steve throughout the course.
+- Steve kept saying, repeatedly to me, and markedly too, *Jonathan has 8 children you know*, so I don't feel that he was necessarily in full agreement with however they were deciding without my knowledge or consent - and had just already done in Dublin - to chop me up and divvy me out.
+- There was a small baby Ruth attending, who was gorgeous, her mother was older and single and very inspiring actually.
+- Another one of the women was desperate to get pregnant, and nothing was happening, but this all seemed normal to me.
+- However, the signals with regards to my potential motherhood were very clear to me; hints and signs, the way spies do.
+- So I ignored them.
+- But it did get me thinking, and indeed since summer 2024 I have been desirous of offspring but I always believed that was the porn-gang manipulation tech demo to describe how women are tricked into producing the product for the baby-rape industrialists.
+- Nevertheless, whenever they turned this online manipulation off, I still felt like I wanted to be a mother, and I thought that was marvelously ironic.
+- Could the mousses have set this up for themselves, essentially? Knowing from 2007 that I survive poisoning?
+- More coming up on this for this session, and September as I go through my todo: list.
