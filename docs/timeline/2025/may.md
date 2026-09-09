@@ -36,11 +36,10 @@ function googleTranslateElementInit() {
 - I think I even told my mother this.
 - I believe now that the first surreptitious egg-extraction surgery took place at the Anantara.
 
-!!! tip "I just realized why they did this"
-    - My pathological good opinion of everyone struck again didn't it.
-    - I like the way it has continually offered everyone redemption, every step of the way.
-    - Tanya was here staring at me to add to the intrigue just in case it went tits up for them, as it always does, and they could blame Israel again.
-    - When she finds out... I expect she'll do the right thing, like many millions more will too.
+!!! tip "Prepping putting the blame on Israel"
+    - It never made sense to me why she would be there, I don't think like that, until I found out I had been operated on while sedated a bunch of times.
+    - Tanya was here staring at me to add to the intrigue and conspiracy, just in case it went tits up for them, as it always does, and they could blame Israel, again.
+    - When Tanya (or whatever your name is) finds out... I expect she'll do the right thing, like many millions more will too.
 
     ![The Lives of Others](../../content/images/the-lives-of-others.webp)
 
