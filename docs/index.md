@@ -83,7 +83,7 @@ However, I am aware of growing international support for my endeavors and I'm tr
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
-- After [seeing the woman poisoner from Dénia](timeline/2025/july.md#poisoning-ordered-by-the-mousses) in reception at my hotel, and then reading "sorry hola" on my mobile before poisoning, and throughout my stay in Cauterets after surviving poisoning, the Americans gave me a lot of false information online.
+- After [seeing the woman poisoner from Dénia](timeline/2025/july.md#poisoning-ordered-by-the-mousses) in reception at my hotel, and then reading "sorry hola" on my mobile before poisoning, and throughout my stay in Cauterets after surviving poisoning, the Americans gave me a lot of false information online - in the same way they had said "sorry hola" too.
 - They told me my friend was going to be rescued and taken to Israel and they even gave me a date and time for it - it was a Monday that's all I can remember, I was up in the high mountains that day or the day after.
 - And, online, they were pretending to me they were Israeli, and that only Israelis were involved in rescuing him and him alone.
 - I understand why the Americans were lying to me about Israel; they set Israel up to take the blame for nearly all their evil doing, unless there's a stronger or more politically favorable option(s) to hand.
@@ -91,8 +91,15 @@ However, I am aware of growing international support for my endeavors and I'm tr
 - My view is that once they had gotten what they psychotically (it has to be agreed) wanted from myself and my dear friend, they were planning to murder us all. Yes, the whole of lot of us. 
 - Certainly the way they have treated me, an apparent friend, over these last years - while doing **NOTHING** about the real crimes - makes our murder look very much like their certainty.
 - I also believe that the good lupins had been targeted by American mousses from as early as 1997 to take the blame for what the Lopez-Cano's never got paid for, and my presence in Dénia had always been a huge part of that.
-- On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice and I hope it gets even stronger), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and a female gang member I have never seen before but it seems any manipulated communication is memorable.
-- All this *must* prove that the good lupins know the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), my non-consensual role for the mousses and other things that the mousses would not like the world to know about, and what American mousses had intended for them too because classes at the conservatory where children are groomed and drugged by their serial-killing teachers continue to this day!
+- On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice and I hope it gets even more pathological), and I even saw [a switcheroo trumpet teacher for the first time consciously](crimes/protagonists/vidal-sastre.md#7-the-pangolin), as well as a female gang member I have never seen before but it seems any manipulated communication is memorable.
+- All this *must* prove the following:
+    - The good lupins know the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), and other things they would not like the world to know about.
+    - The American mousses, the Lopez Cano's, and North London criminal porn gangs are good buddies.
+    - The American mousses had been working for decades towards framing the good lupins for the crime.
+    - I was helping them with that, non-consensually, while in Dénia; all my human rights deemed unimportant and discarded.
+    - The American mousses tasked the Lopez Cano's with the original crime and set them up to believe it was the British mousses all this time.
+    - Everyone has believed the lie since then and the world has gone stark raving porn-mad because of it.
+- The reason all these things must be true is that classes at the conservatory where children are groomed and drugged by their serial-killing Lopez Cano teachers continue to this day!
 
 ## Background
 
