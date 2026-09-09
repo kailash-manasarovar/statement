@@ -4,10 +4,6 @@
 
 ## TODO: list
 
-### 1996
-
-1. On the busses with Ray Archer.
-
 ### 2012
 
 - Robert has just been inordinately rude to me and mum and gone upstairs.
