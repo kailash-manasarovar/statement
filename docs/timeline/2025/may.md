@@ -133,7 +133,8 @@ function googleTranslateElementInit() {
 
 ### Steve says he doesn't know when the courses are scheduled
 
-- I ask Steve on the last day when the next intensive is.
+- I ask Steve on the last day when the next intensive is planned.
+- There has maybe been one other intensive I heard about him doing like this in five years of study. It's not a regular thing at all.
 - He says *I have no idea*, in a manner in which it sounds like he has no input whatsoever into his schedule.
 - I say goodbye and tell him I look forward to seeing him in Israel in a couple of weeks.
 
