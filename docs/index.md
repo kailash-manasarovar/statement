@@ -57,7 +57,7 @@ However, I am aware of growing international support for my endeavors and I'm tr
 - At some point during [the switcheroo-porn production at the music school](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel), probably in March 2023, something inexplicable and miraculous happened between myself and a gang member.
 - I had become temporarily conscious one night while sedated in my bed and found [the trumpet teacher sobbing his heart out in my arms](timeline/2023/march.md#dreaming-of-the-trumpet-teacher).
 - My unconditional and relentless good feelings for this man continue to this day.
-- It turns out that the trumpet teacher gang had two sides: the psychotically and mistakenly vengeful side represented by [Domingo Lopez Cano, his family and friends, and teachers and staff at the conservatory](crimes/protagonists/domingo-et-al.md), and another bunch represented by [the man who cried in my arms](crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel) who I know to be called Antonio Ruiz (second surname a little unclear but possibly/likely Sendra), or Tonia for short.
+- It turns out that the trumpet teacher gang had two sides: the psychotic and mistakenly vengeful side represented by [Domingo Lopez Cano, his family and friends, and teachers and staff at the conservatory](crimes/protagonists/domingo-et-al.md), and another bunch represented by [the man who cried in my arms](crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel) who I know to be called Antonio Ruiz (second surname a little unclear but possibly/likely Sendra), or Tonia for short.
 - It seems that the Lopez-Cano's activities in the region had grown out of all proportion into something so hideous, so inexcusable - their mass psychosis putting the local people and even their own families at risk, especially the children and babies - that a group of local people had started to conspire against him too.
 - I was ignorantly at the center of it all: a victim for the Lopez-Cano's misjudged revenge process, a patsy for the good lupins desperate for a cessation to the rampant murder and pedophilia, and a spy-intuitive working for the CIA without my knowledge so that I might report back on those who needed to be kept from the truth at all costs.
 - So a conversation began between me and the trumpet teacher who cried; and his gang too.
@@ -66,7 +66,7 @@ However, I am aware of growing international support for my endeavors and I'm tr
 - Both (apparently friendly) sides drip-fed me information about the decades-long honey-trap enterprise in the region, the mass murder of British women and other foreigners, how the online manipulation tech functioned, and how they were required to use it on children and toddlers.
 - I received photos of some of the men involved in [the conservatory switcheroo porn-scam](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel).
 - I received photos of [multiple foreign victims of criminal porn scams and murder](timeline/2024/august.md#suspected-targets).
-- The good lupins told me about the baby-rape industry in Dénia, now thought to be the gang’s major source of income, and how if they complained about it their own children would be kidnapped.
+- The good lupins told me about the baby-rape industry in Dénia, now thought to be the region's major source of income, and how if they complained about it their own children would be kidnapped.
 - They warned me about the poisoning in my home and my car.
 - Without their help, I would not be here today.
 
