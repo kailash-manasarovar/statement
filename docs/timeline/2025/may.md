@@ -37,7 +37,7 @@ function googleTranslateElementInit() {
 - I believe now that the first surreptitious egg-extraction surgery took place at the Anantara.
 
 !!! tip "Prepping putting the blame on Israel"
-    - It never made sense to me why she would be there, I don't think like that, until I found out I had been operated on while sedated a bunch of times.
+    - It never really made any sense to me why she would be there - I don't think like a spy - until I found out I had been operated on while sedated a bunch of times.
     - Tanya was here staring at me to add to the intrigue and conspiracy, just in case it went tits up for them, as it always does, and they could blame Israel, again.
     - When Tanya (or whatever your name is) finds out... I expect she'll do the right thing, like many millions more will too.
 
@@ -301,6 +301,9 @@ function googleTranslateElementInit() {
 ### Signs and signals of fertility and pregnancy
 
 - I was getting this from Mrs Wasserman, her nephew Jonathan, and even Steve throughout the course.
+- It was surprising, I didn't understand it though so I just watched.
+- I think now it's possible they got a viable pregnancy going from one of my eggs they extracted in Dublin at the Anantara... I wonder if it is this one that Steve is the father of because squirrel was still a free man in Spain.
+- Anyway. We'll soon find out for sure.
 - Steve kept saying, repeatedly to me, and markedly too, *Jonathan has 8 children you know*, so I don't feel that he was necessarily in full agreement with however they were deciding without my knowledge or consent - and had just already done in Dublin - to chop me up and divvy me out.
 - There was a small baby Ruth attending, who was gorgeous, her mother was older and single and very inspiring actually.
 - Another one of the women was desperate to get pregnant, and nothing was happening, but this all seemed normal to me.

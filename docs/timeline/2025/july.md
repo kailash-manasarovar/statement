@@ -329,7 +329,7 @@ function googleTranslateElementInit() {
 
 ## Everything changes
 
-- I won't realize until August 2026, but this marks the moment that criminal gangs are *officially* replaced by security services.
+- I won't realize until August 2026, but this marks the moment that criminal gangs are *officially* replaced by security services - not even then... way earlier.
 - I do notice something has changed, but it's not clear to me in my drugged (constant invasive-surgery recovery - pain killers was it?) state exactly what or why.
 - In fact, I've been so effectively drugged during this time, I don't realize that the constant agent activity around me since July 2025 is not about law-enforcement bringing down the largest international criminal gang ever known at all.
 - No, it's all about stealing a *superhero's* eggs, and not helping me at all. They don't care if I die, and my guess is they're hoping that one of their attempts at murdering me will eventually work.
@@ -355,6 +355,7 @@ function googleTranslateElementInit() {
 
 ### Industrial-scale baby-theft
 
+- My guess is they got a viable pregnancy from April 2025 in Dublin, and the Americans requested to kidnap squirrel at that time for his sperm. But the UN needed full proof I survive poisoning, which they got, so they started to bite regular chunks out of me on American order with UN backing. Sickening!
 - The baby-theft is obviously a running clandestine security program as it is, again just like in Dénia and Bali, a well-oiled machine.
 - There must be masses of salaried individuals from all over the world  ready to drop everything and race to the nearest CIA-HQ-cum-hotel to perform surgery on a sedated individual.
 - And - although I imagine they have numerous sick goals behind this evil - it totally explains their lookalike program which, I guess, they do relentlessly on a target so that when the real person turns up, the target doesn't believe it's them, such as with [Elon at the Holiday Inn in Bali, again, in June 2026](../2026/june.md#elon-is-at-the-hotel) who may have been at the Loka Yoga centre a week later for even more trophy hunting.
