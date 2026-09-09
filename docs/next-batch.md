@@ -149,11 +149,16 @@
 1. I meet the UN woman who managed the raid and extraction at Fitkoh. She shows me her card.
 1. Just before they add an event to my Google calendar, and I pack and no-one comes, for the last few days before that on whatever comes up on my front page is messages about a intense 30 day AI course I'm going to be beginning.. the implication is once I've been rescued I can start learning AI intensely. Again, like the Calendar entry, it feels bogus but whatever.
 
+### January 2026
+
+1. Interestingly, I have always had rather good feelings about the King, warm feelings, and when this happened strongly once again - in Dorset in early 2026 - I thought he actually might be coming to visit and I was quite excited about that - from May 2025.
+
 ### April 2026
 
 1. TT in April 2026, Steve is bullying Gerardine and Yvonne.
 1. Steve, Robin, and I are having dinner at the hotel near the Avila centre. It's probably just a couple of days before the first course begins and maybe the first time I see them. Steve announces that the King is visiting Trump next week and at that time he will step down, move to the Caribbean, and his son will become king. I ask Steve where he heard this (nonsense, I don't say nonsense but my face and grin is saying it)? Steve seems a little surprised I haven't just accepted everything he just told me. He mumbles AOL.. I know he's being fed BS online, but I'm a little curious as to how they trigger him to say it to me, is this a "formal" instruction, or manipulated?
 1. My brother's friend Milan, a Jain, is on the phone recommending fertility herbs. In fact, that's about all he says with any actual content in it. I buy some and take them probably from April/May 2025 through to the end of the year. Coincidence? He's apparently in tech and I extend an invite into the forgivenet and he dismisses it completely, but keeps on telling me about the fertility herbs. MOUSSE!
+1. Addition: already mentioned in May 2025. One woman even said, forcefully, that she wanted to murder Trump - and I was thinking, that's a bit strong.. I was shocked actually.. even more so because no-one else at the table seemed to disagree with her. So I said something like, *wow, people are really divided contentiously aren't they* and went for a walk. Then, the very next day, someone actually did try to kill him!
 
 ### May 2026
 

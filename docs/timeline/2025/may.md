@@ -49,7 +49,7 @@ function googleTranslateElementInit() {
 
 - In the spa one day I hear a lot of women speaking Hebrew.
 - They are in Dublin celebrating a 40th birthday party.
-- I'm quite amazed because it's so rare to hear Hebrew spoken in Ireland.
+- I'm amazed because it's so rare to hear Hebrew spoken in Ireland.
 - I don't think I ever heard it before outside of my Hebrew lesson at Queen's in Belfast in 2020 before Covid hit.
 - I ask them if they're from Israel, they confirm, and I tell them how nice it is to hear Hebrew in Ireland.
 - I had to wonder about these ladies too.
@@ -84,9 +84,9 @@ function googleTranslateElementInit() {
 - And I had just been up to Runcorn with Reform and at least half the people on the bus were immigrants, or the descendants of immigrants, including me!
 - So here we are at tea time, and it's the poor immigrants again, and I'd just had enough of hearing about it so I said something.
 - And I was shaking (cos you're not allowed to have a different view from them, or you can lose your job, get attacked, etc.) and my voice was quivering, but I said something like: *oh you mean the thousands of fit young men who hate women coming into the UK every day?*
-- And I could see faces contorting as I mentioned the obliteration of women's rights by the left, as if they agreed with me but knew they couldn't speak about it.
+- And I could see faces contorting as I mentioned the obliteration of women's rights by the left, as if they agreed with me but it was not safe for them to support me or say anything.
 - And there was some discussion, and politics was never spoke of again.
-- Although, incidentally, in April 2026 in Dublin on the second course where they were all agents and had started to bully me (a *roasting* they often called it online), politics came up quite a lot at tea times.
+- Although, incidentally, in April 2026 in Dublin on the second course where they were all agents and had started to bully me (*roasting* they called it online - not a word I'd ever use), politics came up quite a lot at tea times.
 - One woman even said, forcefully, that she wanted to murder Trump - and I was thinking, that's a bit strong.. I was shocked actually.. even more so because no-one else at the table seemed to disagree with her.
 - So I said something like, *wow, people are really divided contentiously aren't they* and went for a walk.
 - Then, the very next day, someone actually did try to kill him!
@@ -99,10 +99,11 @@ function googleTranslateElementInit() {
 - It's not like some of the other curious ideas I have at all. 
 - I feel like it's a foreign idea, so in my attempts to figure it out I wonder if I'm picking it up from someone else.
 - I decide that my partner who has a practice in Harley Street must treat the royals - it wouldn't be unusual for that to happen - and I leave it there.
-- I kept having these bizarre thoughts about the King throughout the course, but there was always something much stronger telling me just to note it and not to worry about it. 
+- Nevertheless, I kept having these bizarre thoughts about the King throughout the course, but there was always something much stronger telling me just to note it and not to worry about it. 
 - And the ideas stopped once the course had ended.
 - Interestingly, I have always had rather good feelings about the King, warm feelings, and when this happened strongly once again - in Dorset in early 2026 - I thought he actually might be coming to visit and I was quite excited about that.
-- It all clicked into place during/after [Bali in July 2026](../2026/july.md#loka-yoga) on the CIA psychological-torture intensive which had very little detrimental effect on me and, I think now, rather helped me enormously to get clear on a great many things - undoubtedly not their intention.
+- It all clicked into place in [Bali in July 2026](../2026/july.md#loka-yoga) on the CIA psychological-torture intensive where foreign ideas were planted in my mind second by second! 
+- Happily, all this has had very little detrimental effect on me - although I'm a little pale from multiple surgeries over the last 18 months and from learning the devastating truth of it all which felt like it was going to finally break me a few weeks ago, but thankfully I was in God's town and could rush to see Him whenever it got too much, which I did, and He always helped me.
 
 ### Hearing the bell in her earpiece
 
