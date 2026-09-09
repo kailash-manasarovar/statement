@@ -103,7 +103,6 @@ function googleTranslateElementInit() {
 - And the ideas stopped once the course had ended.
 - Interestingly, I have always had rather good feelings about the King, warm feelings, and when this happened strongly once again - in Dorset in early 2026 - I thought he actually might be coming to visit and I was quite excited about that.
 - It all clicked into place in [Bali in July 2026](../2026/july.md#loka-yoga) on the CIA psychological-torture intensive where foreign ideas were planted in my mind second by second! 
-- Happily, all this has had very little detrimental effect on me - although I'm a little pale from multiple surgeries over the last 18 months and from learning the devastating truth of it all which felt like it was going to finally break me a few weeks ago, but thankfully I was in God's town and could rush to see Him whenever it got too much, which I did, and He always helped me.
 
 ### Hearing the bell in her earpiece
 
@@ -113,7 +112,7 @@ function googleTranslateElementInit() {
 - Six of the others, bar one, say the same thing; *yeah, how did you do that?*
 - She tells us she's set it to go off in her earpiece.
 - I tell everyone I could hear it clearly.
-- The other woman, a Polish acupuncturist living in Peterborough, also says she could hear it and she's surprised about it too because the majority of the room couldn't hear it.
+- Another woman, a Polish acupuncturist living in Peterborough, also says she could hear it and she's surprised about it too because the majority of the room couldn't hear it.
 - It was, however, very audible and I don't have super hearing.
 - Are they all wearing earpieces which would block them from hearing subtones like this while someone is chattering away giving instructions?
 - I would never have thought such a thing [pre-Bali July 2026](../2026/july.md#loka-yoga).
