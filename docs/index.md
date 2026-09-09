@@ -83,7 +83,7 @@ However, I am aware of growing international support for my endeavors and I'm tr
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
-- After [seeing the woman poisoner from Dénia](timeline/2025/july.md#poisoning-ordered-by-the-mousses) in reception at my hotel, and then reading "sorry hola" on my mobile before poisoning, and throughout my stay in Cauterets after surviving poisoning, the Americans gave me a lot of false information online - in the same way they had said "sorry hola" too.
+- After [seeing the woman poisoner from Dénia](timeline/2025/july.md#poisoning-ordered-by-the-mousses) in reception at my hotel, and then reading "Hola I Sorry" on my mobile before poisoning, and throughout my stay in Cauterets after surviving poisoning, the Americans gave me a lot of false information online - in the same way they had said "Hola I Sorry" too.
 - They told me my friend was going to be rescued and taken to Israel and they even gave me a date and time for it - it was a Monday that's all I can remember, I was up in the high mountains that day or the day after.
 - And, online, they were pretending to me they were Israeli, and that only Israelis were involved in rescuing him and him alone.
 - I understand why the Americans were lying to me about Israel; they set Israel up to take the blame for nearly all their evil doing, unless there's a stronger or more politically favorable option(s) to hand.
