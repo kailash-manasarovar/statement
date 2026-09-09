@@ -93,10 +93,10 @@ However, I am aware of growing international support for my endeavors and I'm tr
 - I also believe that the good lupins had been targeted by American mousses from as early as 1997 to take the blame for what the Lopez-Cano's never got paid for, and my presence in Dénia had always been a huge part of that.
 - On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice and I hope it gets even more pathological), and I even saw [a switcheroo trumpet teacher for the first time consciously](crimes/protagonists/vidal-sastre.md#7-the-pangolin), as well as a female gang member I have never seen before but it seems any manipulated communication is memorable.
 - All this *must* prove the following:
-    - The good lupins know the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), and other contentious things.
-    - The American mousses, the Lopez Cano's, and North London criminal porn gangs are good buddies.
-    - The American mousses had been working for decades towards framing the good lupins for the crime.
-    - I was helping them with that, non-consensually, while in Dénia; all my human rights deemed unimportant and discarded.
+    - The Lopez Cano's (and North London criminal porn gangs) often assist the American mousses - not something you'd do if you were exercising rampant vengeance.
+    - The good lupins know the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), and other contentious matters.
+    - The American mousses have been working for decades towards framing the good lupins for the original crime.
+    - I was helping them with that, without my knowledge and utterly non-consensually; my human rights and safety deemed unimportant and discarded.
     - The American mousses tasked the Lopez Cano's with the original crime and set them up to believe it was the British mousses all this time.
     - Everyone has believed the lie since then and the world has gone stark raving porn-mad because of it.
 - The reason all these things must be true is that classes at the conservatory where children are groomed and drugged by their serial-killing Lopez Cano teachers continue to this day!
