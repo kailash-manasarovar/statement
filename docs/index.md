@@ -32,11 +32,11 @@ When the porn gangs were finished with me, after [their eye-wateringly lucrative
 
 I survived.
 
-In July 2025, multiple security services had gotten wind of my "gift" and decided they would test it out for themselves. They sent [their operatives from Dénia to Lourdes to murder me](timeline/2025/july.md#lourdes) while I was serving Our Lady at the baths - presumably so that I would think the original criminal gangs were still trying to kill me.
+In July 2025, multiple security services had gotten wind of my "gift" and decided they would test it out for themselves. They sent [the Dénia poisoners to Lourdes to murder me](timeline/2025/july.md#lourdes) while I was serving Our Lady at the baths - presumably so that I would think the original criminal gangs were still trying to kill me.
 
 I survived.
 
-At this point, security services lost their minds completely. They decided that they would more formally steal my eggs (they had already performed [sedated surgery on me in April](timeline/2025/april.md#a-set-up-by-the-industrial-scale-baby-snatchers)), and someone else's sperm (the UN had just kidnapped my counterpart and taken him to Israel), to make surrogate babies. I guess they mistakenly thought our special "gift" might pass down to offspring, but I suspect their true desire was trophies, or perhaps human lab-rats. Whatever they thought, it's utterly horrific and I urge these people - apparently Christians - to review the Bible on this, with particular focus on the words "my followers".
+At this point, security services lost their minds completely. They decided that they would more formally steal my eggs (they had already performed [sedated surgery on me in April 2025 in Dublin](timeline/2025/april.md#a-set-up-by-the-industrial-scale-baby-snatchers)), and someone else's sperm (the UN had just kidnapped my counterpart and taken him to Israel), to make surrogate babies. I guess they mistakenly thought our special "gift" might pass down to offspring, but I suspect their true intention was trophies, or perhaps human lab-rats. Whatever they thought, it's utterly horrific and I urge these people - apparently Christians - to review the Bible on this, with particular focus on the words "my followers".
 
 Thus one criminal gang replaced another and I continued to be sedated after going to bed but for a different purpose, and I have the surgical injuries and scars to prove it.
 
@@ -48,7 +48,7 @@ Eight different men had posed as a single chamber music teacher at the conservat
 
 I remain homeless and essentially stateless (with no access to healthcare, police services, privacy, normal things like that..). My family threw me under the bus for the porn gangs years ago. I have symptoms of brain-damage which feel a bit like I've landed on another planet and I don't know how anything works. 
 
-I am unable to work because I continue to be recognized by random men all over the world and most of my colleagues and managers were subscribing to my sex-slave switcheroo sedated rape-porn stardom!
+I am unable to work because I continue to be recognized by random men all over the world and even my colleagues and managers were subscribing to my sex-slave switcheroo sedated rape-porn stardom!
 
 However, I am aware of growing international support for my endeavors and I'm truly glad there is some sanity out there.
 
@@ -72,13 +72,13 @@ However, I am aware of growing international support for my endeavors and I'm tr
 
 ### My helpers are kidnapped by the UN and taken to Israel
 
-- The good lupins were also having direct conversations with the mousses about things the Americans definitely don't anyone to know about, and you can see this very clearly from the screenshots I took from the period I was being terrorized online in my home.
+- The good lupins were also having direct conversations with the mousses about things the Americans definitely don't anyone to know about, and you can see these back-and-forths very clearly from the screenshots I took while I was being terrorized online in my home.
 - I was so high and out of my mind on drugs and poisons, I understood nothing of this until the last few weeks (time of writing September 2026)!
 - In July 2025, American salmon mousses, with help from the UN, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
 - They did it in secret, yet wanted me to know about it for some reason, and then lied to me about the nature of it continuously online and in choreographed stalking events internationally since then.
 - The good lupins have been in Israel ever since; working as online leaches - in slavery or incarceration of some sort I assume - which is what they were doing in Spain for Adams's international criminal porn enterprise.
 - The UN raid had been in planning for some time (and coincides with a [reported mass arrest on 22 July](https://www.europapress.es/nacional/noticia-liberadas-162-mujeres-victimas-red-explotacion-sexual-varias-provincias-espana-20250722093030.html)), but the UN required confirmation that I survive poisoning before they agreed to kidnap these people.
-- This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, to prepare me for the weeks ahead, which means the Catholic Church is also somehow involved. OH NO, silly me, I did it again... this was preparation for blaming the French and Italian Catholics!
+- This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, to prepare me for the weeks ahead, and to lay foundations for yet another blame-game targeting French and Italian Catholics.
 - And this is why [they tasked the Lopez-Cano's with poisoning me at Lourdes](timeline/2025/july.md#poisoning-ordered-by-the-mousses) - so that I'd still think I was in danger from them - an extraordinary admission by the mousses of criminal involvement, if not management of what's going on in Dénia, and adds to [my assertion that the Lopez-Cano's have no clue at all about who didn't pay them back in the 90s](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known).
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
@@ -86,12 +86,13 @@ However, I am aware of growing international support for my endeavors and I'm tr
 - After [seeing the woman poisoner from Dénia](timeline/2025/july.md#poisoning-ordered-by-the-mousses) in reception at my hotel, and then reading "sorry hola" on my mobile before poisoning, and throughout my stay in Cauterets after surviving poisoning, the Americans gave me a lot of false information online.
 - They told me my friend was going to be rescued and taken to Israel and they even gave me a date and time for it - it was a Monday that's all I can remember, I was up in the high mountains that day or the day after.
 - And, online, they were pretending to me they were Israeli, and that only Israelis were involved in rescuing him and him alone.
-- I understand why the Americans were lying to me about Israel; they literally set Israel up to take the blame for nearly all their evil doing, unless there's a stronger or more politically favorable option(s) to hand.
-- But why lie to me about the nature of the extraction? What did they hope to gain? How were they planning on manipulating the story around favorably to themselves? 
+- I understand why the Americans were lying to me about Israel; they set Israel up to take the blame for nearly all their evil doing, unless there's a stronger or more politically favorable option(s) to hand.
+- But why lie to me about the nature of the extraction? What did they hope to gain? How were they planning on manipulating the story around favorably to themselves? And why did they take twenty-two people instead of just the one they told me about?
 - My view is that once they had gotten what they psychotically (it has to be agreed) wanted from myself and my dear friend, they were planning to murder us all. Yes, the whole of lot of us. 
 - Certainly the way they have treated me, an apparent friend, over these last years - while doing **NOTHING** about the real crimes - makes our murder look very much like their certainty.
+- I also believe that the good lupins had been targeted by American mousses from as early as 1997 to take the blame for what the Lopez-Cano's never got paid for, and my presence in Dénia had always been a huge part of that.
 - On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice and I hope it gets even stronger), and I even saw [a switcheroo gang member for the first time](crimes/protagonists/vidal-sastre.md#7-the-pangolin) and a female gang member I have never seen before but it seems any manipulated communication is memorable.
-- All this *must* prove that the good lupins know the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), my non-consensual role for the mousses and other things that the mousses would not like the world to know about, because classes at the conservatory where children are groomed and drugged by their serial-killing teachers continue to this day!
+- All this *must* prove that the good lupins know the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), my non-consensual role for the mousses and other things that the mousses would not like the world to know about, and what American mousses had intended for them too because classes at the conservatory where children are groomed and drugged by their serial-killing teachers continue to this day!
 
 ## Background
 
