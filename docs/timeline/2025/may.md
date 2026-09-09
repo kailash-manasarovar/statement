@@ -138,24 +138,6 @@ function googleTranslateElementInit() {
 - He says *I have no idea*, in a manner in which it sounds like he has no input whatsoever into his schedule.
 - I say goodbye and tell him I look forward to seeing him in Israel in a couple of weeks.
 
-## Response to new content
-
-- As I undertake a first laborious and extremely triggering copy edit, I post new content describing what appear to be bona fide stalker accounts, possibly having live spy-cam-porn subscriptions, such as the Matthew account.
-- It appears that a trigger image - the hair flowing in the wind - was set up early on for me to recognize this account as being significant.
-
-[![Matthew trigger](../../content/images/fake-accounts/matthew-trigger.png)](https://fearandloathinginlasmarinas.com/timeline/2023/june/#matthew-trigger)
-
-- A fake account I've seen before in similar circumstances likes the tweet. 
-
-![Posts not actionable like](../../content/images/fake-accounts/posts-are-not-actionable-like.png)
-
-- Note the message about "POSTS ARE NOT ACTIONABLE".
-
-![Posts not actionable](../../content/images/fake-accounts/posts-are-not-actionable.png)
-
-!!! danger "Please note"
-    - I post about 1% of this kind of interaction I receive on a daily basis.
-
 ## Constant threats online and in-person
 
 ### Are you Welsh?
@@ -182,6 +164,24 @@ function googleTranslateElementInit() {
 - He lives at the bottom of the road (or did at the time), I saw him again being a normal person.
 - Is he one of those with a porn-subscription that can be relied upon?
 
+## Tricking me into believing criminal gangs are stalking me is still working
+
+- As I undertake a first laborious and extremely triggering copy edit, I post new content describing what appear to be bona fide stalker accounts, possibly having live spy-cam-porn subscriptions, such as the Matthew account.
+- It appears that a trigger image - the hair flowing in the wind - was set up early on for me to recognize this account as being significant.
+
+[![Matthew trigger](../../content/images/fake-accounts/matthew-trigger.png)](https://fearandloathinginlasmarinas.com/timeline/2023/june/#matthew-trigger)
+
+- A fake account I've seen before in similar circumstances likes the tweet. 
+
+![Posts not actionable like](../../content/images/fake-accounts/posts-are-not-actionable-like.png)
+
+- Note the message about "POSTS ARE NOT ACTIONABLE".
+
+![Posts not actionable](../../content/images/fake-accounts/posts-are-not-actionable.png)
+
+!!! danger "Please note"
+    - I post about 1% of this kind of interaction I receive on a daily basis.
+
 ## Spy-cams in London N2 also??
 
 - I arrive home from a trip to Israel.
@@ -203,6 +203,8 @@ function googleTranslateElementInit() {
 ## Meeting Chris & Desa before I fly to Israel
 
 - I meet old friends Chris Ludwick and Desa.
+- Desa jokingly tell us she thinks Chris is a psychopath; she always does that. He never says anything.
+- I'm not sure I like the way Desa speaks to Chris.
 - I'm flying to Israel the following morning to assist Steve on a TT module 2 in Jerusalem.
 - Desa repeatedly says to me, "you saved my life" regarding a weekend up North in 2019.
 - I ask her why.
