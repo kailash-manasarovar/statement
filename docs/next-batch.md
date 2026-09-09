@@ -4,10 +4,6 @@
 
 ## TODO: list
 
-### 1990
-
-1. Is this Sullivan *the* Sully from the film? I didn't think the man was a pilot but maybe he trained. I guess we'll find out.
-
 ### 1996
 
 1. On the busses with Ray Archer.
