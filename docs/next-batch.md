@@ -164,6 +164,8 @@
 
 ### July 2026
 
+1. Suggestion I was flirting with the monk!! omg. really. big eye roll there..
+1. A lot of poses stretching the area I have the rib weakness, as if trying to snap it again then I'd have to stay at home 24-7... I couldn't imagine they'd be doing that and just thought, oh this class is a bit twist heavy, until I realized what the whole thing was...
 1. Online communication from day 1 is about "no more stories", so I say, OK, no more stories, and you can see I stop writing in the repo, and I said it online a lot... you will see it on Facebook even... except story additions keep coming in from the past so I end up doing a lot of writing/editorial on past sections and new past sections. Why would they be so keen for me to stop writing? I did wonder at the time, but it seemed sensible to play their game at least till I figured out what was going on.
 1. I see Glastonbury Tor from the windows at Loka Yoga every morning in class. It's such a strong vision, I decide to tell them all after seeing it every morning for days. Once I've told them all, it's gone and I don't see it anymore. And that's nearly as surprising.
 1. Correction: Wound reopening in July 2026, not 2024 as stated in November 2025.
