@@ -107,27 +107,27 @@ function googleTranslateElementInit() {
 
 ### Hearing the bell in her earpiece
 
-- A Swedish woman is doing the work on her partner while the rest of us sit in a circle around the table - this is how the intensive course functions, 90% of the time you're sitting quietly in a circle watching the others work.
+- A Swedish woman is doing the work on her partner while the rest of us sit in a circle around the table - this is how the intensive course functions, 90% of the two days you're sitting quietly in a circle watching the others work.
 - She has set her timer bell to go off in her earpiece, and I can hear it.
 - After she's finished, Steve wants to know how on earth she managed to keep time without a bell - because he didn't hear it.
-- Six of the others, bar one, say the same thing; *yeah, how did you do that?*.
+- Six of the others, bar one, say the same thing; *yeah, how did you do that?*
 - She tells us she's set it to go off in her earpiece.
 - I tell everyone I could hear it clearly.
-- The other woman, a Polish acupuncturist living in Peterborough, also says she could hear it and she's surprised she's unusual in the group.
-- It was very audible and I don't have super hearing.
-- Are they all wearing earpieces which would block them from hearing low tones like this while someone is chattering away giving instructions?
+- The other woman, a Polish acupuncturist living in Peterborough, also says she could hear it and she's surprised about it too because the majority of the room couldn't hear it.
+- It was, however, very audible and I don't have super hearing.
+- Are they all wearing earpieces which would block them from hearing subtones like this while someone is chattering away giving instructions?
 - I would never have thought such a thing [pre-Bali July 2026](../2026/july.md#loka-yoga).
 
 ### Adam has pain in his hands
 
 - I've been suspicious of Adam since the first course he attended.
-- I always assumed he was working for the criminal gangs and had been sent to spy on me, like some other course participants I already mentioned.
+- I always assumed he was working for the porn gangs and had been sent to spy on me, just like some other course participants I already mentioned.
 - My car has been doused with pesticides and this seeps into the plastics and won't come out.
 - Whenever I drive without gloves, I start feeling that bone ache I had in my body when I was wearing pesticide-soaked clothes and shoes, and sleeping under the toxic duvet I brought to London with me from Spain.
 - I complain about this online, a lot, so everyone knows.
 - Furthermore, I have mentioned this to law-enforcement in multiple communications.
 - It's quite bad after driving from London to Wales and forgetting to wear gloves.
-- I often forgot to wear them and I believe this is due to constant gaslighting around me and no-one helping me so I just gave up on myself and went along with them in certain respects, thankfully not all.
+- I often forgot to wear them, which is strange to me writing in safety nearly 18 months later; I believe this is due to constant gaslighting around me and no-one helping me so I just gave up on myself and went along with the liars in certain respects, thankfully not all.
 - Close to the end of the two days, I notice Adam is on his phone while we're talking, and then Steve asks if anyone has any questions and he suddenly puts his hand up and tells Steve he's having aches in his hands.
 - Steve asks him to come over and has a look at them for a few minutes, then Adam sits down again.
 
