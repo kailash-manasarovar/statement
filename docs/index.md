@@ -136,9 +136,9 @@ However, I am aware of growing international support for my endeavors; and some 
 
 - British serial killers living safely in Dénia targeted me [directly in 2007](timeline/2001-to-2010/2007.md#hazel-smith).
 - It took me a long while to figure out exactly why they did so.
-- Hazel Smith had been tasked with poisoning me by the CIA after I had attended a Kabbalah conference in Barcelona and told them all I'd seen Moses on Mount Sinai in September 1997.
+- Hazel Smith had been tasked with poisoning me by the CIA.
 - I survived.
-- I don't believe Hazel and others realized the implications of this; but I'm certain my helpers did.
+- I don't believe Hazel and others realized the implications of this; but I'm certain my future helpers did.
 - I suspect British criminal connections to the CIA like Hazel's made everyone suspicious of me.
 
 ### Gang-stalking
