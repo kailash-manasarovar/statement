@@ -571,7 +571,7 @@ function googleTranslateElementInit() {
 
 ![pic]( ../../content/images/google-searches/sept-24/google-search-1.png )
 
-- On the "@jctot19 X" results below, we still see Carmen Lopez-Cano's account `@sinremite` - now deleted - and [Rocio Vidal](august.md#6) is in first place.
+- On the "@jctot19 X" results below, we still see Carmen Lopez Cano's account `@sinremite` - now deleted - and [Rocio Vidal](august.md#6) is in first place.
 
 ![pic]( ../../content/images/google-searches/sept-24/google-search-2.png )
 

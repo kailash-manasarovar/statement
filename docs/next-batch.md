@@ -109,6 +109,7 @@
 
 1. Hip/groin started to complain in Cauterets in August. I thought I had twinged it while trekking. Over next few months, while walking it complained a lot but I kept walking on it, something intensely, like all day just walk walk walk... never had an issue with that before. I think the botch (probably not a botch if you let the patient know they have to take A LOT OF REST for it to heal) might have happened in Cauterets, then weakened further in Bangkok, then pop!
 1. After I survive poisoning, Steve gets inexplicably sick and loses tons of weight and *his physician* tells him he has a rare disease which means he needs chemo once-a-week.
+1. Mousses set up Indians on my mobile as "enemies" and for future blaming.
 
 ### August 2025
 
