@@ -103,21 +103,22 @@ However, I am aware of growing international support for my endeavors; and some 
 
 ## Background
 
-!!! danger "The conservatory's crimes"
+!!! danger "Crimes committed by teachers and staff at the Tenor Cortis conservatory of music in Dénia, Spain"
     - Mass voyeurism, cyber-stalking, gang-stalking, honey-trapping, sedated spy-cam rape-porn, poisoning and drugging, murder, and staggering levels of sexual violence against women, children, and babies.
+    - The school's website: https://portal.edu.gva.es/conservatoridenia/.
 
 ### Porn fatwa
 
-- Since at least 2001, I have been the subject of a [*porn fatwa*](timeline/2001-to-2010/2003.md#porn-fatwa) issued by UK criminal gangs.
-- I believe that this was, initially, due to them finding out I was about to receive £250K compensation for the Lockerbie terrorist bombing in which my aunt was murdered.
-- At the time, and to whet the porn-addict appetite, [pedophile pornography made by North London rape-gangs in 1989](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) starring me, sedated, was proliferated through criminal porn-addict networks.
-- Specifically, porn-addicts were tasked with gaining more illicit porn with me in it - be it from hidden cameras or while sedated - and they obliged.
-- As soon as I was in receipt of the compensation, the gangs planned to move in with the films and demand I hand my money over.
-- Except, something curious happened and the porn with me in it began to make more money for the gangs than any savings I might have been persuaded to let go of; and so motives switched early on and I became a prime target for the world's best known, and most loved, criminal porn studio of Dénia.
-- Due to this, I have been under constant criminal surveillance for more than twenty-five years.
-- The gangs know where I am to pinpoint precision: what I'm doing, who I talk to, where I work and who my porn-subscriber colleagues are.
-- They read everything I write, watch everything I do online, attend work meetings, yoga classes, and therapy sessions with me, while keeping a careful eye on my financial status.
-- Of course, the same criminals targeted other family members - and probably even [other UK/US Lockerbie families](timeline/2001-to-2010/2006.md#lockerbie) - to rob them of their compensation via honey-trapping, fake-relationships, sexploitation and blackmail, manipulated drug addictions, and online fraud.
+- In August 1989, I was made famous in [pedophile porn by North London's rape-gangs](timeline/2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x).
+- Throughout the 90s, multiple men posing as friends who had seen this porn sedated me, raped me, and made more of it.
+- There was so much of this going on in the 90s that the already massive criminal porn-viewing public were getting a little bored of seeing the same old thing, so criminal porn distributors in North London decided they would send me to Dénia where I could be brain-damaged and sedated at home and end up starring in all sorts of sordid porn genres, eventually dying in murder-porn.
+- I have been under constant criminal surveillance since then.
+- In 1997, male friends I trusted got me to the Las Marinas beach for casting purposes.
+- At the same time, the Americans were working on extracting billions from Gaddafi for compensation payouts to Lockerbie family members, of which I am one.
+- Criminal gang members were certain about this very early on - at least three years before I received any money - and used my guaranteed upcoming wealth to persuade more apparently normal men I trusted to sedate and rape me, and add me to the criminal porn archives where a category all my own had started to form.
+- The gangs knew where I was to pinpoint precision: where I went, what I was doing, who I talked to, what I was planning, where I worked, and importantly who my criminal porn-subscribing colleagues were.
+- They read everything I wrote, watched everything I did online, attended work meetings, yoga classes, and therapy sessions with me, while keeping a careful eye on my bank balance.
+- And they weren't the only ones watching either.
 
 ### Brain-damaged for switcheroo horror-porn
 
