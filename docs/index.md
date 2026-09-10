@@ -115,25 +115,30 @@ However, I am aware of growing international support for my endeavors; and some 
 - I have been under constant criminal surveillance since then.
 - In 1997, male friends I trusted got me to the Las Marinas beach for casting purposes.
 - At the same time, the Americans were working on extracting billions from Gaddafi for compensation payouts to Lockerbie family members, of which I am one.
-- Criminal gang members were certain about this very early on - at least three years before I received any money - and used my guaranteed upcoming wealth to persuade more apparently normal men I trusted to sedate and rape me, and add me to the criminal porn archives where a category all my own had started to form.
+- Criminal gang members were certain about this very early on - at least three years before I received any money - and used my guaranteed upcoming wealth to persuade more apparently normal men I trusted to sedate and rape me, and add me to the criminal porn archives where a category all my own had started to solidify.
 - The gangs knew where I was to pinpoint precision: where I went, what I was doing, who I talked to, what I was planning, where I worked, and importantly who my criminal porn-subscribing colleagues were.
-- They read everything I wrote, watched everything I did online, attended work meetings, yoga classes, and therapy sessions with me, while keeping a careful eye on my bank balance.
+- They read everything I wrote, watched everything I did online, attended work meetings, yoga classes, and therapy sessions with me, while keeping a watchful eye on my bank balance.
 - And they weren't the only ones watching either.
 
 ### Brain-damaged for switcheroo horror-porn
 
-- I was lured to Dénia online in 2006.
-- Dénia - as the entire criminal underworld and any serious pornographer knows - has been the world's criminal porn capital for many decades.
-- The porn-gangs there have been producing the worst sort of porn we all hear about, but usually only men like to watch: bestiality, incest, snuff, pedophilia, and baby-rape.
-- British criminals living in Dénia targeted me [directly in 2007](timeline/2001-to-2010/2007.md#hazel-smith) with the intention of blackmailing me with child gang-rape porn from 1989, and other earlier films I've only just become aware of.
-- When it became apparent I would not be parting with any money, they attempted to murder me by poisoning - in the understanding that my money would still be available to them via an inheriting family member (my brother) into whom they already had their claws.
-- I survived the poisoning attempt, so they switched tack and I joined their brain-damage program instead.
+- In 2006, I was lured to Dénia from Madrid where I was working towards my PhD in Computer Science.
+- Dénia - as the entire criminal underworld and any serious pornographer knows - has been the world's criminal porn capital for over half a century.
+- The porn-gangs there produce the worst sort of porn we all hear about, but usually only men like to watch: bestiality, incest, snuff, pedophilia, and baby-rape.
 - For nearly twenty years I was slowly poisoned by deadly herbs so that I would lose the ability to recognize objects out of context; a stroke-like symptom.
-- This was so that between November 2022 and June 2023, the gangs could set up a [*switcheroo* horror-porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed live at the conservatory, in and around the town, and in my apartment without my knowledge, where at least six different men turned up to teach a class at the music school, children attending, and I would only know them as one man.
+- This was so that between November 2022 and June 2023 - I'm sure they thought it would be earlier than this but I kept leaving the town due to the underlying trauma and then being lured back again - the gangs could set up a [*switcheroo* horror-porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed live at the conservatory, in and around the town, and in my apartment without my knowledge, where at least six different men turned up to teach a class at the music school, children attending, and I would only know them as one man.
 - This scam also required intense hallucinogenic intake to work effectively and I was drugged  intensely at my home before class, and topped up as I entered the music school by teachers, staff, and students.
 - It was also intended that I would invite the "trumpet teacher" to my home - a man they had manipulated me into finding sexually attractive - where they planned to live-stream sessions of *switcheroo* porn through the 24-7 spy-cam network, me somewhat conscious.
 - This did not happen as the man's rather pathetic romantic-advance (*oh, I'm in town on Monday afternoons*) gave me a PTSD reaction like no other.
 - The body always knows.
+
+### Hazel Smith tries to murder me by poisoning in 2007
+
+- British serial killers living safely in Dénia targeted me [directly in 2007](timeline/2001-to-2010/2007.md#hazel-smith).
+- It took me a long while to figure out exactly why they did so.
+- Hazel Smith had been tasked with poisoning me by the CIA after I had attended a Kabbalah conference in Barcelona and told them all I'd seen Moses on Mount Sinai in September 1997.
+- I survived.
+- I don't believe Hazel and others realized the implications of this; but I'm certain my helpers did.
 
 ### Gang-stalking
 
