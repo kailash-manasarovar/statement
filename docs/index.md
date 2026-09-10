@@ -91,15 +91,15 @@ However, I am aware of growing international support for my endeavors; and some 
 - My view is that once they had gotten what they psychotically (it has to be agreed) wanted from myself and my dear friend, they were planning to murder us all. Yes, the whole of lot of us. 
 - Certainly the way they have treated me, an apparent friend, over these last years - while doing **NOTHING** about the real crimes - makes our murder look very much like their certainty.
 - I also believe that my helpers had been targeted by the CIA from as early as 1997, to take the blame for what the Lopez Cano's never got paid for, and my presence in Dénia had always been a huge part of that since *casting* in October 1997 with Matt Pompeus.
-- On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice and I hope it gets even more pathological), and I even saw [a switcheroo trumpet teacher for the first time consciously](crimes/protagonists/vidal-sastre.md#7-the-pangolin), as well as a female gang member I have never seen before but it seems any manipulated communication is memorable.
+- On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice and I hope it gets even more pathological because *that* appears to be my true party trick), and I even saw [a switcheroo-porn trumpet teacher for the first time consciously](crimes/protagonists/vidal-sastre.md#7-the-pangolin), as well as a female gang member I have never seen before but it seems any online hypno-tech communication is memorable.
 - All this *must* prove the following:
-    - The Lopez Cano's (and North London criminal porn gangs) often assist the American mousses - not something you'd do if you were exercising rampant vengeance.
-    - The good lupins know the truth about [the Lopez Cano's mistaken belief in the mousses' gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), and other contentious matters.
-    - The American mousses have been working for decades towards framing the good lupins for the original crime.
-    - I was helping them with that, without my knowledge and utterly non-consensually; my human rights and safety deemed unimportant and discarded.
-    - The American mousses tasked the Lopez Cano's with the original crime and set them up to believe it was the British mousses all this time.
-    - Everyone has believed the lie since then and the world has gone stark raving porn-mad because of it.
-- The reason all these things must be true is that classes at the conservatory where children are groomed and drugged by their serial-killing Lopez Cano teachers continue to this day!
+    - The Lopez Cano's (and North London criminal porn gangs) often assist the Americans - not something you'd do if you were exercising rampant vengeance against them, and some in the region are indeed (see the Walmart reference later on).
+    - The good people of Dénia know the truth about [the Lopez Cano's mistaken belief in the American's gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), and other contentious matters.
+    - The Americans have been working for decades towards framing my helpers for the original crime.
+    - I was helping them with that, without my knowledge and utterly non-consensually.
+    - The Americans tasked the Lopez Cano's with the original crime and set them up to believe it was the British all this time.
+    - Since then, everyone has believed the biggest lie in two thousand years and the world has gone stark-raving, criminal-porn mad because of it.
+- The reason all these things must be true is that classes at the conservatory where children are groomed and drugged and put in porn by the serial-killing Lopez Cano teachers and staff continue to this day!
 
 ## Background
 
