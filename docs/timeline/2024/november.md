@@ -713,7 +713,7 @@ function googleTranslateElementInit() {
 - Sean Murphy wound my mother up so much she nearly sacked him every day.
 - He would turn up really late, or not at all, leaving her waiting around all day for him.
 - On a couple of occasions this tactic meant my mother was so exasperated she left him alone in the house for long periods while she went out to do the shopping.
-- Was he also employed to [install spy-cams](../2025/may.md#spy-cams-in-london-n2-also)?
+- Was he also employed to [install spy-cams](../2025/may.md#boil-porn)?
 
 ### Boil porn and other things
 
@@ -721,7 +721,7 @@ function googleTranslateElementInit() {
 - Immediately.
 - I hadn't had them for ages.
 - I would "tend to them" in the shower sometimes, or in my bedroom.
-- Hackers using fake X accounts [sent messages to me about my boils](../2025/may.md#spy-cams-in-london-n2-also) right after I would do so.
+- Hackers using fake X accounts [sent messages to me about my boils](../2025/may.md#boil-porn) right after I would do so.
 - My elderly father was convalescing after [his fall](#my-father-falls-down-the-stairs) and I regularly helped him clean and shower if he had been unable to make it to the toilet in time.
 - Eventually, apart from one significant repeat in early July 2025, I could get him set up and leave him to it.
 - I have a feeling that hackers somehow informed him they had been watching him too - on one of our trips for coffee and shopping - because of the things he said to me that day.

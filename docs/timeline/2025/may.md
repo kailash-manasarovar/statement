@@ -186,23 +186,28 @@ function googleTranslateElementInit() {
 !!! danger "Please note"
     - Only about 1% of these interactions with hackers and stalkers that I was dealing with every day for years get into the book.
 
-## Spy-cams in London N2 also??
+## Boil porn?
 
-- I arrive home from a trip to Israel.
-- I'm tired and I sleep well.
-- In the morning, I notice a massive boil in my groin which has a lot of puss. Obviously, when I notice it I am in a very private state of undress.
-- I open my laptop. On my Facebook account, an account with an extremely specific name has liked my post from the night before.
+- I have suffered from boils in my genital and anal region since 2006.
+- I believe it is my body's alarm system and they emerge after sedated sexual abuse.
+- My belief is they are well-known as part of my porn-circuit stardom too.
+- One morning, I notice a massive boil in my groin and it has a lot of puss.
+- Obviously when I'm examining it, I am in a very private state of undress.
+- I looked at it in my bedroom, and in the bathroom too.
+- Afterwards, I go downstairs and open my laptop.
+- On my Facebook, an account with an extremely specific name has liked my post from the night before.
 
 ![Boyle Malditaako](../../content/images/cameras-in-n2-red-border.png)
 
 - "Bad boil a-knock-out"?
 - Does this mean my home in London N2 has somehow also been fitted with spy-cams? If so, since when and by whom?
-- Perhaps in [November 2024](../2024/november.md#spy-cams-at-my-london-address).
-- A fake account follows me on my `@jackchardwood` account. The name is interesting and sounds a bit like "camera on gawk zany".
+- Perhaps the man my mother employed to fit the stair lifts did it in [November 2024](../2024/november.md#spy-cams-at-my-london-address).
+- At the same time, a fake account follows me on my `@jackchardwood` account. The name is interesting and sounds a bit like "camera on gawk zany".
 
 ![Camera on](../../content/images/fake-accounts/camera-on.png)
 
 - Bear in mind I have no activity on this account at all anymore and the last interaction on here was over 40 days ago.
+- I still can't figure out what the purpose behind all this online harassment is, but then again I expect no-one realized quite how robust I am.
 
 ## Meeting Chris & Desa before I fly to Israel
 
@@ -318,3 +323,8 @@ function googleTranslateElementInit() {
 - Nevertheless, whenever they turned this online manipulation off, I still felt like I wanted to be a mother, and I thought that was marvelously ironic.
 - Could the mousses have set this up for themselves, essentially? Knowing from 2007 that I survive poisoning?
 - More coming up on this for this session, and September as I go through my todo: list.
+
+### Feeling sick on my return
+
+- I throw up in the street.
+- Steve was pretty unwell too in Jerusalem.
