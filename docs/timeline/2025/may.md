@@ -207,7 +207,7 @@ function googleTranslateElementInit() {
 ![Camera on](../../content/images/fake-accounts/camera-on.png)
 
 - Bear in mind I have no activity on this account at all anymore and the last interaction on here was over 40 days ago.
-- I still can't figure out what the purpose behind all this online harassment is, but then again I expect no-one realized quite how robust I am.
+- I still can't figure out what the purpose behind all this online harassment is, but then again I expect no-one realized quite how robust I am, and how other people's infantile behavior really has no effect on me.
 
 ## Meeting Chris & Desa before I fly to Israel
 
