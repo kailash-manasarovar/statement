@@ -180,7 +180,8 @@ function googleTranslateElementInit() {
 
 ![Posts not actionable](../../content/images/fake-accounts/posts-are-not-actionable.png)
 
-- I always felt that this was saying, *we can do whatever we like, we don't care*, but were they worried just a little? Especially if it is Lorraine's hair and we can match it to the footage.
+- I always felt that this was saying, *we can do whatever we like, we don't care*, but were they worried just a little? 
+- They might be if it is Lorraine's hair and we can match it to the footage.
 
 !!! danger "Please note"
     - Only about 1% of these interactions with hackers and stalkers that I was dealing with every day for years get into the book.
