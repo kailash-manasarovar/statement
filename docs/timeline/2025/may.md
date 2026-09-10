@@ -139,40 +139,40 @@ function googleTranslateElementInit() {
 
 ## Constant threats online and in-person
 
-- Criminal gangs had been requested by the salmon mousses to harass and upset me online and in-person, and information had been shared with them about what words to use, or what actions to perform so that I would continue to think I was being targeted by criminal gangs alone, and never suspect international security services which included my trauma therapy group.
+- Criminal gangs had been requested by the salmon mousses to harass and upset me online and in-person; and information had been shared with them about what words to use, or what actions to perform so that I would continue to think I was being targeted by criminal gangs alone, and never suspect international security services which included my trauma therapy group.
 
 ### Are you Welsh?
 
-- When I get back to London from my trip to Ireland, I write to Ana Requena at the conservatory.
-- The email is from my `katharinejchardwood@gmail.com` account which was shut down in January 2026 when I returned to the UK from abroad, which made me suspect North London's finest yet again, and was meant to.
-- I can see why they might want to protect their interests at the music school; fish in a barrel.
+- When I get back to London from my trip to Ireland, I write to Ana Requena, the violin teacher at the conservatory.
+- The email is from my `katharinejchardwood@gmail.com` account which was shut down in January 2026 when I returned to the UK from abroad, which made me suspect a hack by North London's finest yet again, with British mousse consent, and was meant to.
+- I can see why the gangs might want to protect their interests at the music school; fish in a barrel.
 - I write to Ana quite frequently, just for fun really.
 - I start the email with a greeting in Welsh: *bore da*.
 - I have never ever done that before in my life.
 - I do that because I have just returned from Ireland, and on the way back I stayed in Wales one night, and that's how they all said good morning to me, *bore da*.
 - Later that day, I take my dad to East Finchley library.
-- As we arrive at the library, we see an extremely weird guy sitting outside. He's old and has an orange old bashed-up car, wild hair, trampy clothes, and he looks very dodgy.
+- As we arrive at the library, we see an extremely weird guy sitting outside. He's old and has an orange old bashed-up car, wild hair, trampy clothes, and he looks very dodgy indeed.
 - The minute I open the door of my car, he jumps up and starts saying to me, "Oh, are you Welsh, are you Welsh".
 - I do not feel safe in North London!
 
 ### Dancing man
 
-- I pull into my road in the car late one evening.
-- As I'm driving up, a man suddenly jumps into the middle of the road.
-- He is wearing black ear phones like the ones I used to have and he is dancing [exactly like I did around my room sometimes](../2023/august.md#fighting-back) when I was being drugged and hacked in Spain and France.
-- He grins at me wildly and doesn't move so I have to slow down.
-- He side steps away.
-- He lives at the bottom of the road (or did at the time), I saw him again being a normal person.
-- Is he one of those with a porn-subscription that can be relied upon?
+- As I pull into my road in the car late one evening, a man suddenly jumps into the middle of the road.
+- He is wearing black headphones like the ones I used to have, until they went missing in Samui, and he is dancing [exactly like I did around my room](../2023/august.md#fighting-back) when I was being drugged and hacked in Spain and France.
+- He grins at me wildly and he doesn't move so I have to slow down.
+- He side steps away, grinning and dancing.
+- He lives at the bottom of the road (or did at the time), and I saw him at a later time being an apparently normal person.
+- I'd put money on him being a criminal porn subscriber, and therefore at the porn-gang's beck-and-call on request from the mousses.
 
-## Tricking me into believing criminal gangs are stalking me is still working
+### Tricking me into believing criminal gangs are the only ones stalking and hacking me is still working
 
-- As I undertake a first laborious and extremely triggering copy edit, I post new content describing what appear to be bona fide stalker accounts, possibly having live spy-cam-porn subscriptions, such as the Matthew account.
-- It appears that a trigger image - the hair flowing in the wind - was set up early on for me to recognize this account as being significant.
+- As I undertake a first laborious and extremely triggering copy edit, I post new content describing stalker accounts that may have live spy-cam-porn subscriptions to my home in Spain, such as the *Matthew* account from summer 2023.
+- It appears that a trigger image - the hair flowing in the wind - was set up early on for me to recognize the *Matthew* account as significant later on.
 
 [![Matthew trigger](../../content/images/fake-accounts/matthew-trigger.png)](https://fearandloathinginlasmarinas.com/timeline/2023/june/#matthew-trigger)
 
-- A fake account I've seen before in similar circumstances likes the tweet. 
+- I wonder if this is Lorraine Blackbourn's hair from the torture porn they made of her.
+- A fake account I've seen before in similar circumstances likes my tweet. 
 
 ![Posts not actionable like](../../content/images/fake-accounts/posts-are-not-actionable-like.png)
 
@@ -180,8 +180,10 @@ function googleTranslateElementInit() {
 
 ![Posts not actionable](../../content/images/fake-accounts/posts-are-not-actionable.png)
 
+- I always felt that this was saying, *we can do whatever we like, we don't care*, but were they worried just a little? Especially if it is Lorraine's hair and we can match it to the footage.
+
 !!! danger "Please note"
-    - I post about 1% of this kind of interaction I receive on a daily basis.
+    - Only about 1% of these interactions with hackers and stalkers that I was dealing with every day for years get into the book.
 
 ## Spy-cams in London N2 also??
 
