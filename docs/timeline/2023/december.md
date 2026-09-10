@@ -33,7 +33,7 @@ function googleTranslateElementInit() {
     ![tt4](../../content/images/hornero/hh4.png)
 
     - Looking at these again, it's possible the first two are the same person.
-    - Yet none of these pics are of the man I would see [driving past me](june.md#sunday-11th-june), or lurking around Dénia in [his or Ana Requena's blue car](october.md#the-trumpet-teacher-drives-past-me-in-his-car).
+    - Yet none of these pics are of the man I would see [driving past me](june.md#sunday-11th-june), or lurking around Denia in [his or Ana Requena's blue car](october.md#the-trumpet-teacher-drives-past-me-in-his-car).
 
 - I run up behind the man and cross the road about a metre before I reach him. 
 - He flinches.
@@ -312,7 +312,7 @@ function googleTranslateElementInit() {
 ### Chat with the American Matthew
 
 - The (apparently) American account [`@Matthew49200183`](https://x.com/Matthew49200183) has been following me [since August](august.md#matthew).
-- I detail some of his more [interesting tweets](november.md#matthew) in the November 2023 chapter, particularly with regards to associated conspiratorial activity from teachers, staff, and adult students at the conservatory of Dénia.
+- I detail some of his more [interesting tweets](november.md#matthew) in the November 2023 chapter, particularly with regards to associated conspiratorial activity from teachers, staff, and adult students at the conservatory of Denia.
 - We DM when I'm in my hotel in Madrid after he posts triggering romance language and references to Batman (one of the hypno-memes commonly used).
 
 [![Batman](../../content/tweets/december-2023/batman-kneads.png)](https://x.com/Matthew49200183/status/1736259282029473849)
@@ -421,7 +421,7 @@ function googleTranslateElementInit() {
 #### The abomination of desolation in the holy place
 
 - Is a Buddhist retreat centre near Avila another one of those holy places mentioned in Daniel and Matthew?
-- I was surrounded by porn-gang operatives there, some even traveled up from Denia.
+- I was surrounded by porn-gang operatives there, some even traveled up from Dénia.
 
 #### Spies everywhere
 
@@ -435,8 +435,8 @@ function googleTranslateElementInit() {
 
 - While I'm working in the kitchen one afternoon, a man introduces himself, he has excellent English.
 - Rodrigo, I believe.
-- He asks me where I live, I tell him Denia.
-- He says did I know a [Maria who does Vipasana in Denia](../2011-to-2020/2015.md#vipasana-maria).
+- He asks me where I live, I tell him Dénia.
+- He says did I know a [Maria who does Vipasana in Dénia](../2011-to-2020/2015.md#vipasana-maria).
 - I say yes.
 - I don't tell him [Maria signed my child sexual abuse statement to the Metropolitan Police in 2015](../2011-to-2020/2015.md#statement-to-the-metropolitan-police), but perhaps he knows already.
 - He says they were a romantic item at one point.
@@ -607,7 +607,7 @@ function googleTranslateElementInit() {
 - I wonder who is managing this account. 
 - Could it be the trumpet teacher again?
 - Are people watching me in my hotel room?
-- Whoever it is seems to know exactly what's been going on, right back to before [I went public on Twitter](september.md#going-public-on-twitter), when, I had assumed, the gang stalking was entirely Dénia-conservatory-contained.
+- Whoever it is seems to know exactly what's been going on, right back to before [I went public on Twitter](september.md#going-public-on-twitter), when, I had assumed, the gang stalking was entirely Denia-conservatory-contained.
 - Is this woman from Dénia?
 - If not, how is she connected?
 
@@ -900,7 +900,7 @@ function googleTranslateElementInit() {
 - There is no reason at all for this entry to *always* be the first result in image search.
 - Why does this pic *still* come up as the first result on search today?
 - Is this man one of the main Dénia porn-gang abusers?
-- Did I see this guy as an old man for real on the [Las Marinas beach in October 2024](../2024/october.md#possum-man-on-the-beach) when teachers and staff at the conservatory of Dénia, and all their supporters, meant to do me some very serious harm, if not murder me by poison administered through the water going into my own apartment and/or by other means that police were utterly disinterested in investigating?
+- Did I see this guy as an old man for real on the [Las Marinas beach in October 2024](../2024/october.md#possum-man-on-the-beach) when teachers and staff at the conservatory of Denia, and all their supporters, meant to do me some very serious harm, if not murder me by poison administered through the water going into my own apartment and/or by other means that police were utterly disinterested in investigating?
 - Scroll down through results on Google search images for *@1frgvn X*, and you soon come across the Andrew pic too.
 
 ![Andrew Google search](../../content/images/line-up/andrew-1-july-2025.png)

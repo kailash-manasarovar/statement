@@ -108,7 +108,7 @@ function googleTranslateElementInit() {
 - I'm not sure what exactly was supposed to be clear.
 - At that time, I was being [seriously poisoned at home](../2024/october.md#serious-poisoning-with-intent-to-kill) and felt extremely unwell, especially around my kidneys, and facial, neck, and spinal nerves. I was also having raging migraines and problems with my eyes.
 - I saw a woman who looked like Carmen Cano with another woman I'd recognize coming out of my building and smiling at me.
-- I realized [some months later](../2025/february.md#paul-helps-me-move-back-to-once-great-britain) that I had been hallucinating quite badly in my apartment in October 2024 prior to leaving Dénia; specifically regarding a large hole I had seen in the bathroom wall behind the mirror where I believed a camera had been fitted and removed. 
+- I realized [some months later](../2025/february.md#paul-helps-me-move-back-to-once-great-britain) that I had been hallucinating quite badly in my apartment in October 2024 prior to leaving Denia; specifically regarding a large hole I had seen in the bathroom wall behind the mirror where I believed a camera had been fitted and removed. 
 - The hole was tiny when I saw it again the following February; my mind detoxed, sober, and unpoisoned.
 - I believe that the Cano's had intended to finish me off in October 2024. 
 - I'd already been in a film that was published online where I talked about being poisoned and my apartment set up with spy-cams.
@@ -398,7 +398,7 @@ function googleTranslateElementInit() {
     - It came just after the [Torus](august.md#head-hunted-by-ex-polygon-director) nonsense job which was obviously part of the extreme hacking I was subject to. 
     - Were Polygon founders involved in that and by extension everything else that was going on?
     - In retrospect, my assignment with Polygon seems to be just another example of [the porn fatwa](../2001-to-2010/2003.md#porn-fatwa), especially when we consider [Nadim's outrageous behavior](#nadim-kobesi), [Hans Bodani's outrageous behavior](../2024/may.md#hans) and the [Pakistani Brit making threats of sexual violence towards me in Bali](../2024/may.md#the-pakistani-yorkshire-man), and other quite unbelievable Polygon events.
-    - What's not clear is how many of the men I have worked with have seen the [child rape-gang porn with me in it](#first-time-they-flash-up-my-naked-16-year-old-body-on-x) and/or knew I was being drugged and sedated in my apartment in Dénia, and how many of them were aware that the criminal gangs intended to rob and murder me when I was run through, like they do with all the other women, and now children.
+    - What's not clear is how many of the men I have worked with have seen the [child rape-gang porn with me in it](#first-time-they-flash-up-my-naked-16-year-old-body-on-x) and/or knew I was being drugged and sedated in my apartment in Denia, and how many of them were aware that the criminal gangs intended to rob and murder me when I was run through, like they do with all the other women, and now children.
     - I'm wondering if my role at zkSync was also part of the conspiracy, as the men at that organization built up the stress and tension to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023), as if keeping in step with teachers and staff at the conservatory.
     - *It's what they do*, as [Paqui had said to me in class](../2024/january.md#i-tell-paqui-im-being-terrorized-by-teachers-and-staff-at-the-conservatory).
     - I don't think we should accept a world run by porn-addicts, their addictions growing ever more grotesque.
@@ -533,7 +533,7 @@ function googleTranslateElementInit() {
 - At a dinner [in Bali, I am threatened with sexual violence from an "apparent" Rust engineer Aziz](../2024/may.md#the-pakistani-yorkshire-man) who has started that week. 
 - He looks exactly like [Jitendra Das](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star), the well-known to criminal porn gangs [porn-fatwa star](../2001-to-2010/2003.md#porn-fatwa) and perhaps another set of films everyone will be familiar with.
 - This man is set up to meet me by mushroom man, one of Ajay's team just mentioned, and he has clearly been told to target me in this sinister manner.
-- Anthony is at the dinner table when this happens. Is Anthony there to provide a denial?
+- Anthony is at the dinner table when this happens. Is Anthony there to provide a Dénial?
 
 ![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
 

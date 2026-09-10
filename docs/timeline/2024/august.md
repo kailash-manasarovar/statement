@@ -46,7 +46,7 @@ function googleTranslateElementInit() {
 - In Lourdes, I stay at the [Hotel Padoue](https://www.hotelpadoue.fr/fr/lourdes-hotel) and I have the sensation I'm being watched and followed.
 - I see a woman who looks like [Grace Torrellas](../2023/november.md#polygon); they have also been sending pictures of Grace-lookalikes on fake accounts.
 - I remember feeling extremely high in Lourdes.
-- The [conversation with the hacker](july.md#big-chat-with-the-hacker-begins) that started at home in Dénia is ongoing.
+- The [conversation with the hacker](july.md#big-chat-with-the-hacker-begins) that started at home in Denia is ongoing.
 - From time to time, I believe I am talking to the trumpet teacher I love and that he loves me back.
 - Our conversation is extremely intimate, and then it seems like other voices take over the conservation to make threats, send vile porn and images of violence, and play their ridiculous terror-games.
 - The change of voice is obvious to me.

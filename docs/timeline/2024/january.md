@@ -67,7 +67,7 @@ function googleTranslateElementInit() {
 [![Prefer the insipid Indians](../../content/tweets/january-2024/preferring-the-insipid-indians.png)](https://x.com/JackChardwood/status/1789065155193577680)
 
 - I believe the hackers and honey-trappers start doubling down in January 2024, knowing that the conservatory have devised the [most outrageous psychological attack on me planned for March 12th](march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) which they must believe will certainly make me leave my studies, after which they can hand me over to the sex-gangs as was originally planned for [June 12th 2023](../2023/june.md#monday-12th-june-2023), but failed.
-- Tired by their idiocy, the [staged event starring a woman dressed as Lorraine Blackbourn](march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) just made me more disgusted with them, so they had to do even worse until I did leave Dénia for Madrid a couple of days later, terrified and terrorized.
+- Tired by their idiocy, the [staged event starring a woman dressed as Lorraine Blackbourn](march/1-12.md#a-serious-attack-on-my-wellbeing-from-piano-teachers-at-denia-conservatory) just made me more disgusted with them, so they had to do even worse until I did leave Denia for Madrid a couple of days later, terrified and terrorized.
 - Once I had left the conservatory, teachers and staff must have felt relief that I had been finally handed over successfully to the porn gangs.
 - I wonder how many other students have had similar experiences.
 - The new content continues until I start writing my police statement in November 2024.
@@ -328,7 +328,7 @@ function googleTranslateElementInit() {
 
 - Online in conversation with hackers, I mention that everyone might benefit from getting on my table.
 - A post flashes up ***I'M NOT DOING THAT!!***, as if shouting.
-- I realize later they are referring to the gang-rape on the table incident I had mentioned in [my police statement from 2015](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) that Dénia terrorists had been trying to [remind me of at the beach](../2023/september.md#rape-gang-reminders), and on [Google search results](../2023/september.md#table) that showed only tables, and the [Carmen account mentioning tables](../2023/july.md#carmen) again and again.
+- I realize later they are referring to the gang-rape on the table incident I had mentioned in [my police statement from 2015](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) that Denia terrorists had been trying to [remind me of at the beach](../2023/september.md#rape-gang-reminders), and on [Google search results](../2023/september.md#table) that showed only tables, and the [Carmen account mentioning tables](../2023/july.md#carmen) again and again.
 - They had been triggering me online with the 'table' meme since at least August 2023, possibly even as far back as 2014.
 - I really had no idea what they were going on about, until [I saw myself in a still from child gang-rape porn](../2023/november.md#first-time-they-flash-up-my-naked-16-year-old-body-on-x) in November 2023, but even then I was not wholly certain about the table references.
 - It's a curious irony that practitioners call the TT trauma therapy bed a table.
@@ -439,7 +439,7 @@ function googleTranslateElementInit() {
 - I had no idea she was 100% involved; a ringleader in fact.
 - She had no further interest in finding out more about what I had told her.
 - At a later class, when I'm still obviously reeling emotionally from what's going on and I say I'm still being stalked by Domingo and his associates online and in the town and how it's relentless, she says in an uppity manner, "It's what they do."
-- I take this to mean that men in Denia commonly single out a woman to terrorize, and everyone knows, and no-one is going to help me.
+- I take this to mean that men in Dénia commonly single out a woman to terrorize, and everyone knows, and no-one is going to help me.
 
 ### The concert
 

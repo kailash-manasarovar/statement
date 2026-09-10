@@ -290,7 +290,7 @@ function googleTranslateElementInit() {
 
 ## Texting Knowhere about the Russian or Ukrainian brutes
 
-- I send a message on WhatsApp to [Knowhere](https://www.knowheredenia.com/), the serviced office facilities in Dénia where [I was forced to work after Gordon Bishop at Polygon found evidence of hacking on my home router](march/1-12.md#reporting-hacking-to-polygon-labs).
+- I send a message on WhatsApp to [Knowhere](https://www.knowhereDénia.com/), the serviced office facilities in Dénia where [I was forced to work after Gordon Bishop at Polygon found evidence of hacking on my home router](march/1-12.md#reporting-hacking-to-polygon-labs).
 - I want to know if they have CCTV inside and outside the offices.
 - I want to know if cameras may have recorded the [group of threatening Russian or Ukrainian men](march/13-end.md#threatening-men-at-knowhere) who were instructed to come in and stand opposite me while I was working.
 - And I want to know if cameras may have recorded [those same men and the blond woman](march/13-end.md#leaving-the-knowhere-offices), timed precisely to walk past the door as I left the building.

@@ -480,7 +480,7 @@ function googleTranslateElementInit() {
 - The billboard also mentions "special events".
 - I tweet about it in early October:
 
-[![Pelicot style rape gangs in Denia](../../content/tweets/pelicot-style-rape-gangs.png)](https://x.com/1FRGVN/status/1845101018746343666)
+[![Pelicot style rape gangs in Dénia](../../content/tweets/pelicot-style-rape-gangs.png)](https://x.com/1FRGVN/status/1845101018746343666)
 
 - You can see from my tweet how little I knew of the truth; although I knew enough to be a candidate for murder.
 - I wonder if "special events" includes groomed and sedated women that aren't consenting, even if their eyes are open; women who know the men in the community, and in the porn, hidden behind masks.

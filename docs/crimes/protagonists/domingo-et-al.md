@@ -18,8 +18,8 @@ function googleTranslateElementInit() {
 
 - I wonder if the older woman to his right is his mother? They're very alike.
 - And I wonder who the young woman he is with is? Could she be another target? I have to say, I have very strong feelings about her not being alive. You can't imagine the horrific images I'm getting of this woman and how my foot pain might be related to seeing her. Is her name Sara? Is she Czech? I wonder if missing-persons in Czechoslovakia has her?
-- Is this article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-denia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
-- Or is the article featured on [Denia.com](https://www.denia.com/) a declaration from the *whole town* that they are aware of what these people are doing, and to whom?
+- Is this article from the [local online newspaper](https://www.Dénia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-Dénia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
+- Or is the article featured on [Dénia.com](https://www.Dénia.com/) a declaration from the *whole town* that they are aware of what these people are doing, and to whom?
 - (The fact they removed the article suggests the town's complicity.)
 - I bet there are a million more evidential-snippets, just like this one, aren't there.
 - The woman on the far left, Taya, ends up [very obviously stalking me in July 2025 at my hotel in Lourdes](../../timeline/2025/july.md#lourdes).
@@ -84,7 +84,7 @@ function googleTranslateElementInit() {
 
 - She was also the woman who attended the [chamber music concert](../../timeline/2023/may.md#chamber-music-concert) in May 2023, led by [the trumpet teachers I've highlighted as a brother and a local man Mark](vidal-sastre.md#seven-devils) and [Gloria's brother](vidal-sastre.md#4-bruno).
 - She came to the concert in the guise of Pablo's mum - the boy student who attended the class along with me.
-- On 1st November 2024, I see her leaving my apartment building with another older dark-haired lady; the woman with the monstrous voice who I often saw going [in and out of apartment number 18](../../timeline/2024/october.md#activity-in-the-nextdoor-apartment-number-18) next door after I returned to Dénia from France at the end of September 2024.
+- On 1st November 2024, I see her leaving my apartment building with another older dark-haired lady; the woman with the monstrous voice who I often saw going [in and out of apartment number 18](../../timeline/2024/october.md#activity-in-the-nextdoor-apartment-number-18) next door after I returned to Denia from France at the end of September 2024.
 - The older woman could even have been the woman in [the picture above sitting on the right of Domingo](#domingo-lopez-cano) from 2016.
 - The Cano Lopez family appears to be made up of a nest of poisoning vipers that can do whatever they like to innocents in the Marina Alta region.
 - And I heard they were partnering up with another family, the Toledo's, to wreak switcheroo and child-porn havoc nationally with the support of the government school board in its entirety.
@@ -142,7 +142,7 @@ function googleTranslateElementInit() {
 
 - Members of the Javea Computer Club.
 - Members of expat walking groups.
-- Klara Sarkadi singing teacher and leader of the Orfeo de Denia choir.
+- Klara Sarkadi singing teacher and leader of the Orfeo de Dénia choir.
 - Old (apparent) friends in Dénia.
 - The whole town of Dénia who were clearly lied to about why I had been targeted and so felt justified in joining in the fun. 
 - The only other option is that the town of Dénia is controlled by pure evil.

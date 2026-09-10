@@ -139,7 +139,7 @@ function googleTranslateElementInit() {
 ## Serious poisoning at chamber-music class
 
 - On Monday 30th January I go to my chamber music class at Dénia conservatory as normal for 8pm.
-- The doctor, Joan, from the [Dénia hospital](https://denia.san.gva.es/es/localizacion) attends his class which is scheduled before ours at 7-8pm.
+- The doctor, Joan, from the [Dénia hospital](https://Dénia.san.gva.es/es/localizacion) attends his class which is scheduled before ours at 7-8pm.
 - I'm a little early so I wait outside. 
 - No-one is around.
 - Pablo, my 14-year-old classmate, has not yet arrived.
@@ -200,7 +200,7 @@ function googleTranslateElementInit() {
 - He didn't once look at the screen, or if he did it was a couple of quick glances.
 - He is *overtly* not doing what he's been tasked to do, and I wonder if he's trying to tell me something.
 - I start to become suspicious about my GP clinic.
-- I try to do a kidney test myself at the [local chemist](https://farmaciadenia.es/); their pamphlet says they have them available.
+- I try to do a kidney test myself at the [local chemist](https://farmaciaDénia.es/); their pamphlet says they have them available.
 - They never have the test whenever I ask for it, and they never seem to know why they don't have it, or when it's coming in.
 - One of the pharmacists tells me vaguely, "Oh, I don't think we sell the kidney tests anymore."
 - My GP tells me I have a bacterial infection in my urethra and explains how to wipe my bum from the back, giggling a little.
@@ -230,7 +230,7 @@ function googleTranslateElementInit() {
 - It's never ending, until recently.
 - The account above no longer exists (the time of writing about three months after first publishing this section).
 
-### Denia police close the road... for me
+### Dénia police close the road... for me
 
 - I decide to go hiking in the [Montgo national park](https://parquesnaturales.gva.es/es/web/pn-el-montgo) again the following weekend.
 
@@ -247,16 +247,16 @@ function googleTranslateElementInit() {
 - Given everyone who was hacking me (the whole town) knew about [my rhabdo symptoms](#serious-poisoning-at-chamber-music-class) and my concerns that it could have come from the hike at the weekend, did the local police *and* the traffic police create a fake accident so that I wouldn't go up again, and die or be hospitalized; any tests would have shown the sorts of substances I was ingesting.
 - Or was it more likely they didn't want to stop making so much money from the sedated porn they were distributing globally to the porn-addict tech elite (amongst others) with me in it, so I had to be kept alive and well enough for more abuse.
 - It seems likely since there was no accident to see, and they told everyone to turn around and go home anyway, for no reason.
-- This means the local police, and at least the traffic section of the Guardia Civil would also be conspiring in the porn network distribution of sedating and raping lone females in their apartments and/or hotel rooms in Denia and beyond.
+- This means the local police, and at least the traffic section of the Guardia Civil would also be conspiring in the porn network distribution of sedating and raping lone females in their apartments and/or hotel rooms in Dénia and beyond.
 - It puts [my interaction with the traffic police the following July](july.md#stopped-by-the-traffic-police) in a somewhat different light.
-- It explains [being shown the door by the Denia national police in February 2024](../2024/february.md#my-first-trip-to-the-spanish-police-in-denia) because I didn't have a complaint, they told me, because the man who was threatening me online with violence might think I was ugly.
+- It explains [being shown the door by the Dénia national police in February 2024](../2024/february.md#my-first-trip-to-the-spanish-police-in-denia) because I didn't have a complaint, they told me, because the man who was threatening me online with violence might think I was ugly.
 - And it explains being fobbed off and shown the door by the Madrid national police twice; once in [March 2024](../2024/march/13-end.md#reporting-the-crimes-to-the-police-in-madrid) and then again in [January 2025](../2025/january.md#madrid-policia).
-- It also explains why the [Denia local police](../2024/march/1-12.md#enric-gil) refused to speak to me.
+- It also explains why the [Dénia local police](../2024/march/1-12.md#enric-gil) refused to speak to me.
 - All in support of despicable porn networks including the global porn-addict engineering elite who were probably paying millions in subscriptions to porn networks to see me, and others, suffer, be sedated and raped, and goodness knows what else, perhaps even watching my activities at the conservatory; the concerts, the terrorizing, the drugging in class, the [switching of protagonists](may.md#chamber-music-concert), going to the toilet; everything I expect they have been doing to the children and teenage girls for some time too.
 - There are at least four or five specific children I have names for listed in this statement that I have told the authorities I'm concerned about being in *extreme* danger.
 - I am continually ignored. They even tried to make out the whole thing was all my fault.
 - Nothing is ever done about it, and of course it just gets worse and worse and WORSE!
 - I know it is just the tip of the iceberg, and I know Lorraine found something out so horrible - many years ago now - that it broke her to know about it, and to know nobody cared either. 
-- Was it that, along with everything else, men in Denia had started making women and girls pregnant - with the help of online manipulation - so that they could earn thousands on the baby and pedo porn they discovered could make them into millionaires?
+- Was it that, along with everything else, men in Dénia had started making women and girls pregnant - with the help of online manipulation - so that they could earn thousands on the baby and pedo porn they discovered could make them into millionaires?
 - Or is it something even more horrible, if there could be anything more horrible.
 - Do the global tech porn-addict elite know they're funding the baby rape capital of the world? I guess they do, and I guess it must make them feel triumphant.

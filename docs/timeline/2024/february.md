@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## Domestic violence in choir class
 
-- [Salva](../2023/september.md#choir), the choir master, tells us we're going to be singing a new song for a sudden concert to be held at the [Centro Social](https://www.denia.com/centro-social/) just before Easter. 
+- [Salva](../2023/september.md#choir), the choir master, tells us we're going to be singing a new song for a sudden concert to be held at the [Centro Social](https://www.Denia.com/centro-social/) just before Easter. 
 - It's *La Puerta Violeta* by Rozalén.
 
 <iframe width="640" height="360" src="https://www.youtube.com/embed/gYyKuLV8A_c" title="Rozalén - La Puerta Violeta" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
@@ -92,10 +92,10 @@ function googleTranslateElementInit() {
 
     !!! tip "My email to the Generalitat"
         Saturday 10 February 2024,</br></br>
-        Denia Alicante</br></br>
+        Dénia Alicante</br></br>
         Dear sir or madam,</br></br>
         This letter is following the recent complaints I made about a teacher and his associates,
-        particularly the computer technical staff- at the conservatory of Denia to which I have received no reply even though the male aggressive behavior against myself continues.</br></br>
+        particularly the computer technical staff- at the conservatory of Dénia to which I have received no reply even though the male aggressive behavior against myself continues.</br></br>
         What has happened to me over the last 18 months is extraordinary, and a lot of it is even
         criminal, but my foremost concern is that this teacher and his computer technician associates
         have unlimited access to children, mostly girls, and their mobile phones. The ease and hubris
@@ -152,7 +152,7 @@ function googleTranslateElementInit() {
         And if you check historical complaints you are bound to find a bunch of complaints about him that are similar to this.</br></br>
         I don’t want to go to the police but if it continues I will eventually have no choice. However, I think my next port of call will be the media as it is such an astonishing story and extremely interesting to the public, especially parents.</br></br>
         As a Spanish taxpayer and upstanding member of the local, European, and global community, I
-        have every right to study the piano at your most wonderful conservatory in Denia in peace and
+        have every right to study the piano at your most wonderful conservatory in Dénia in peace and
         without being in danger from misogynists who find my existence offensive. It is a great privilege for me to attend the conservatory and study the piano and the extraordinarily high level of teaching is second to none. It is a great shame that a few abusive men have so much control over vulnerable students they are responsible for and don’t seem to know how to behave like adults within the law.</br></br>
         Please let me know if you need any further information. If anything else comes to light I may
         reach out again.</br></br>
@@ -500,7 +500,7 @@ function googleTranslateElementInit() {
 ??? info "Part one"
     Collecting my thoughts - a (the) story
 
-    10 years ago, the most wonderful thing happened to me. I managed to pass the exams and audition to get a place studying piano at the stellar and exemplary music school in Denia.
+    10 years ago, the most wonderful thing happened to me. I managed to pass the exams and audition to get a place studying piano at the stellar and exemplary music school in Dénia.
 
     Curiously, at the audition, one of the piano teachers introduced himself to me in a friendly way and spoke excellent English and was very kind and charming. I found him a bit odd at the time and it turned out he would be my teacher when I started the course.
 
@@ -634,7 +634,7 @@ function googleTranslateElementInit() {
 
     It was deeply painful and their intentions were very clear: I would leave and never return.
 
-    So the first opportunity I got, I went to practice the piano, and I continued to go every day over the summer while the conservatory was open and I was in Denia. They didn’t expect that at all.
+    So the first opportunity I got, I went to practice the piano, and I continued to go every day over the summer while the conservatory was open and I was in Dénia. They didn’t expect that at all.
 
     One of the first days I went back to practice after the end of term and my “crucifixion”, the piano teacher opened the door of the room I was in and looked in on me, just to say, you know, I got you … because he’s smart like that.
 
@@ -670,13 +670,13 @@ function googleTranslateElementInit() {
 
     The following morning a new bot account arrived with a message, for an immature boy, bad companions play a much greater role than good teachers.
 
-    When I got back to Denia, the stalking really ramped up and spilled over into the physical world too. They took access of my phone in my house and started making random calls and making the keyboard impossible to use until I turned off the wifi router. When I looked into the street I saw a man with a handheld device hovering around.
+    When I got back to Dénia, the stalking really ramped up and spilled over into the physical world too. They took access of my phone in my house and started making random calls and making the keyboard impossible to use until I turned off the wifi router. When I looked into the street I saw a man with a handheld device hovering around.
 
-    I started to notice people following me, eavesdropping on conversations I was having with pals in cafes, Twitter messages repeating things I had said in person … and I was even serenaded a few times in Denia by buskers in the tunnel with songs related to everything that had happened. There were a few moments I felt extremely unsafe.
+    I started to notice people following me, eavesdropping on conversations I was having with pals in cafes, Twitter messages repeating things I had said in person … and I was even serenaded a few times in Dénia by buskers in the tunnel with songs related to everything that had happened. There were a few moments I felt extremely unsafe.
 
     Stones were thrown at me from a car passing by. They always knew exactly where I was.
 
-    And then I remembered that wasn’t the first time I had felt unsafe; even back in September 2022 I had noticed aggressive males making threatening stances towards me in the street. I had never experienced anything like that in Denia before, ever. I realized those experiences were related.
+    And then I remembered that wasn’t the first time I had felt unsafe; even back in September 2022 I had noticed aggressive males making threatening stances towards me in the street. I had never experienced anything like that in Dénia before, ever. I realized those experiences were related.
 
     Around the same time, my car was vandalised and I believe there is cctv of that, and that’s when I first complained to the Generalitat who manage the conservatories about what had been going on. I wrote a long letter explaining everything and no-one responded and they still haven’t. That was in early October.
 
@@ -712,7 +712,7 @@ function googleTranslateElementInit() {
 
 ## My first trip to the Spanish police in Dénia
 
-- Having been the subject of what I considered a [genuine threat of violence](#the-denia-porn-gang-attempts-to-recruit-me), I reluctantly go to report the threat, the gang stalking, and everything that's been happening to me at the hands of teachers and staff at the conservatory that I'm aware of at that time, to the Policía Nacional in Dénia on the morning of 20th February at around 11am.
+- Having been the subject of what I considered a [genuine threat of violence](#the-denia-porn-gang-attempts-to-recruit-me), I reluctantly go to report the threat, the gang stalking, and everything that's been happening to me at the hands of teachers and staff at the conservatory that I'm aware of at that time, to the Policía Nacional in Denia on the morning of 20th February at around 11am.
 - Unusually, I drive down and park the car outside the police station.
 - I keep the parking ticket.
 - My heart is heavy and my stomach knows that this is not a good situation, for me.
@@ -766,7 +766,7 @@ function googleTranslateElementInit() {
 - I send a [message in a comment box](../../content/documents/letters/echr-message.pdf) instead.
 
 !!! info "My message to the ECHR"
-    Hello, I am studying piano at the local conservatory here in Denia, Spain where I live. Staff and
+    Hello, I am studying piano at the local conservatory here in Dénia, Spain where I live. Staff and
     teachers and their friends and families have engaged in a virulent campaign of harassment and
     bullying towards me, primarily related to me turning one of the teachers down romantically here
     in 2014 but also due to complaining about his behaviour around young girls. I used to live here
@@ -785,7 +785,7 @@ function googleTranslateElementInit() {
     police about it. They told me there was no case and that musicians couldn't be cyber stalkers
     too! I believe I am in danger as this teacher has local criminal family connections and has
     threatened me with violence in the past. I believe this is why no-one talks to me too. I just want
-    to play the piano and it is my right as a tax-paying citizen of Denia and of the EU. I feel like I am
+    to play the piano and it is my right as a tax-paying citizen of Dénia and of the EU. I feel like I am
     afforded no human rights as they have harassed and discriminated me due to my gender and
     my right to say no to the romantic advances of a man in a position of authority.
 

@@ -426,7 +426,7 @@ function googleTranslateElementInit() {
 - I believed there was a true love relationship with the trumpet teacher, that something real had happened, that he was important to me, that he loved me back and wouldn't do anything to hurt me, and that the real problem was that I was being targeted and abused by Domingo Lopez Cano and his associates at the conservatory.
 - It's really not clear why I was so invested in this relationship with the trumpet teacher because there was so little evidence for it.
 - I can only assume - in May 2025 having survived three years of anti-freeze poisoning, threats to my life, and constant drugging with psychoactive substances - that I was being manipulated online in ways I still have to figure out and my mind was not my own.
-- In November 2025, having finally remembered the [switcheroo porn conspiracy starring myself](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero), teachers, students, and staff at the conservatory of Dénia, meeting this woman takes on a whole different tone.
+- In November 2025, having finally remembered the [switcheroo porn conspiracy starring myself](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero), teachers, students, and staff at the conservatory of Denia, meeting this woman takes on a whole different tone.
 - She was with her daughter who seemed to be severely traumatized.
 - The woman Hala was a lot like the chaos monkeys that have surrounded me ever since I bumped into Hazel and Domingo all those years back.
 - She was extremely difficult, outrageously rude to the waiters, and behaved as if she was the Sultan of Brunei requesting miniscule changes on everything she ordered at dinner.

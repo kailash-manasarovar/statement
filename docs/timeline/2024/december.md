@@ -22,7 +22,7 @@ function googleTranslateElementInit() {
 ![lost access Taru Ann](../../content/images/lost-access-1.JPG)
 
 - Then two people like a post that is very suggestive of the situation.
-- Zee and Luke are references to [Zoe BJ](../2001-to-2010/2008.md#zoe-bj) and [Luke BJ](../2001-to-2010/2008.md#meeting-luke-braganza-jones) from Dénia.
+- Zee and Luke are references to [Zoe BJ](../2001-to-2010/2008.md#zoe-bj) and [Luke BJ](../2001-to-2010/2008.md#meeting-luke-braganza-jones) from Denia.
 
 ![lost access Zee and Luke](../../content/images/lost-access-2.JPG)
 
@@ -192,7 +192,7 @@ function googleTranslateElementInit() {
     20/02/2025, 15:48 - PEDRO: Como puedo ayudarte
     20/02/2025, 16:44 - det sgt lydia cleaves: Enviame algunas videos qué todo el mundo ha visto para justificar atacandome y te Pago sin problema
     20/02/2025, 16:44 - det sgt lydia cleaves: Busco dos tipos de video
-    20/02/2025, 16:45 - det sgt lydia cleaves: Original cuando yo era pequenya y Tipo spycam de denia
+    20/02/2025, 16:45 - det sgt lydia cleaves: Original cuando yo era pequenya y Tipo spycam de Dénia
     20/02/2025, 16:45 - det sgt lydia cleaves: Gracias
     21/02/2025, 18:11 - det sgt lydia cleaves: Email me at info@forgivenet.co.uk with anything
     21/02/2025, 18:13 - PEDRO: Que es esto Katerine
@@ -440,7 +440,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - Except, no-one seems to care.
 - So I keep writing, until someone does.
 - All I have is my words and there's no other option but to use them.
-- One of my friends, who [I had visited in Brussels back in July while I was at EthCC](july.md#meeting-my-belgian-friend), and who I had told at that time what was going on for me - as far as I knew it - tells me he's coming to help me go to the police in Madrid in the first week of January, and help me move my stuff back to London from Dénia.
+- One of my friends, who [I had visited in Brussels back in July while I was at EthCC](july.md#meeting-my-belgian-friend), and who I had told at that time what was going on for me - as far as I knew it - tells me he's coming to help me go to the police in Madrid in the first week of January, and help me move my stuff back to London from Denia.
 - I'm so relieved. 
 - Finally, a friend will help me!
 - He's very *very* concerned, it seems.

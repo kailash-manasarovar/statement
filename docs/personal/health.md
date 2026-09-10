@@ -226,7 +226,7 @@ function googleTranslateElementInit() {
 - The next time I had anything similar was as I was succumbing to systemic candida, a common autoimmune disease, triggered by blood poisoning and the ensuring hardcore antibiotic dose.
 - At that time, from 2001, I started to get random boils in my armpits and genital region, but nothing overwhelming.
 - Incidentally, I got an anal fissure (confirmed by GP) at the time, probably 2002, which [dripped blood exactly like the time in 2015](../timeline/2011-to-2020/2015.md#inexplicable-anal-fissure) which is why I knew what it was.
-- The first time I can remember having severe genital boils that would burst blood and pus stains across the room was when I was living at Passeig Periodista Ramon Ortega in Denia from 2012-14.
+- The first time I can remember having severe genital boils that would burst blood and pus stains across the room was when I was living at Passeig Periodista Ramon Ortega in Dénia from 2012-14.
 - I don't remember having these at Lourdes in 2014.
 - I don't remember having them at Joan Fuster until I started preparing my police statement in 2015; I may have mentioned them in it.
 - From 2016-2020 I had them the worst they'd ever been when I moved back to London.
@@ -243,5 +243,5 @@ function googleTranslateElementInit() {
 - Making fists is another way I processed trauma.
 - I remember that from August 1989 for many years I made tight fists that would not relax.
 - This started again in 2006 after remembering gang rape from 1989 and lasted years again, possibly till 2008.
-- Interestingly, I was in Denia at that time too, possibly in another *procured* rental at Cami Llavador 5. We can check, obviously.
+- Interestingly, I was in Dénia at that time too, possibly in another *procured* rental at Cami Llavador 5. We can check, obviously.
 - Then again, from 2015 when I wrote out my police statement in Joan Fuster, I made fists, probably until I started on medication in December 2016.

@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 Gaslighting should be a crime when its sole intention is to silence dissent and protect sex offenders and pedophiles.
 
-Gaslighting in Denia was governed by one of the multiple porn-gang associates, then, disseminated to the general public out via gossip which then took on a persecuting life of its own.
+Gaslighting in Dénia was governed by one of the multiple porn-gang associates, then, disseminated to the general public out via gossip which then took on a persecuting life of its own.
 
 I was gaslit by people I knew who suggested it was all in my head and I needed help. Whenever I heard that familiar phrase, "I think you need to see someone", I knew I was taking to a porn-gang associate. 
 

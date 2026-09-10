@@ -20,7 +20,7 @@ function googleTranslateElementInit() {
 
 ## Dénia team in France
 
-- Honestly, I think this must have been another game to keep me thinking the criminals in Denia were still very active.
+- Honestly, I think this must have been another game to keep me thinking the criminals in Dénia were still very active.
 - Just like with [Ugly](../2024/august.md#ugly) popping up on my X feed all those years ago, then popping up in real life in Cauterets a few days later, a similar thing has happened yet again.
 - My other `JackChardwood` Facebook account - since the big one I was using was shut down by the pedo-protectors not so long ago - remains infested with criminal-gang hacks.
 - You can tell because all the stories have horror pictures in them, and they seem to be using fake groups - particularly those related to Anne Frank - to discuss who they're going to drop in it, just like they did with Ugly, when the time comes.

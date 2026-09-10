@@ -52,7 +52,7 @@ function googleTranslateElementInit() {
 - At the first session, the teachers introduce themselves.
 - One of them reminds me of the acting students on my first degree course in Performing Arts. She's performing.
 - There's a Scottish woman teaching some classes on the course and her name is Stella.
-- Stella studied ashtanga yoga in Euston, like [Natalia had, fellow porn gang target in Dénia](../2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me), who I have written about extensively in this police statement as having had the same experience as me with the porn-gangs in Dénia.
+- Stella studied ashtanga yoga in Euston, like [Natalia had, fellow porn gang target in Dénia](../2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me), who I have written about extensively in this police statement as having had the same experience as me with the porn-gangs in Denia.
 - She had been studying there with Hamish, right up until she moved to Dénia.
 - I was always wondering what brought her to that region of Spain, and have been very suspicious that it was connected to the North London gangs who have been making billions on us for decades, but I didn't have a solid lead.
 - Until Stella.
@@ -505,7 +505,7 @@ function googleTranslateElementInit() {
 - But, curiously, they've brought thousands of Spanish along with them too - it's a last minute tour group of some variety.
 - Some of these are *obviously* embassy staff.
 - You see, you can tell hierarchies amongst groups in a flash if there's people everyone's scared of in there...
-- I make some joke about The Mayor of Shark City (it's been nearly three years they have refused to do anything for the babies and children of Denia now).
+- I make some joke about The Mayor of Shark City (it's been nearly three years they have refused to do anything for the babies and children of Dénia now).
 
 ![Mayor of Shark City](../../content/images/the-mayor-of-shark-city.png)
 

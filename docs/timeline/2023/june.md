@@ -131,7 +131,7 @@ function googleTranslateElementInit() {
 
 - The end of year piano concert takes place at the boat club venue in Dénia.
 - A huge crowd of parents and children comes to listen to piano students of all levels and all ages.
-- All the [piano teachers](https://portal.edu.gva.es/conservatoridenia/es/departaments-es/#dep-inst-tecla) attend.
+- All the [piano teachers](https://portal.edu.gva.es/conservatoriDénia/es/departaments-es/#dep-inst-tecla) attend.
 - I play Philip Glass etude no 2: https://www.youtube.com/watch?v=850kyfwmRcM.
 - Before the concert begins, and as we were all preparing, and just as I was a few bars into rehearsing my piece, Domingo shouts **"Again?"** in an accusatory tone, very very loudly.
 - The whole auditorium hears him.
@@ -244,7 +244,7 @@ function googleTranslateElementInit() {
 
 - I'm extraordinarily tense before class. 
 - On my way into town to the conservatory, I decide to take a detour.
-- I walk towards the Carrer Loreto and pop into the [chapel there](https://www.google.com/maps/place/Iglesia+Agustinas+Recoletas,+Denia/@38.8404519,0.1035054,19z/data=!4m15!1m8!3m7!1s0x129e1b22919b9785:0xcd3bcc58c432965f!2sC%2F+de+Loreto,+03700+D%C3%A9nia,+Alacant,+Spain!3b1!8m2!3d38.8404519!4d0.1044442!16s%2Fg%2F1w3swvhw!3m5!1s0x129e1b2297b6860d:0xeba2d1d681469aaa!8m2!3d38.8404811!4d0.1039396!16s%2Fg%2F12qf4wb9n?entry=ttu&g_ep=EgoyMDI1MDQzMC4xIKXMDSoASAFQAw%3D%3D) to ask Mary for guidance and blessings.
+- I walk towards the Carrer Loreto and pop into the [chapel there](https://www.google.com/maps/place/Iglesia+Agustinas+Recoletas,+Dénia/@38.8404519,0.1035054,19z/data=!4m15!1m8!3m7!1s0x129e1b22919b9785:0xcd3bcc58c432965f!2sC%2F+de+Loreto,+03700+D%C3%A9nia,+Alacant,+Spain!3b1!8m2!3d38.8404519!4d0.1044442!16s%2Fg%2F1w3swvhw!3m5!1s0x129e1b2297b6860d:0xeba2d1d681469aaa!8m2!3d38.8404811!4d0.1039396!16s%2Fg%2F12qf4wb9n?entry=ttu&g_ep=EgoyMDI1MDQzMC4xIKXMDSoASAFQAw%3D%3D) to ask Mary for guidance and blessings.
 
 ![Church](../../content/images/church-narcis.jpg)
 
@@ -363,7 +363,7 @@ function googleTranslateElementInit() {
 [![Tweeting about the storm and rainbow in December 2023](../../content/tweets/december-2023/remembering-the-13th-june.png)](https://x.com/1FRGVN/status/1741449673678729502)
 
 !!! warning "Teachers and staff involved in gang stalking students at Dénia Conservatory"
-    - You can find a list of current teachers and staff on the [conservatory website](https://portal.edu.gva.es/conservatoridenia/es/inici/).
+    - You can find a list of current teachers and staff on the [conservatory website](https://portal.edu.gva.es/conservatoriDénia/es/inici/).
     - As a taste of things to come in this story, hackers will create numerous fake X accounts using genuine pictures of teachers and staff in the profiles.
     - These accounts interact with me endlessly from September 2023 onwards, when these people try once again to terrorize me into having a nervous breakdown, or worse, and to not return to classes.
         
@@ -713,7 +713,7 @@ function googleTranslateElementInit() {
 ![Julia Lohmann](../../content/images/julia-lohman.jpg)
 
 - This goes on for a week or two, inexplicably.
-- I have no idea what this means until I see numerous pictures of [Ana Requena](https://lamarina.eldiario.es/2015/03/02/denia-classics-a-piacere-ha-sido-un-orgullo-poder-tocar-por-fin-en-denia/) modeling for Julia Lohmann.
+- I have no idea what this means until I see numerous pictures of [Ana Requena](https://lamarina.eldiario.es/2015/03/02/denia-classics-a-piacere-ha-sido-un-orgullo-poder-tocar-por-fin-en-Dénia/) modeling for Julia Lohmann.
 - The Julia Lohmann art installation is revealed to me in [July on Google searches as something Ana Requena the violin teacher took part in](july.md#seaweed) with a kind of *mean girl* energy that's supposed to upset me and make me jealous. 
 - The pics come up on the `@sinremite` account, now deleted, which I believe is Carmen Cano's account.
 

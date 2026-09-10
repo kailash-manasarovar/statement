@@ -201,7 +201,7 @@ function googleTranslateElementInit() {
 
 - I'm not enjoying any of this, by the way.
 - Paul was *very* friendly with me online in June 2024 when I was campaigning for the UK general election and fighting the British criminal gangs who endlessly stalked me at that time, with the help of the police and government, but I never saw Paul in person at that time or I probably wouldn't have bothered asking him for help.
-- Nevertheless, there is no-one else, so I ask [Paul](../2024/june.md#social-media-and-paul) if he will help me go to the police in Madrid in the first week of January, and if he will help me move my belongings back to London from Dénia in February too.
+- Nevertheless, there is no-one else, so I ask [Paul](../2024/june.md#social-media-and-paul) if he will help me go to the police in Madrid in the first week of January, and if he will help me move my belongings back to London from Denia in February too.
 - He agrees.
 - What I don't know immediately is that he's working for the British criminal gangs, in fact, and they are paying him in drugs to keep an eye on me and keep me topped up with hallucinogens too so I don't remember the switcheroo scam or any of a plethora of other sexually-humiliating events directed by the gangs for me over many years in my homes, at my jobs, everywhere.
 - I do suspect him however, especially once he starts telling me about his *very best friend* Lucy, who I suspect is one of the Adams family, but I let him dig his own grave and he obliges most kindly.

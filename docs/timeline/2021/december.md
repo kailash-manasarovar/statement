@@ -16,7 +16,7 @@ function googleTranslateElementInit() {
 - I couldn't understand how he had put up with it, at the time!
 - I changed all my plans and spent most of December in Dénia instead.
 - I stayed at two hotels and logged into their networks.
-- I was working for ConsenSys at the time and I started to have [romantic feelings about the CEO Joseph Lubin](../2021/october.md#consensys) while I was working from the Hotel Port Dénia.
+- I was working for ConsenSys at the time and I started to have [romantic feelings about the CEO Joseph Lubin](../2021/october.md#consensys) while I was working from the Hotel Port Denia.
 - I had been doing a lot of apartment searches since August and had found nothing at all.
 - On December 8th, however, a very significant day for me spiritually (the Feast of the Immaculate Conception), while I was in Dénia, an apartment came up for rent which was perfect; too good to be true even.
 - Carrer Furs 15, Bloque 1 Escalera 2 Piso 3 Apartamento 17, Dénia 03700 Alicante.

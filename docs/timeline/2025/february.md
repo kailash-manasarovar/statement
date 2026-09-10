@@ -132,8 +132,8 @@ function googleTranslateElementInit() {
 Friday 7th February 2025
 Dear British Embassy in MADRID SPAIN
 My name is Katharine Margaret Murphy with passport number 533646044.
-I live at Carrer Furs 15, B1, Esc2, Piso3, Apt 17 Denia Alicante 03700.
-I am writing by hand because I have been hacked by criminal gangs in the Denia region, that include British citizens going under the name Hazel & Sandra Smith, probably since 2006, but in the last 3 years while living peacefully at my home (rented) in Denia, and paying substantial taxes, this hacking has become extraordinarily exaggerated and was coupled with the fact that my neighbours were/are able to add substances to the water I drank in tea/coffee and washed myself in. 
+I live at Carrer Furs 15, B1, Esc2, Piso3, Apt 17 Dénia Alicante 03700.
+I am writing by hand because I have been hacked by criminal gangs in the Dénia region, that include British citizens going under the name Hazel & Sandra Smith, probably since 2006, but in the last 3 years while living peacefully at my home (rented) in Dénia, and paying substantial taxes, this hacking has become extraordinarily exaggerated and was coupled with the fact that my neighbours were/are able to add substances to the water I drank in tea/coffee and washed myself in. 
 These substances, whatever they were, made me extraordinarly sexually aroused at times, at other times terified & anxiouss, and oftentimes unwell with kidney and eye
 
 ##### Page 1 backside
@@ -141,8 +141,8 @@ These substances, whatever they were, made me extraordinarly sexually aroused at
 problems, regular vomiting, zero alcohol tolerance, etc.
 I was targeted since 2006 because I had a compensation payment which H&S must have known about, and also I was the victim of a child rape gang when I was 16 in London which they also know about "somehow"!
 Nevertheless, I somehow managed to avoid whatever they had intended for me on two different occasions, 2007 meeting with Hazel where I believe she tried to murder me because it was clear I couldn't be blackmailed with whatever rape gang porn she had of me, then again between 2014-2016
-at the conservatory of Denia (where I was lured into studying) and love bombed/honey trapped by a piano teacher there connected to HS/SS, Domingo Lopez Cano, who appears to be a member of a bonafide crime family in Denia or closely connected, a man who behaves inappropriately with minors in his care and may well be drugging them as part of grooming etc, in class at the conservatory (this happened to me!)
-Then in the last 3 years since my return to Denia 2/22 to now where I have been living in a drugged environment and been the target
+at the conservatory of Dénia (where I was lured into studying) and love bombed/honey trapped by a piano teacher there connected to HS/SS, Domingo Lopez Cano, who appears to be a member of a bonafide crime family in Dénia or closely connected, a man who behaves inappropriately with minors in his care and may well be drugging them as part of grooming etc, in class at the conservatory (this happened to me!)
+Then in the last 3 years since my return to Dénia 2/22 to now where I have been living in a drugged environment and been the target
 
 ##### Page 2 front
 
@@ -169,13 +169,13 @@ I wrote to you again and again online and
 no-one ever replies. I don't know if you receive anything.
 Indeed, I have phoned and spoken to someone at the embassy twice now. It was the same voice also, a woman. First time was March 13th or 14th last year, second time was 2 days ago.
 Is it possible they are intercepting my calls to you? That certainly has been the case in other scenarios. The (in March) woman told me I had to go to the police but obviously that's not working.
-Basically, what I need you to know is that myself and my British friend, Paul Pompeus who is arriving tomorrow from Stansted on flight FR5994 to Madrid are going to Denia to collect my things, then, God willing leaving on Monday.
+Basically, what I need you to know is that myself and my British friend, Paul Pompeus who is arriving tomorrow from Stansted on flight FR5994 to Madrid are going to Dénia to collect my things, then, God willing leaving on Monday.
 I have a removal man coming also on Sunday @ 10am to carry some of the bigger stuff. Wayne from Coast2Coastremovals.com
 As well as the criminal toxicity issues, (I have been getting my car detailed this week as I believe they had access to my car, including air vents) and felt unwell driving it for 5 mins.
 
 ##### Page 3 backside
 
-I believe our lives are in danger, HS/SS clearly have lost their minds completely and very much enjoy causing people to die, whether directly by poison or indirectly through drugging/terrorizing online. So, given that all the security services I have approached don't care, and do not give me any assurances that I'm safe, I need to have made a good effort to protect myself and my friends, and anyone who has come into contact with this evil in Denia including and perhaps most especially the minor children targeted at the conservatory, one of WHOM was pointed out to me as being in IMMINENT AND SPECIFIC DANGER, a lovely girl, maybe 13/14 studying singing who is half British (I forget her name). She was performing in a rehearsal I had with Joan Carles on 11th March at around 19:00 in room 11 of the conservatory.
+I believe our lives are in danger, HS/SS clearly have lost their minds completely and very much enjoy causing people to die, whether directly by poison or indirectly through drugging/terrorizing online. So, given that all the security services I have approached don't care, and do not give me any assurances that I'm safe, I need to have made a good effort to protect myself and my friends, and anyone who has come into contact with this evil in Dénia including and perhaps most especially the minor children targeted at the conservatory, one of WHOM was pointed out to me as being in IMMINENT AND SPECIFIC DANGER, a lovely girl, maybe 13/14 studying singing who is half British (I forget her name). She was performing in a rehearsal I had with Joan Carles on 11th March at around 19:00 in room 11 of the conservatory.
 Thank you, and always in your service, and service to the King with the very best ♡
 Katharine Margaret Murphy
 07545-235-465
@@ -200,11 +200,11 @@ Katharine Margaret Murphy
 ##### Page 4 supplementary front
 
 SUPPLEMENTARY
-If you wanted my opinion, you probably don't, it looks like HS/SS started a sexploitation epidemic in Denia and joined forced with the Spanish criminals who had been targeting women in this way for decades, esp ex pats with money or property for inheriting.
+If you wanted my opinion, you probably don't, it looks like HS/SS started a sexploitation epidemic in Dénia and joined forced with the Spanish criminals who had been targeting women in this way for decades, esp ex pats with money or property for inheriting.
 I was targeted by one such honey-trapper who's real name I don't know but he was able to get a temporary job at the conservatory under a false name for the sole purpose or making me "fall in love" with him via drugging and manipulation online and offline. This guy even (qualified for) got a pension during those few months he was there.
 I believe HS/SS took all this honey-trapping to another level and likely have incriminating footage of many important people in the area. They are clearly closely connected to international porn + prostitution gangs too and I was informed that they even target kids online.
 Anyway.
-If Denia ever becomes safe again I'll
+If Dénia ever becomes safe again I'll
 
 ##### Page 4 supplementary backside
 
@@ -304,7 +304,7 @@ I asked him why no-one could pick up my letter and it transpires the office isn'
 
 ##### Supplementary backside
 
-the Spanish police 3 times, the UK police mere times than I can remember, and all emails/messages etc I send to numerous organizations are also completely ignored. In the case of the police, this makes me more concerned for our safety in Denia, and mine in London, and in the case of no reply to any messages or attempts to get help, it is likely due to the fact I'm 100% hacked and criminals have root access to all my devices so they can delete things before they go out. The reason I came in person. It's nearly impossible for me to understand why such heinous crimes against me and others are being completely ignored other than an unprecedented level of corruption, or maybe there might be some investigation coming to an imminent close and in this case I feel I'm/we're either safe without knowing it, or being sacrificed. It's impossible to know.
+the Spanish police 3 times, the UK police mere times than I can remember, and all emails/messages etc I send to numerous organizations are also completely ignored. In the case of the police, this makes me more concerned for our safety in Dénia, and mine in London, and in the case of no reply to any messages or attempts to get help, it is likely due to the fact I'm 100% hacked and criminals have root access to all my devices so they can delete things before they go out. The reason I came in person. It's nearly impossible for me to understand why such heinous crimes against me and others are being completely ignored other than an unprecedented level of corruption, or maybe there might be some investigation coming to an imminent close and in this case I feel I'm/we're either safe without knowing it, or being sacrificed. It's impossible to know.
 Anyway. With the best. Tell your team to come into the office pls.
 
 #### Something I find interesting reading these back...
@@ -655,4 +655,4 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ## Release the fatbergs
 
-![North London Denia fatberg release](../../content/images/london-denia-fatberg.png)
+![North London Dénia fatberg release](../../content/images/london-denia-fatberg.png)

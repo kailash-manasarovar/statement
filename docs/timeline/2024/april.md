@@ -168,22 +168,22 @@ function googleTranslateElementInit() {
 ??? info "Resignation letter to Paqui Fornet"
     Carrer Furs 15</br>
     Portal 1, ESC2, Piso 3, Apt 17</br>
-    Denia</br>
+    Dénia</br>
     03700 Alicante</br>
     Monday 8th April 2024</br>
     </br>
     To whom it may concern,</br>
     </br>
     After a two-year campaign of gender violence in the form of bullying, aggression, and 
-    psychological intimidation by teachers and staff at the Tenor Cortis conservatory in Denia, I now have sufficient fear for my personal safety that I will no longer be coming to classes.</br>
+    psychological intimidation by teachers and staff at the Tenor Cortis conservatory in Dénia, I now have sufficient fear for my personal safety that I will no longer be coming to classes.</br>
     </br>
-    The latest flurry of violent imagery and messages on Twitter, and the psychological bullying at the piano concert on Tuesday 12th March - in which a woman dressed up to look exactly like a friend, Lorraine Blackbourn, who tragically committed suicide in Denia after gender-based bullying and intimidation - I consider to signify a genuine threat to my life.</br>
+    The latest flurry of violent imagery and messages on Twitter, and the psychological bullying at the piano concert on Tuesday 12th March - in which a woman dressed up to look exactly like a friend, Lorraine Blackbourn, who tragically committed suicide in Dénia after gender-based bullying and intimidation - I consider to signify a genuine threat to my life.</br>
     </br>
-    I previously understood the bullying to come from a small number of teachers and staff, and their families/friends on the streets of Denia, as I mentioned many times in my private letters of complaint I wrote to the Generalitat. As you know, these letters were ignored completely. I 
+    I previously understood the bullying to come from a small number of teachers and staff, and their families/friends on the streets of Dénia, as I mentioned many times in my private letters of complaint I wrote to the Generalitat. As you know, these letters were ignored completely. I 
     received no reply at all. They were, instead, shared with teachers and staff at the conservatory.</br>
     </br>
     Sharing these letters was obviously going to put me in even more danger at the school, online, 
-    and in the streets of Denia.</br>
+    and in the streets of Dénia.</br>
     </br>
     I believe there are also private and stolen photos, recordings, and videos of me; hacked with the sole intention of shaming and silencing me, perhaps blackmailing too, and it concerns me that other students, especially young women and children, may be suffering in the same way. I have informed numerous authorities about this.</br>
     </br>
@@ -192,7 +192,7 @@ function googleTranslateElementInit() {
     It is very shocking to me that a public institution funded by taxpayers could so easily treat a 
     student in this way. And it is not a unique event.</br>
     </br>
-    It remains to be said that at the conservatory in Denia, with the support of the Generalitat, there appears to be zero concern for the safety and wellbeing of students at the school who complain about inappropriate behavior from teachers and staff.</br>
+    It remains to be said that at the conservatory in Dénia, with the support of the Generalitat, there appears to be zero concern for the safety and wellbeing of students at the school who complain about inappropriate behavior from teachers and staff.</br>
     </br>
     As I mentioned many times, the campaign of terror relates to me refusing a piano teacher who 
     had sought a romantic relationship with me 10 years ago.</br>
@@ -356,7 +356,7 @@ function googleTranslateElementInit() {
     18/04/2024, 17:43 - det sgt lydia cleaves: Hola Roberto this is the company https://dprrecovery.com/contacto/</br>
     18/04/2024, 17:43 - det sgt lydia cleaves: And the address is ...</br>
     18/04/2024, 17:45 - det sgt lydia cleaves: You can see it on there..</br>
-    18/04/2024, 17:46 - det sgt lydia cleaves: I think the Chinese perito in Denia is involved in this too so I just don't know who to trust 😞</br>
+    18/04/2024, 17:46 - det sgt lydia cleaves: I think the Chinese perito in Dénia is involved in this too so I just don't know who to trust 😞</br>
     18/04/2024, 17:46 - det sgt lydia cleaves: See you tomorrow at 13:00</br>
     18/04/2024, 17:46 - det sgt lydia cleaves: I am Katharine Murphy</br>
     18/04/2024, 17:47 - det sgt lydia cleaves: I had to buy new phones and make new accounts on everything,that is why you see a funny name</br>
@@ -415,7 +415,7 @@ function googleTranslateElementInit() {
     18/04/2024, 19:40 - Robert Rodriguez: Call them now pls</br>
     18/04/2024, 19:49 - Robert Rodriguez: null (I call them)</br>
     18/04/2024, 20:19 - det sgt lydia cleaves: Just one other thing is that I believe (know actually) that they have extremely private videos and recordings of me, of a sexual nature, and i expect planned to blackmail me with them at some point but I would be happy if they became public because then there would be excellent evidence .</br>
-    18/04/2024, 20:20 - det sgt lydia cleaves: My question is .. given that many many people here in Denia will have seen these, it cannot be too hard to find them, do you have any idea of how we could get copies, ie private detective services maybe??</br>
+    18/04/2024, 20:20 - det sgt lydia cleaves: My question is .. given that many many people here in Dénia will have seen these, it cannot be too hard to find them, do you have any idea of how we could get copies, ie private detective services maybe??</br>
     18/04/2024, 20:41 - Robert Rodriguez: The Police should be able to do It better than anyone Kate</br>
     18/04/2024, 20:41 - det sgt lydia cleaves: But they want me to prove it exists to them first before they investigate! I know it exists</br>
     18/04/2024, 20:42 - det sgt lydia cleaves: It's very frustrating</br>
@@ -603,7 +603,7 @@ function googleTranslateElementInit() {
     29/04/2024, 15:54 - det sgt lydia cleaves: Ok gracias 😊
     29/04/2024, 15:54 - DPR Recovery Alicante - GoldenPhone informática: cuando puedas dime un correo electrónico porque el que tengo apuntado me dice que no es correcto, este es el que tengo : katherinejchardwood@gmail.com
     29/04/2024, 15:55 - det sgt lydia cleaves: Si es corecto y acabo de enviarle un mensaje
-    29/04/2024, 15:56 - det sgt lydia cleaves: Para informales estou aqui en Denia hasta fin de semana y desoues estoy fuera 2 semanas regresando el dia 20
+    29/04/2024, 15:56 - det sgt lydia cleaves: Para informales estou aqui en Dénia hasta fin de semana y desoues estoy fuera 2 semanas regresando el dia 20
     29/04/2024, 15:56 - det sgt lydia cleaves: De mayo
     29/04/2024, 15:57 - det sgt lydia cleaves: Espero qué podemos reunir esta semana
     29/04/2024, 15:57 - det sgt lydia cleaves: El dia 19 de mayo de hecho

@@ -15,7 +15,7 @@ function googleTranslateElementInit() {
 - In June 2026 while editing, this statement strikes me as a little strange coming from someone who criminal gangs have been trying to murder, repeatedly, after having sedated-and-raped them endlessly for years, even in her own homes, and by doing so made me famous in criminal porn internationally (probably even on PornHub they were so sure of my early demise)?
 - Shouldn't I be a little stressed, not cheerful surely?
 - It's two things.
-- It's the mind/brain's (a very smart organ) self-protective denial mechanism for continued survival, and Jesus.
+- It's the mind/brain's (a very smart organ) self-protective Dénial mechanism for continued survival, and Jesus.
 - The stress of knowing that the most outrageous crimes are being committed against innocent people, including children and babies, and no-one who could do something about it cares, is enormous.
 - The fact that it has been going on so long, so egregiously, and no-one cares did almost break me, but a little gallows-humor has been helpful now and then.
 - And that is why I'm thinking about this police statement in novel form, maybe someone might actually read it!
@@ -143,7 +143,7 @@ function googleTranslateElementInit() {
 ![Are you OK](../../content/images/are-u-okay.png)
 
 - I love my response.
-- If you have forgotten about the "Are you OK" significance, please reread the [chamber music concert](../2023/may.md#chamber-music-concert) section from May 2023, and multiple other terror vignettes I describe that come directly from that police statement and which were performed by the people of Dénia in order to terrify me when I didn't leave my studies at the conservatory after the last [chamber music/switcheroo-porn class with the trumpet-teacher gang on the 12th June 2023](../2023/june.md#monday-12th-june-2023) - my funeral, apparently.
+- If you have forgotten about the "Are you OK" significance, please reread the [chamber music concert](../2023/may.md#chamber-music-concert) section from May 2023, and multiple other terror vignettes I describe that come directly from that police statement and which were performed by the people of Denia in order to terrify me when I didn't leave my studies at the conservatory after the last [chamber music/switcheroo-porn class with the trumpet-teacher gang on the 12th June 2023](../2023/june.md#monday-12th-june-2023) - my funeral, apparently.
 - Susan tells me she has had kidney failure for over 10 years but her doctors only just told her - I believe this is a direct message to me about my poisoning-injured kidney, they got [quite vindictive about my poisoning injuries](april.md#goading-and-taunting-online) for a while.
 - She also recommends me her personal trainer and shows me a photo of him.. she takes ages finding a photo of him on her WhatsApp... and he's obviously trans.
 - Someone is telling her what to say. Who?

@@ -32,7 +32,7 @@ function googleTranslateElementInit() {
 - Kevin was excessively over-friendly.
 - She told me he was like that with all the girls.
 - Given I was a drugged sex-slave without my knowledge in a spy-cam ridden apartment, everything and anything that happened while I was there is up for scrutiny, don't you think?
-- And it’s not like the people of Denia are not the most prolific animal porn producers on the planet now, is it?
+- And it’s not like the people of Dénia are not the most prolific animal porn producers on the planet now, is it?
 - What in the world could have created a hell like Dénia?
 - Please God, meeting Kevin the dog and his owner was just a random event any normal person going to the shop might experience!
 - If not, it'll be in the porn.
@@ -284,7 +284,7 @@ function googleTranslateElementInit() {
  
 - I start to see strawberries on the ground wherever I walk.
 
-![Strawbs in Denia](../../content/images/strawbs-in-denia.png)
+![Strawbs in Dénia](../../content/images/strawbs-in-denia.png)
 
 - I'm pretty sure I've blown the mind of everyone watching.
 - On my way to the conservatory one day, as I pass [this spot](https://www.google.com/maps/@38.8442052,0.1081194,3a,75y,36.63h,77.57t/data=!3m7!1e1!3m5!1sB4ssIdTdFG6H4f6v4cNyeg!2e0!6shttps:%2F%2Fstreetviewpixels-pa.googleapis.com%2Fv1%2Fthumbnail%3Fcb_client%3Dmaps_sv.tactile%26w%3D900%26h%3D600%26pitch%3D12.43052595660501%26panoid%3DB4ssIdTdFG6H4f6v4cNyeg%26yaw%3D36.626678552174724!7i16384!8i8192?entry=ttu&g_ep=EgoyMDI0MTExMy4xIKXMDSoASAFQAw%3D%3D) on the Carrer de Manuel Sanchis Guarner, there's a strawberry on the ground.
@@ -419,15 +419,15 @@ function googleTranslateElementInit() {
 - Here's what I said, in English:
 
 !!! quote "My letter to the Generalitat in English"
-    Denia, Sunday 22 October 2023
+    Dénia, Sunday 22 October 2023
     
     Dear counsellors,
     
-    I am studying professional piano at the conservatory in Denia. I have just started year 4. I
+    I am studying professional piano at the conservatory in Dénia. I have just started year 4. I
     completed years 1 & 2 in 2014-16 and restarted in 2022 after living outside of Spain for many
     years.
     
-    I have been bullied by teachers and staff at Denia conservatory more or less since I arrived
+    I have been bullied by teachers and staff at Dénia conservatory more or less since I arrived
     back last October 2022. However, the bullying has been intense since April 2023. I have
     suffered:
     
@@ -439,7 +439,7 @@ function googleTranslateElementInit() {
     
     ● Criminal damage to my personal properly from teachers and staff at the conservatory
     
-    ● Bullying in the street from people in Denia I don’t know (aggressive interactions with
+    ● Bullying in the street from people in Dénia I don’t know (aggressive interactions with
     gipsies mainly)
     
     The reason for the bullying is because when I started year 1 of professional studies in 2014, my
@@ -461,7 +461,7 @@ function googleTranslateElementInit() {
     
     So, I was not at all surprised to find myself being bullied in year 3 and it started immediately, at a
     low level, but since April has been intense. And due to the social media element (Twitter) I have
-    become something of a local celebrity in Denia as I have stood up for myself on more than one
+    become something of a local celebrity in Dénia as I have stood up for myself on more than one
     occasion and garnered some support.
     
     I don’t see why students should have to put up with this disgraceful behaviour from civil servants
@@ -471,7 +471,7 @@ function googleTranslateElementInit() {
     lot of PTSD symptoms while going to class at the conservatory, I was unable to work due to
     stress and lost two jobs.
     
-    I wrote to Concha Ballester (an old friend from Denia who I noticed he was also bullying via his
+    I wrote to Concha Ballester (an old friend from Dénia who I noticed he was also bullying via his
     piano students) in June after they tried to crucify me at one of the last classes of the year. I had
     been completely alone and unsupported until then and no-one had heard my side of the story. I
     had also not been aware of how many people had been involved in stalking me. It was very
@@ -497,7 +497,7 @@ function googleTranslateElementInit() {
     
     Yours faithfully,
     Dra Katharine Murphy
-    Carrer Furs 15, Denia
+    Carrer Furs 15, Dénia
     Y2775989H
     Irish citizen
 

@@ -79,7 +79,7 @@ However, I am aware of growing international support for my endeavors; and some 
 - My helpers have been in Israel ever since - in slavery or incarceration of some sort I assume - which is what they were doing in Spain alongside the Lopez Cano's for Adams's North-London-based international, criminal porn enterprise.
 - The UN raid had been in planning for some time (and coincides with a [reported mass arrest on 22 July](https://www.europapress.es/nacional/noticia-liberadas-162-mujeres-victimas-red-explotacion-sexual-varias-provincias-espana-20250722093030.html)), but it appears the UN required confirmation that I survive poisoning before they agreed to kidnap these people.
 - This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, to prepare me for the weeks ahead, and to lay foundations for yet another CIA blame-game targeting French and Italian Catholics.
-- And this is why [the Americans together with the UN tasked their good friends the Lopez Cano's with poisoning me at Lourdes](timeline/2025/july.md#poisoning-ordered-by-the-mousses) - so that I'd still think I was in danger from them alone - an extraordinary admission of criminal involvement, if not full management of what's going on in Dénia, and adds to [my assertion that the Lopez Cano's really have no clue at all about who didn't pay them back in the 90s](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known).
+- And this is why [the Americans together with the UN tasked their good friends the Lopez Cano's with poisoning me at Lourdes](timeline/2025/july.md#poisoning-ordered-by-the-mousses) - so that I'd still think I was in danger from them alone - an extraordinary admission of criminal involvement, if not full management of what's going on in Denia, and adds to [my assertion that the Lopez Cano's really have no clue at all about who didn't pay them back in the 90s](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known).
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
@@ -105,7 +105,7 @@ However, I am aware of growing international support for my endeavors; and some 
 
 !!! danger "Crimes committed by teachers and staff at the Tenor Cortis conservatory of music in Dénia, Spain"
     - Mass voyeurism, cyber-stalking, gang-stalking, honey-trapping, sedated spy-cam rape-porn, poisoning and drugging, murder, and staggering levels of sexual violence against women, children, and babies.
-    - The school's website: https://portal.edu.gva.es/conservatoridenia/.
+    - The school's website: https://portal.edu.gva.es/conservatoriDénia/.
 
 ### Porn fatwa
 
@@ -185,7 +185,7 @@ However, I am aware of growing international support for my endeavors; and some 
 
 - It turns out, they had been sedating and raping me for years already, long before the "switcheroo" events and my sex-slave porn-stardom at the Vilamar apartments of Carrer Furs, Dénia.
 - I believe I was repeatedly sedated, raped, and filmed in my apartments in Joan Fuster between 2014-2016, Passeig Periodista Ramon Ortega between 2012-2014, and even at my flat in Cami Llavador between 2006-2009.
-- I was sedated and raped in [Amsterdam in 2001](timeline/2001-to-2010/2001.md#amsterdam) by my boyfriend Brian and his criminal associates from North London and Dénia.
+- I was sedated and raped in [Amsterdam in 2001](timeline/2001-to-2010/2001.md#amsterdam) by my boyfriend Brian and his criminal associates from North London and Denia.
 - One of those criminal associates, a man with a severe facial disfigurement who may be related to another ex-boyfriend of mine Matthew, was set up to [repeat that event](timeline/2024/august.md#ugly) in France in 2024 when the gangs were panicking and needed someone to throw under the bus.
 - I was sedated and raped repeatedly in August-September of 1989 in Tottenham by North London rape-gangs.
 - And of course, [whatever was going on at my work's event in Bali in May 2024](timeline/2024/may.md#bali), with me in the starring role, is extraordinarily indicative of nightly sedated-rape by my crypto-tech colleagues and their friends.
@@ -310,7 +310,7 @@ However, I am aware of growing international support for my endeavors; and some 
 
 - If you travel to Dénia and talk to a few people, ask them if they know me. 
 - They will say yes.
-- A [Spanish government official confirmed it](timeline/2024/october.md#visiting-inma-again-in-madrid); everyone in Dénia knows who I am.
+- A [Spanish government official confirmed it](timeline/2024/october.md#visiting-inma-again-in-madrid); everyone in Denia knows who I am.
 - If you ask them why the whole town persecuted and terrorized me for three years, I expect the answers will be quite interesting.
 - Perhaps you'll find someone who saw me going to the toilet, or showering, or doing yoga in my sitting room, or taking an enema.
 - Maybe someone heard me farting loudly.
@@ -439,7 +439,7 @@ However, I am aware of growing international support for my endeavors; and some 
 - I thought I had many friends there.
 - I had no idea that - apart from my first visit in 1997 - I'd been lured there by online manipulation as a prime target for horror-porn specials that require careful poisoning over many years to administer stroke-like, brain-damage symptoms.
 - I sang in the Orfeó de Dénia choir, led by Klara Sarkadi.
-- It was while singing with Klara's choir that I met the characters who made sure I applied to the [conservatory of Dénia](https://portal.edu.gva.es/conservatoriDenia/) to study the piano.
+- It was while singing with Klara's choir that I met the characters who made sure I applied to the [conservatory of Dénia](https://portal.edu.gva.es/conservatoriDénia/) to study the piano.
 - "Find out what she wants", is their subtle and not-so subtle honey-trap game, and they supplied.
 
 ![All I wanted was to play the piano](content/tweets/all-i-wanted.png){width=75%}

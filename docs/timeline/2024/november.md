@@ -178,9 +178,9 @@ function googleTranslateElementInit() {
 - As I'm coming back to my car they start shrieking and laughing, and putting their phones up if they're recording me.
 - The man looks like the [man who keyed my car on the Mongto](../2023/october.md#my-car-is-damaged-on-the-montgo).
 - I recognize the woman somehow.
-- I think she's the bar woman who works at the cafe I used to meet Lorraine in back in 2014: Ciberdenia.
+- I think she's the bar woman who works at the cafe I used to meet Lorraine in back in 2014: CiberDénia.
 
-![Ciberdenia](../../content/images/ciberdenia.jpg)
+![CiberDénia](../../content/images/ciberdenia.jpg)
 
 - Back at home, messages on fake accounts that like my posts refer to these two and their behavior.
 - Later, I dream the man slams the woman's face into the car's dashboard.

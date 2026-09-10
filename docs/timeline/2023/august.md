@@ -93,7 +93,7 @@ function googleTranslateElementInit() {
 - Most of my tweets are translated, and I assume the Spanish are reading them. 
 - Here's an example of some [tweet translation statistics from this month](../../content/tweets/people-translating-tweets.pdf) on a random and rather insignificant tweet. Everything I write was being monitored.
 - The tweets confirm what is going on for me online; my concerns for my safety, constant communication with hidden groups, extremely threatening content including murder, suicide, and violence, an overwhelm of porn bots and porn content, direct references from hidden groups to matters related to my experiences at the conservatory, continued suggestions that the trumpet teacher was in love with me, and on and on.
-- Threat levels increased steadily throughout August until I was severely threatened with an online psychological trigger that I believed was real, (similar to my experience in [Thailand](july.md#the-first-time-i-become-terrified-about-being-arrested)), that I was going to be arrested by the police when I returned to my home in Dénia.
+- Threat levels increased steadily throughout August until I was severely threatened with an online psychological trigger that I believed was real, (similar to my experience in [Thailand](july.md#the-first-time-i-become-terrified-about-being-arrested)), that I was going to be arrested by the police when I returned to my home in Denia.
 - The psychological trigger was powerful enough to get me to go public on X at the end of this month and ask the gender critical community (and feminist groups by default) for help.
 
 ### `@1frgvn`
@@ -102,7 +102,7 @@ function googleTranslateElementInit() {
 
 [![Hi stalkers](../../content/tweets/august-comms/saying-hi.png)](https://x.com/1FRGVN/status/1686856121770799105)
 
-- Reporting kidney damage. I had no idea I was maliciously poisoned on [Monday 28th January 2023](january.md#serious-poisoning-at-chamber-music-class) by the trumpet teacher and Dr Joan from the Dénia hospital at La Xara.
+- Reporting kidney damage. I had no idea I was maliciously poisoned on [Monday 28th January 2023](january.md#serious-poisoning-at-chamber-music-class) by the trumpet teacher and Dr Joan from the Denia hospital at La Xara.
 
 [![Reporting kidney damage](../../content/tweets/august-comms/reporting-kidney-damage.png)](https://x.com/1FRGVN/status/1686843970217705472)
 
@@ -203,7 +203,7 @@ function googleTranslateElementInit() {
 
 - I told my cyber-stalkers interesting, and true stories about why I felt Dénia was such an important place for me.
 
-[![Interesting stories about Denia](../../content/tweets/august-comms/interesting-denia-stories.png)](https://x.com/1FRGVN/status/1692639787776168047)
+[![Interesting stories about Dénia](../../content/tweets/august-comms/interesting-denia-stories.png)](https://x.com/1FRGVN/status/1692639787776168047)
 
 - A comment on their evil.
 
@@ -428,7 +428,7 @@ function googleTranslateElementInit() {
 ![dogs 3](../../content/tweets/august-comms/jackchardwood/dogs.png)
 
 !!! tip "June 2024 general election in the UK"
-    - When I open a Facebook account to campaign in the [general election in the UK in June 2024](../2024/june.md#election-campaign) - amazingly while I was still being drugged and stalked by Dénia-based criminals - the same sort of spam accounts connect with me; accounts full of dogs and horses, mostly dogs.
+    - When I open a Facebook account to campaign in the [general election in the UK in June 2024](../2024/june.md#election-campaign) - amazingly while I was still being drugged and stalked by Denia-based criminals - the same sort of spam accounts connect with me; accounts full of dogs and horses, mostly dogs.
 
 - It's very obvious to me I'm being targeted online by Domingo Cano Lopez and his family and that is absolutely what I'm supposed to think, whether it is true or not. 
 - I'm trying to understand what's going on.

@@ -407,7 +407,7 @@ function googleTranslateElementInit() {
     ~
     The latest on the Twittosphere suggests local rape p*rn gangs made up of "respectable" men, #Pelicot style.
 
-    We wonder if this is what is referred to on the local "swingers" club advertisement, the MASSIVE one on the road into Denia, where they advertise "special events", or perhaps it's more after-party style.
+    We wonder if this is what is referred to on the local "swingers" club advertisement, the MASSIVE one on the road into Dénia, where they advertise "special events", or perhaps it's more after-party style.
 
     Anyway. Young Women are required for these "events" in which the men hide their faces with masks or robot helmets or whatever.
 
@@ -653,7 +653,7 @@ function googleTranslateElementInit() {
 - [He was an actor](../2023/november.md#nadim-kobesi), hired to abuse me for a criminal porn-addict community.
 - The [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) had made me part of a very lucrative porn genre; the *female-tech-colleague-you-despise* genre.
 - Everything I did in my life was monitored and manipulated by hackers for the paying porn addicts, and these were often men working alongside me in tech companies.
-- Furthermore, anyone at Polygon who knew what had happened to me at [the Bali offsite](may.md#bali), and what was happening to me at the hands of criminal gangs in Dénia, will have probably known I was going to murdered soon; it's what they do.
+- Furthermore, anyone at Polygon who knew what had happened to me at [the Bali offsite](may.md#bali), and what was happening to me at the hands of criminal gangs in Denia, will have probably known I was going to murdered soon; it's what they do.
 - Did they get a tip off via Paloma or the criminals, advising them to fire me before I was murdered?
 - The Polygon firing turned out to be the working day before I was supposed to start dying by poisoning at my home.
 - They couldn't have me turning up to meetings while that was happening now, could they?
@@ -1005,19 +1005,19 @@ function googleTranslateElementInit() {
     To: trata@policia.es
     Hello,
     Tue, Oct 29, 2024 at 4:59 PM
-    I have been hacked by thieves from Denia for more than two years now. It started with the teachers and other jobs at the Denia Conservatory and escalated when I didn't leave. I love Denia, although I had to finish my studies at the conservatory because I was afraid for my life.
+    I have been hacked by thieves from Dénia for more than two years now. It started with the teachers and other jobs at the Dénia Conservatory and escalated when I didn't leave. I love Dénia, although I had to finish my studies at the conservatory because I was afraid for my life.
 
-    I have written to you; there is a complaint in Madrid (Denia police told me to go!) that I need to escalate very soon, and I have also written to the Guardia Civil, and there is probably an investigation underway, I don't know.
+    I have written to you; there is a complaint in Madrid (Dénia police told me to go!) that I need to escalate very soon, and I have also written to the Guardia Civil, and there is probably an investigation underway, I don't know.
 
-    But, still, they send me, every day, photos of this same woman (and another one that I will send you later as well) and I am worried that she is in danger. It really bothers me to receive these photos on Twitter from fake accounts. I've been getting photos of this woman for over a year now. I don't know why. But you'll see that they start in a very innocent way, progressing to situations where it seems she's doing very bad pornography or something... I don't know... Perhaps these photos can help you in your fight against this epidemic of sexual exploitation we're suffering. Also, I've been sent photos of so many women who seem unaware of being sexually recorded, and things like that. I have many. They really bother me, and I think these thieves really enjoy bothering me this way. I'm saving them for when someone wants to talk to me about this horrible thing I've been dealing with here in Denia. Thank you for your attention. Please also excuse my terrible Spanish. Dr. Katharine Murphy
-    Denia, Alicante
+    But, still, they send me, every day, photos of this same woman (and another one that I will send you later as well) and I am worried that she is in danger. It really bothers me to receive these photos on Twitter from fake accounts. I've been getting photos of this woman for over a year now. I don't know why. But you'll see that they start in a very innocent way, progressing to situations where it seems she's doing very bad pornography or something... I don't know... Perhaps these photos can help you in your fight against this epidemic of sexual exploitation we're suffering. Also, I've been sent photos of so many women who seem unaware of being sexually recorded, and things like that. I have many. They really bother me, and I think these thieves really enjoy bothering me this way. I'm saving them for when someone wants to talk to me about this horrible thing I've been dealing with here in Dénia. Thank you for your attention. Please also excuse my terrible Spanish. Dr. Katharine Murphy
+    Dénia, Alicante
 
     Thank you.
     Here's the other woman who always sends me photos (there's a photo of her in the previous email, also here). I see this new woman sending nudes to her partner or boyfriend/girlfriend, or whatever... and he/she takes normal photos of her on the street... and then, she's in a car, she looks drugged, and with less and less clothing, and finally, no clothes at all... and I think something very violent has happened to her... I hope not, but she doesn't want these photos published.
 
     Thank you for your attention. Katharine
 
-    Also, this X account seems to belong to a student at the Denia Conservatory, someone who was in the choir class with me, and possibly with others who are "preparing"...
+    Also, this X account seems to belong to a student at the Dénia Conservatory, someone who was in the choir class with me, and possibly with others who are "preparing"...
     Thanks
 
 - Remember: I had not started writing my statement at this point and I was in a very precarious state of health and mind at my home in Carrer Furs.

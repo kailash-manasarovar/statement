@@ -447,7 +447,7 @@ function googleTranslateElementInit() {
 - Pretty desperate behavior if so.
 - Had I been receiving subliminal death threats online which triggered a will change?
 - It's difficult to understand exactly why this event happened, who would benefit, and how the Dénia criminal gangs could not be involved in some way.
-- Later, I remember my portentous [dream from a month previous](may.md#dreaming-of-the-pedophile) while I was being battered with hallucinogens and [porn-prepped for the Bali Polygon conference](april.md#drugged-in-the-street-by-denia-gypsies) at home in my lovely apartment in Dénia.
+- Later, I remember my portentous [dream from a month previous](may.md#dreaming-of-the-pedophile) while I was being battered with hallucinogens and [porn-prepped for the Bali Polygon conference](april.md#drugged-in-the-street-by-denia-gypsies) at home in my lovely apartment in Denia.
 
 ### Speech at LWS
 
@@ -503,7 +503,7 @@ function googleTranslateElementInit() {
 - I was around when they had visited London together and she told me all about it, about it being so hot on the tube in the summer, etc.
 - The boy she brings is supposed to be the same nephew, but he's too young.
 - He wouldn't have even existed in 2005!
-- Read more about [my friend from Madrid and her foreign office contact](october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) who promised she would help the multitude of women and children targeted by the porn-gangs of Dénia and the wider area that I have information about, and nothing happened apart from everyone waiting for me to be murdered and shut up and keep the porn-gangs in business.
+- Read more about [my friend from Madrid and her foreign office contact](october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) who promised she would help the multitude of women and children targeted by the porn-gangs of Denia and the wider area that I have information about, and nothing happened apart from everyone waiting for me to be murdered and shut up and keep the porn-gangs in business.
 
 ### Leaflets
 

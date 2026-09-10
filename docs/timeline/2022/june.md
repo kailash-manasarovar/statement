@@ -89,7 +89,7 @@ function googleTranslateElementInit() {
     - Unsurprisingly, she seemed to be absolutely delighted at some of the nastier things I experienced.
     - As the cyber-stalking progressed, and I came in to the conservatory for classes or to practice, she was always making some reaction to me; often related to something I had posted on Twitter, or she was reading some "significant" book, or leaving something "significant" open on her desk for me to see whenever I picked up a piano room key or brought it back after practicing.
     - It was boring and unimaginative. However, given I was also being drugged and poisoned without my knowledge, and given that the effects of continuous bullying became psychologically overwhelming, everything teachers and staff did to upset me had a sort of negatively exaggerated effect, as you might imagine it would.
-    - At the original time of writing this particular admonition - November 2024 in Bangkok - Gloria was listed as the representative of highly sensitive people on the conservatory website: *Representante del PAS*: https://portal.edu.gva.es/conservatoridenia/es/centro/organigrama/
+    - At the original time of writing this particular admonition - November 2024 in Bangkok - Gloria was listed as the representative of highly sensitive people on the conservatory website: *Representante del PAS*: https://portal.edu.gva.es/conservatoriDénia/es/centro/organigrama/
     - Well, I looked this up at the time and the definition of 'PAS' came up, specifically, as the "representative of highly sensitive people". 
     - I was horrified, of course.
 

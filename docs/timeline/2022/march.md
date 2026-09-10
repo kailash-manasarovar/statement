@@ -69,7 +69,7 @@ function googleTranslateElementInit() {
 ## I buy a cheap keyboard and need a stand
 
 - Delighted with the prospect of starting piano studies again, I buy a cheap keyboard that I can practice on at home.
-- I need a stand for it, however, so I go along to the [Dénia music shop](https://www.facebook.com/deniamusic) in Abu Zeyan just down from the Aqualia office on the roundabout.
+- I need a stand for it, however, so I go along to the [Dénia music shop](https://www.facebook.com/Déniamusic) in Abu Zeyan just down from the Aqualia office on the roundabout.
 - Incidentally, this is the same music shop that Domingo took me to in 2014 where [the shop assistants were clearly colluding in stalking me](../2011-to-2020/2014.md#going-to-the-music-shop-with-domingo) - one of the first instances of townsfolk making it known I was a sedated-rape victim and criminal-porn target.
 - The shop had moved since then.
 - When I go to buy a stand, I meet a man working there - long haired guy - and I have a very strong sexual feeling at that moment which I find really embarrassing.

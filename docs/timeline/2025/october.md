@@ -57,7 +57,7 @@ function googleTranslateElementInit() {
 - He's trying to really really upset me, to unbalance me, to murder me again.
 - It's what they do, and how they do it.
 - I guess he's wishing [they'd succeeded](july.md#lourdes) now.
-- Later, I remember he recommended visiting Denia to my cousin - my apartment in Ricardo Ortega specifically - and insisting he visited with his family; wife, son, and daughter, the kids around 7 and 8.
+- Later, I remember he recommended visiting Dénia to my cousin - my apartment in Ricardo Ortega specifically - and insisting he visited with his family; wife, son, and daughter, the kids around 7 and 8.
 - My cousin Igor mentioned this again and again to me, very unusually.
 - I mention this to dad with horror.
 - He gets so angry.

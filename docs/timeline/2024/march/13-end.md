@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## Wednesday 13th March 
 
-- I wake up and leave for the [serviced offices](https://www.knowheredenia.com/) in Dénia where I'm having to work due to hacking.
+- I wake up and leave for the [serviced offices](https://www.knowhereDénia.com/) in Dénia where I'm having to work due to hacking.
 - Before I go, I post my feelings about the [previous night's](1-12.md#the-piano-concert) extraordinary spectacle on X.
 
 [![The truth of the matter](../../../content/tweets/march-2024/the-truth.png)](https://x.com/1FRGVN/status/1767831951627431972)
@@ -83,14 +83,14 @@ function googleTranslateElementInit() {
     [13/03/2024, 19:45:52] Niramisa Weiss: Maybe if you knew someone who could help</br>
     [13/03/2024, 19:46:10] Jorge Esclapez Deckcard23: Do you think that this person could be spy you?</br>
     [13/03/2024, 19:46:15] Niramisa Weiss: No</br>
-    [13/03/2024, 19:46:45] Niramisa Weiss: But last year I was targeted by a man who I had turned down romantically in Denia 10 years ago</br>
+    [13/03/2024, 19:46:45] Niramisa Weiss: But last year I was targeted by a man who I had turned down romantically in Dénia 10 years ago</br>
     [13/03/2024, 19:46:54] Jorge Esclapez Deckcard23: Ok. That kind of videos are in the dark web.</br>
     [13/03/2024, 19:47:01] Niramisa Weiss: A piano teacher at the conservatory</br>
     [13/03/2024, 19:47:41] Niramisa Weiss: I used to live here and left for 8 years . I came back 2 years ago and started my studies again</br>
     [13/03/2024, 19:48:03] Jorge Esclapez Deckcard23: It's difficult find someone to search that kind of videos.</br>
     [13/03/2024, 19:48:14] Niramisa Weiss: But he was not happy about this and caused me a lot of problems, including hacking my laptop and phone through the router</br>
     [13/03/2024, 19:48:33] Niramisa Weiss: They took very private videos and recordings of me</br>
-    [13/03/2024, 19:48:48] Niramisa Weiss: And sent the around the town here in denia</br>
+    [13/03/2024, 19:48:48] Niramisa Weiss: And sent the around the town here in Dénia</br>
     [13/03/2024, 19:48:58] Niramisa Weiss: I would like those too if possible</br>
     [13/03/2024, 19:49:22] Niramisa Weiss: Literally everyone knows what is going on and no one helps me</br>
     [13/03/2024, 19:49:40] Niramisa Weiss: I complained to the generalitat and they ignored me</br>
@@ -285,7 +285,7 @@ function googleTranslateElementInit() {
 - I believe this statement is audible in one of the sedated-child gang-rape porn films made in 1989 which was likely quite violent.
 - Did something similar happen to me that night while I was sedated in my apartment?
 - Who was there? Did anyone see them coming in with me?
-- I wonder what the special was on Denia TV that night.
+- I wonder what the special was on Dénia TV that night.
 - My shoulders, arms, and hands feel numb, like they've stopped working.
 - Even pressing touchscreen buttons on my phone is challenging.
 
@@ -649,13 +649,13 @@ function googleTranslateElementInit() {
     - That they have access to all my personal, financial, and work information, knowing how much I earn, what I buy, how much I spend, who I have paid...</br>
     - That they have also hacked my work computer, which I have reported to the IT Security Department, and they have confirmed the hack. For this reason, I have to travel to a co-working office near my place of residence in order to work, with the added danger of the constant threats I face on my commute to and from home, which I also mention in the aforementioned police report.</br>
     - They have attempted to access the "Cryptocurrency" account I maintain with the company "Coinbase," blocking it (possibly due to its security controls), and which I have not yet been able to access. Therefore, to this day, I do not know if they have managed to steal a significant amount of money from me. I am still trying to re-identify myself to gain access to it.</br>
-    - That the two people I mention in the Police Report, both civil servants in the Public Administration, have created a WhatsApp group with many members, including teachers from the aforementioned Music Conservatory, as well as residents of the town of Denia, sharing in said group my original Twitter messages and other false and offensive messages attributed to me, as well as my private WhatsApp messages, photos, recordings, and videos stolen from my devices. The proof of this is that many people in the town know private things that I have never told anyone.</br> 
+    - That the two people I mention in the Police Report, both civil servants in the Public Administration, have created a WhatsApp group with many members, including teachers from the aforementioned Music Conservatory, as well as residents of the town of Dénia, sharing in said group my original Twitter messages and other false and offensive messages attributed to me, as well as my private WhatsApp messages, photos, recordings, and videos stolen from my devices. The proof of this is that many people in the town know private things that I have never told anyone.</br> 
     - That I have written up to four times to the Department of Education of the Generalitat Valenciana, complaining about the attacks by the teachers I mention in the Report, and finally, when they dispatched an Education Inspector from Alicante, she addressed me in a threatening tone, suggesting that I was the cause of the problems.</br> 
     - The digital security camera I connect to my apartment every time I leave the house has been hacked. I have received alerts from the app and threatening noises have been recorded on the data card, which I can also test. I have mentioned this to my company's security team and they have recommended that I turn it off completely, as if they control it, they can easily access my home without being seen.</br> 
     - In short, the entire hacking I've described—which likely began two years ago—as well as the daily threats I receive, have put me in grave danger, fearing for my physical safety, not only from the individuals I mention in the Complaint, but also from the other criminals who abound on the Levantine coast and around the world.</br> 
-    - Unfortunately, the National Police in Denia, which I visited last February, ignored me, denying me the right to file a Complaint, which is why I had to travel to Madrid to do so. I mentioned this fact to the police officer who took my statement, but it has not been included in the Complaint I attach.</br> 
+    - Unfortunately, the National Police in Dénia, which I visited last February, ignored me, denying me the right to file a Complaint, which is why I had to travel to Madrid to do so. I mentioned this fact to the police officer who took my statement, but it has not been included in the Complaint I attach.</br> 
     Dr. Katharine Murphy</br> 
-    Carrer dels Furs, 15, Block 1, Building 2, 3rd Floor, Door 17, 03700 Denia</br> 
+    Carrer dels Furs, 15, Block 1, Building 2, 3rd Floor, Door 17, 03700 Dénia</br> 
 
 ### A second letter to my parents
 
@@ -1284,12 +1284,12 @@ function googleTranslateElementInit() {
     28042 MADRID</br>
     SPAIN</br>
     Dear sirs,</br>
-    I am reporting an organized crime gang in Denia, Alicante who are terrorizing the townsfolk 
+    I am reporting an organized crime gang in Dénia, Alicante who are terrorizing the townsfolk 
     by singling out people to target for intimidation and abuse and possibly financial crime too.
     </br>
     I have experienced gender violence from them, including cyber bullying, and they have 
     hacked into my computers and phones and webcams too. I have evidence for this on my laptop, phone, and webcams, but the I am in the position where I have to gather it myself, including pay high prices for tech analysis.</br>
-    When the gang tried to chase me away from Denia in June last year, I refused to flee and 
+    When the gang tried to chase me away from Dénia in June last year, I refused to flee and 
     the intimidation got worse. They made it very clear to me they had access to my technology 
     in August 2023 and as I am an IT professional myself, and the attack was so professional, I 
     assumed they must have paid someone to hack me. I did not realize at the time they had 
@@ -1297,7 +1297,7 @@ function googleTranslateElementInit() {
     I understand that the police have little interest in pursuing such intimidation cases, as 
     historically it is impossible to gather evidence against gangs like this who target women, and 
     the townsfolk are too scared to talk.</br>
-    However, this particular gang in Denia Alicante has recently become technologically 
+    However, this particular gang in Dénia Alicante has recently become technologically 
     advanced, and they are now pursing their victims via social media. They are also hacking 
     their victims’ home networks and phones, initially by entering through vulnerable routers 
     from handheld devices outside, or maybe even through friends working at the IPs, and 
@@ -1305,9 +1305,9 @@ function googleTranslateElementInit() {
     just women either.</br>
     Gathering evidence for this organized criminal activity should be easy, and should not be left 
     to a single victim who dares speak up. I have been to the police twice now about the 
-    bullying. Denia police sent me away and did not record my visit after a violent threat on 
+    bullying. Dénia police sent me away and did not record my visit after a violent threat on 
     Twitter. Madrid police took a statement but will not be investigating. I have to take my laptop and phone to a perito for a professional analysis which will cost me upwards of EUR 1000 at which point I will amplify my complaint.</br>
-    This gang has targeted me probably since at least June 2022 when I moved back to Denia 
+    This gang has targeted me probably since at least June 2022 when I moved back to Dénia 
     and signed up for piano study at the conservatory again, and by doing so insulted the piano 
     teacher Domingo Lopez Cano who threatened to poison me for refusing his advances in 
     2014.</br>
@@ -1329,9 +1329,9 @@ function googleTranslateElementInit() {
     Everyone knows everything about me, including how much I am paid, who I make donations 
     to, how much those donations are, and when I make them. No-one should know these 
     things.</br>
-    I have been unable to access my Coinbase account are(sic should be "after") an extremely horrible attack by the conservatory and the people of Denia a few weeks ago. I believe they have access. I have over 70K EUR in there that they may have access to. I am trying to get access again.</br>
+    I have been unable to access my Coinbase account are(sic should be "after") an extremely horrible attack by the conservatory and the people of Dénia a few weeks ago. I believe they have access. I have over 70K EUR in there that they may have access to. I am trying to get access again.</br>
     As I said, it was clear by the fact that everyone knows what is happening to me and is either 
-    enjoying it or unable to reach out to help me, that this is a sadly common event in Denia, and 
+    enjoying it or unable to reach out to help me, that this is a sadly common event in Dénia, and 
     perhaps further afield too.</br>
     However, this gang are now totally out of control, and need to be stopped, I am in the 
     process of contacting the Europol criminal cyber gang investigators.</br>
@@ -1341,7 +1341,7 @@ function googleTranslateElementInit() {
     complain about the treatment coming from one of a macho teacher and my concerns about 
     his closeness with young girls and the access he has to their phones. These letters were 
     totally ignored and sending them put me in more danger at the conservatory and in the 
-    streets of Denia.</br>
+    streets of Dénia.</br>
     I won’t stop trying to do the right thing. You have to help me stop technology-advanced 
     misogynist gangs terrorizing the good people of Spain and forcing victims to flee from our 
     homes in fear of our lives.</br>
@@ -1350,7 +1350,7 @@ function googleTranslateElementInit() {
     Doctorado en informatica UPM 2009</br>
     +34-622-900-327</br>
     Carrer Furs 15, B1, Esc2, Piso3, Pta17</br>
-    03700 DENIA, Alicante</br>
+    03700 Dénia, Alicante</br>
 
 - I print and send it registered from India.
 - I don't know if anyone received it.

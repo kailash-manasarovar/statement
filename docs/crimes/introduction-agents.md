@@ -18,18 +18,18 @@ function googleTranslateElementInit() {
 
 ### Dentist
 
-- I believe the dentist at Ameba knew exactly who I was, and may have even already known me intimately, perhaps from the Denia TV specials.
+- I believe the dentist at Ameba knew exactly who I was, and may have even already known me intimately, perhaps from the Dénia TV specials.
 - https://www.adentaria.com/
 - See [my experience here](../timeline/2022/november.md#dentist).
 
-### Denia medical centre and hospital
+### Dénia medical centre and hospital
 
-- https://www.cemclinicas.com/centro-medico-denia
+- https://www.cemclinicas.com/centro-medico-Dénia
 - The nurse who worked here was a [close associate of Domingo](../timeline/2011-to-2020/2015.md#domingo-pretends-he-has-another-girlfriend).
 - The doctor who gave me a scan when I was worried about my health, and didn't look at the screen at all and said I was fine, must have been involved somehow.
 - The doctor who looked at my ingrown toenail in June 2023, I believe to have known me intimately, and may even be on my security cam video [from the beach on 6th October 2024](../timeline/2024/october.md#possum-man-on-the-beach).
 - The [doctor who was "apparently" a trumpet student](../timeline/2023/january.md#serious-poisoning-at-chamber-music-class), a man I understand to be called Joan and who was present at the class where they overdosed me and I got rhabdo, worked at the Denia hospital.
-- To be fair, if I was on Denia TV each week sedated, everyone knew me intimately.
+- To be fair, if I was on Dénia TV each week sedated, everyone knew me intimately.
 
 ### Foreigners desk at the council
 
@@ -43,7 +43,7 @@ function googleTranslateElementInit() {
 ### Mercedes Correas Lara
 
 - Domingo's associate.
-- I believe Domingo required her to go to the Orfeo de Denia choir and "meet" me there, maybe others.
+- I believe Domingo required her to go to the Orfeo de Dénia choir and "meet" me there, maybe others.
 - Her husband needs a wellness and safety check at a minimum, maybe an exhumation.
 
 ## Ex-pats
@@ -54,7 +54,7 @@ function googleTranslateElementInit() {
 
 ### U3A
 
-- https://www.u3adenia.com/
+- https://www.u3aDénia.com/
 
 ### Choirs
 

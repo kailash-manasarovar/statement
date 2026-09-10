@@ -531,7 +531,7 @@ function googleTranslateElementInit() {
 - Brian talks to me as if someone has told him I'm a total idiot.
 - [Ajay, Alicia, and mushroom man's teams](#ajay-alicia-aman-pandey-and-mushroom-man-perform-a-military-coup-on-my-job) are up to their old tricks again.
 - I complain to my current manager about it, Paul O'Leary, referencing an earlier complaint I had made to him about the military-coup style bullying operations I'm enduring daily.
-- When I speak to Paul O'Leary about this in Bali, he sort of [groans with familiarity](october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid), in exactly the same way a Spanish government official groans when I tell her about the porn-gang activity and pedophilia going on at the conservatory of Dénia.
+- When I speak to Paul O'Leary about this in Bali, he sort of [groans with familiarity](october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid), in exactly the same way a Spanish government official groans when I tell her about the porn-gang activity and pedophilia going on at the conservatory of Denia.
 - Groans of familiarity and inconvenience!
 - I believe a preponderance of Polygon Spanish male founders and other global developers knew exactly what was going on for me in Dénia, and are 100% involved in the conspiracy, and have got me to Bali for one sick purpose only.
 - They must be aware that someone like me ends up in hardcore porn, robbed, blind, perhaps murdered. 
@@ -552,7 +552,7 @@ function googleTranslateElementInit() {
 - I masturbate in the bathroom.
 - Sometimes, I do yoga at the same time.
 - I have no idea why I would do this; I have never done anything like this before or since in my whole life.
-- I normally don't masturbate. As I may have mentioned, I have been celibate since 2010 and that included masturbation until [April 2023](../2023/april.md#hanuman-jayanti) when the porn-gangs of Dénia started drugging me with aphrodisiacs.
+- I normally don't masturbate. As I may have mentioned, I have been celibate since 2010 and that included masturbation until [April 2023](../2023/april.md#hanuman-jayanti) when the porn-gangs of Denia started drugging me with aphrodisiacs.
 - Did they manipulate the yoga by setting up a [Jitendra Das](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star) memory trigger with the [Pakistani Yorkshireman that I'm about to meet](#the-pakistani-yorkshire-man)?
 - Or was I making subconscious connections between things that were happening at the conference and in a sedated state?
 - It's very strange.
@@ -614,7 +614,7 @@ function googleTranslateElementInit() {
 - *Did you not see him make those sexually violent threats to me Anthony*, I said. *He was menacing.* 
 - Anthony says nothing so I explain by demonstrating it to him.
 - Anthony says nothing.
-- I wonder if Anthony was there for denial purposes in case I complain.
+- I wonder if Anthony was there for Dénial purposes in case I complain.
 - While this guy, Aziz Abad (something like that) was talking to us, his chatter was so disordered and threateningly meaningless, he reminded me of [Nadim Kobesi](../2023/november.md#nadim-kobesi).
 - I say so.
 - I say to Anthony, this guy has *Nadim energy*.
@@ -1081,7 +1081,7 @@ function googleTranslateElementInit() {
 
 - The expert finds nothing.
 
-## The streets of Denia
+## The streets of Dénia
 
 - Every time I go out I feel threatened.
 - I'm walking down the Calle La Mar one afternoon and a waiter I've known for years who works at the Tasca Eulalia restaurant is walking across the street from me.

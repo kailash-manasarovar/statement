@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## Acupuncture with Thao Qi
 
-- The [acupuncturist](https://www.thaoqi.com/) I spoke to in [February](february.md#mental-state-and-health-concerns), when I became extremely concerned about my health, is back in Dénia.
+- The [acupuncturist](https://www.thaoqi.com/) I spoke to in [February](february.md#mental-state-and-health-concerns), when I became extremely concerned about my health, is back in Denia.
 - We arrange sessions to start this month.
 - When I visit, she is surprised at the poor state of my pulses, especially my kidneys and tells me my right kidney is practically dead.
 - I explain that I've had some recent stresses, and my abuse history, and to expect my pulses to be weak due to this.
@@ -47,7 +47,7 @@ function googleTranslateElementInit() {
 - The thought of everyone coming to a concert where myself and the trumpet teacher are in the same room, and with everything that's happened so far; the constant bullying, my feelings for him, how my whole body vibrates whenever I'm with him, the whole conservatory knowing something of my child sexual abuse history, because he told them, and him not speaking to me about any of it. It's all too much. 
 - I'm clear with the trumpet teacher that I do not want to do it, but I have to agree because it is a requirement of the course.
 - It feels like a set up; a trap. I'm right about this with no details.
-- The concert is originally arranged for the [Casa de Cultura](https://www.denia.com/casa-de-cultura/) in the town.
+- The concert is originally arranged for the [Casa de Cultura](https://www.Dénia.com/casa-de-cultura/) in the town.
 - After my groans of complaint, the venue somehow changes and the concert will take place at the conservatory instead. 
 - Myself and Pablo, the autistic girl Candela and her guitarist partner, turn up to play.
 - I am, as usual, euphoric, anxious, and high.
@@ -86,7 +86,7 @@ function googleTranslateElementInit() {
 - I remember I have cause to say, after he asks me about my surname, and just after Ana has been in, that "Katharine is sufficient," and he giggles. He primes this, of course.
 - It's hard to remember which trumpet teacher that was but I'm pretty sure it was [one of the second lot of trumpet teachers](../../crimes/protagonists/vidal-sastre.md#seven-devils).
 - For the next significant event, the trumpet teacher is played by [Gloria the-school-receptionist's brother Bruno](../../crimes/protagonists/vidal-sastre.md#4-bruno).
-- I'm sitting in my chair, he is standing in front of me, our eyes lock and there is a powerful and undeniably reciprocal sexual attraction which is rather overwhelming.
+- I'm sitting in my chair, he is standing in front of me, our eyes lock and there is a powerful and unDéniably reciprocal sexual attraction which is rather overwhelming.
 - I will be reminded of the look I give him at this moment when I see [plate lady online in July](../../content/images/plate-lady/plate-lady-love.png).
 - This moment has no history which concerns me immensely.
 - What I mean to say, is that I remember suddenly slouching low in my chair, with my legs splayed, in the middle of the room, in front of this man, clothed but experiencing an intense sexual arousal as if something huge and sexual had just happened.
@@ -162,7 +162,7 @@ function googleTranslateElementInit() {
 
 ## Concert de Orfeo de Dénia
 
-- The choir I used to sing in, the Orfeo de Dénia, gave a [concert to celebrate 40 years of activity](https://www.denia.com/el-orfeo-de-denia-celebra-sus-40-anos-con-un-emotivo-concierto-que-unio-varias-generaciones-de-coristas/).
+- The choir I used to sing in, the Orfeo de Dénia, gave a [concert to celebrate 40 years of activity](https://www.Dénia.com/el-orfeo-de-denia-celebra-sus-40-anos-con-un-emotivo-concierto-que-unio-varias-generaciones-de-coristas/).
 - Mercedes had told me about it at my piano classes.
 - I went along and met some of my old pals. It was really wonderful to see them again.
 
