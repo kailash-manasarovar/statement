@@ -139,16 +139,18 @@ function googleTranslateElementInit() {
 
 ## Constant threats online and in-person
 
+- Criminal gangs had been requested by the salmon mousses to harass and upset me online and in-person, and information had been shared with them about what words to use, or what actions to perform so that I would continue to think I was being targeted by criminal gangs alone, and never suspect international security services which included my trauma therapy group.
+
 ### Are you Welsh?
 
-- I write to Ana Requena at the conservatory.
-- The email is from my `katharinejchardwood@gmail.com` account which North London's finest managed to get shutdown in January 2026 while deleting all my backups at the same time.
-- I can see why they might want to protect their interests at the music school; fish in a barrel, isn't it.
-- I've written to Ana quite frequently on other accounts.
+- When I get back to London from my trip to Ireland, I write to Ana Requena at the conservatory.
+- The email is from my `katharinejchardwood@gmail.com` account which was shut down in January 2026 when I returned to the UK from abroad, which made me suspect North London's finest yet again, and was meant to.
+- I can see why they might want to protect their interests at the music school; fish in a barrel.
+- I write to Ana quite frequently, just for fun really.
 - I start the email with a greeting in Welsh: *bore da*.
 - I have never ever done that before in my life.
-- I do that because it's the very day after I return from Ireland, and I stayed in Wales one night on the way back, and that's how they were saying good morning to me, bore da.
-- Later that day, I take my dad to the library.
+- I do that because I have just returned from Ireland, and on the way back I stayed in Wales one night, and that's how they all said good morning to me, *bore da*.
+- Later that day, I take my dad to East Finchley library.
 - As we arrive at the library, we see an extremely weird guy sitting outside. He's old and has an orange old bashed-up car, wild hair, trampy clothes, and he looks very dodgy.
 - The minute I open the door of my car, he jumps up and starts saying to me, "Oh, are you Welsh, are you Welsh".
 - I do not feel safe in North London!
