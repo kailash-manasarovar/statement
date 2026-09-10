@@ -99,7 +99,7 @@ However, I am aware of growing international support for my endeavors; and some 
     - I was helping them with that, without my knowledge and utterly non-consensually.
     - The Americans tasked the Lopez Cano's with the original crime and set them up to believe it was the British all this time.
     - Since then, everyone has believed the biggest lie in two thousand years and the world has gone stark-raving, criminal-porn mad because of it.
-- The reason all these things must be true is that classes at the conservatory where children are groomed and drugged and put in porn by the serial-killing Lopez Cano teachers and staff continue to this day!
+- The reason all these things must be true is that classes at the conservatory where children are groomed and drugged and put in porn by the serial-killing, Lopez Cano gang, teachers and staff continue to this day!
 
 ## Background
 
