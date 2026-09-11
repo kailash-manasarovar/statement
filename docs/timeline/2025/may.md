@@ -243,8 +243,8 @@ function googleTranslateElementInit() {
 - Another thing she said to me on that day was, "you saved my life" - apparently with regards to a weekend in Scarborough I went on with them all in 2019.
 - I ask her why she says that.
 - She doesn't answer.
-- She also gives me a gift from the second-hand shop she works at that evening; a little money purse - I wonder if it had a tracking device from Adams inside - which I didn't keep.
-- As she's giving it me, and I accept it and tell her she shouldn't have, she looks over a Chris and makes a face as if to say, *see? she's taking it*, a communication that was totally inexplicable to me at the time.
+- She also gives me a gift from the second-hand shop she works at that evening; a little money purse - I wonder if it had a tracking device from Adams inside - which I left at the hotel.
+- As she's giving it to me, and I accept it and tell her she really shouldn't have, she looks over a Chris and makes a face as if to say, *see? she's taking it*, a communication that was totally inexplicable to me at the time.
 - I just assume she still hates me, like she always has, and is doing weird things because of her hatred.
 
 ### Des and Nikki 
