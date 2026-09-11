@@ -269,9 +269,14 @@ function googleTranslateElementInit() {
 - I know this because it was all going on when I visited him one weekend in Stevenage and we went out clubbing with one of his local mates.
 - He didn't have a photo to show me, and I even spoke to her online and thought it was all very suspicious. 
 - So I wasn't surprised it all went tits up for him.
-- So then he meets Desa. And I'm talking to him about her, and he says the only thing he doesn't like about her is that she's overweight, and he doesn't like fat women.
-- And I'm pretty horrified he would be so ignorant like that, so I automatically quite like Desa before I even met her.
+- So then he meets Desa. And I'm talking to him about her, and he says the only thing he doesn't like about her is that she's overweight, and he doesn't like fat women, and he's demanded that she lose weight for him.
+- And I'm pretty horrified he would be as ignorant as this, so I automatically quite like Desa before I even met her.
 - When I do meet her I'm amazed because she is obese; so I think Chris must have done the right thing and got out of his ignorance about women's bodies.
+
+### The abomination of desolation leaves participating men open to scamming and blackmail
+
+- I'll just leave that there with no further explanation.
+- While remembering my poor brother's experience at the same time.
 
 ## Israel TT
 
