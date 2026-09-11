@@ -222,8 +222,9 @@ function googleTranslateElementInit() {
 - For a long time, they were the only friends I had in the world.
 - I'm staying at a hotel in Luton the night before I fly out because the flight is so early.
 - We meet for dinner, drinks, a chat and a walk in the grounds of the hotel.
-- Desa does her usual thing, jokingly telling us she thinks Chris is a psychopath; she always does that (I always thought she was joking when she did that).
-- He never says anything when she insults him, which she does, a lot.
+- Desa does her usual thing, jokingly telling us she thinks Chris is a psychopath; she always does that.
+- *No, he is a psychopath,* she'll emphasize, and then, *aren't you Chris?* directly to him.
+- He never says anything when she does this.
 - In fact, I always found Desa rather unpleasant because of the way she talks to Chris; putting him down all the time.
 - And Chris is my friend, so I don't like it.
 - I explain all this over dinner this evening because it all comes up again - Desa explaining how much she likes Matthew Copeland.
