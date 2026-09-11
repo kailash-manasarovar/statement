@@ -237,14 +237,14 @@ function googleTranslateElementInit() {
 - Since then she always brings this story up - I guess it's a giggle for her - I'm embarrassed and I'm reminded how much of a nightmare Matthew always was.
 - Desa always says how much she likes Matthew.
 - He certainly gave her a good reason for her very obvious dislike of me, which I never really figured out properly.
-- So, it comes up again in Luton, and I explain, annoyed, as if I have to, why I don't like people who insult my friends, and she should be happy that Chris has friends who will defend him this way.
+- So, it comes up again in Luton, and I explain, annoyed, as if I have to, why I don't like people who insult my friends, and that she should be happy that Chris has friends who will defend him this way.
 - She says nothing.
 - I can't figure her out.
 - Another thing she said to me on that day was, "you saved my life" - apparently with regards to a weekend in Scarborough I went on with them all in 2019.
 - I ask her why she says that.
 - She doesn't answer.
 - She also gives me a gift from the second-hand shop she works at that evening; a little money purse - I wonder if it had a tracking device from Adams inside - which I left at the hotel.
-- As she's giving it to me, and I accept it and tell her she really shouldn't have, she looks over a Chris and makes a face as if to say, *see? she's taking it*, a communication that was totally inexplicable to me at the time.
+- As she's giving it to me, and I accept it and tell her she really shouldn't have, she looks over at Chris and makes a face as if to say, *see? she's taking it*, a communication that was totally inexplicable to me at the time.
 - I just assume she still hates me, like she always has, and is doing weird things because of her hatred.
 
 ### Des and Nikki 
@@ -255,11 +255,11 @@ function googleTranslateElementInit() {
 - Anyway, all a bit of a tragedy, they did a lot of drugs over the years, and Nikki found out she had breast cancer, and not thinking clearly they both decided they'd kill themselves in South America.
 - So they went to Chile, went out into the desert, and Des chickened out at the last minute but Nikki died.
 - So he ended up in prison in Lima for murdering his wife.
-- I had started to wonder if Des knew what had happened to me with Winston May through friends of his (no idea about the wider story).
+- And I had started to wonder if Des knew what had happened to me with Winston May through friends of his (no idea about the wider story).
 - The last time I saw Des, at Chris and Desa's wedding, he was ashamed and could not look me in the eye.
-- I had just remembered one instance of gang rape in Tottenham in 1989 (so it was probably around 2007 or 2008) so it occurred to me by his reaction to me that he must have known!
+- I had just remembered one instance of gang rape in Tottenham in 1989 (so it was probably around 2007 or 2008), and I had told everyone about that, so it occurred to me by his reaction to me that he must have known!
 - I guess he knew about *everything*, like they all did.
-- A rare declaration of shame is quite unique in this story, isn't it.
+- A rare declaration of shame is something unique in this story, isn't it.
 - He'd be good to talk to, if you haven't already.
 
 ### When they were dating
