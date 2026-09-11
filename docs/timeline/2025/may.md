@@ -218,27 +218,28 @@ function googleTranslateElementInit() {
 ## Meeting Chris & Desa before I fly to Israel
 
 - I meet old friends Chris and Desa Ludwick who live in Stevenage near Luton airport.
-- I was in [the N8 band with Chris Ludwick in 1990](../pre-2001/1990.md#n8) and we've been friends every since.
+- I was in [the N8 band with Chris Ludwick in 1990](../pre-2001/1990.md#n8) and we've been great friends ever since.
+- For a long time, they were the only friends I had in the world.
 - I'm staying at a hotel in Luton the night before I fly out because the flight is so early.
-- We meet for dinner, drinks, and a chat and a walk in the grounds of the hotel.
+- We meet for dinner, drinks, a chat and a walk in the grounds of the hotel.
 - Desa does her usual thing, jokingly telling us she thinks Chris is a psychopath; she always does that (I always thought she was joking when she did that).
 - He never says anything when she insults him, which she does, a lot.
 - In fact, I always found Desa rather unpleasant because of the way she talks to Chris; putting him down all the time.
 - And Chris is my friend, so I don't like it.
 - I explain all this over dinner this evening because it all comes up again - Desa explaining how much she likes Matthew Copeland.
-- Backstory:
+- Some backstory required.
 - Early on in their relationship, I tell Matthew Copeland that I don't really like Desa very much and I tell him why - she's always putting him down.
-- We all go to dinner one time, the four of us. I'm guessing this is 2007 when I visit Matthew, but it could be a lot earlier. I can't remember well. They weren't yet married at the time so it may have even been around 2002.
+- We all go to dinner one time, the four of us. I'm guessing this is 2007 when I visit Matthew, but it could have been a lot earlier. I can't remember well. They weren't yet married at the time so it may have even been around 2002.
 - We have dinner near the old snooker club (or maybe in a restaurant that replaced the snooker club) in Tottenham Lane opposite the YMCA.
 - We're having dinner, and Matthew declares: *Kate doesn't like you*, to Desa.
 - I'm horrified. Why would he do such a thing. He's such a brute.
 - Since then she always brings this story up - I guess it's a giggle for her - I'm embarrassed and I'm reminded how much of a nightmare Matthew always was.
-- She always says how much she likes Matthew.
-- He certainly gave her a good reason for her very obvious dislike of me which I never really figured out properly.
-- So, it comes up again in Luton, and I explain, annoyed, as if I have to, why I don't like people who insult my friends, and she should be happy that Chris has got friends who will defend him this way.
+- Desa always says how much she likes Matthew.
+- He certainly gave her a good reason for her very obvious dislike of me, which I never really figured out properly.
+- So, it comes up again in Luton, and I explain, annoyed, as if I have to, why I don't like people who insult my friends, and she should be happy that Chris has friends who will defend him this way.
 - She says nothing.
 - I can't figure her out.
-- Another thing she said to me on that day was, "you saved my life" - apparently with regards to a weekend in Scarborough with them all in 2019 (and my head is still ringing from being shouted at - not in a bad way - they all seemed to need to shout instead of talk for the whole weekend).
+- Another thing she said to me on that day was, "you saved my life" - apparently with regards to a weekend in Scarborough I went on with them all in 2019.
 - I ask her why she says that.
 - She doesn't answer.
 - She also gives me a gift from the second-hand shop she works at that evening; a little money purse - I wonder if it had a tracking device from Adams inside - which I didn't keep.
