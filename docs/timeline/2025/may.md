@@ -211,19 +211,50 @@ function googleTranslateElementInit() {
 
 - Bear in mind I have no activity on this account at all anymore and the last interaction on here was over 40 days ago.
 - I still can't figure out what the purpose behind all this online harassment is, but then again I expect no-one realized quite how robust I am, and how other people's infantile behavior really has no effect on me.
+- I'm with dad in the kitchen and I'm telling him about all this.
+- I say the words, *boil porn*.
+- He laughs. It's not funny.
 
 ## Meeting Chris & Desa before I fly to Israel
 
-- I meet old friends Chris Ludwick and Desa.
-- Desa jokingly tell us she thinks Chris is a psychopath; she always does that. He never says anything.
-- I'm not sure I like the way Desa speaks to Chris.
-- I'm flying to Israel the following morning to assist Steve on a TT module 2 in Jerusalem.
-- Desa repeatedly says to me, "you saved my life" regarding a weekend up North in 2019.
-- I ask her why.
-- She doesn't explain.
-- She also angrily tells me I must never, ever go back to Spain. I guess it's the manner of her caring.
-- I wasn't planning on it.
-- I wonder what Chris's mates Des and Nikki would have said about all this.
+- I meet old friends Chris and Desa Ludwick who live in Stevenage near Luton airport.
+- I was in [the N8 band with Chris Ludwick in 1990](../pre-2001/1990.md#n8) and we've been friends every since.
+- I'm staying at a hotel in Luton the night before I fly out because the flight is so early.
+- We meet for dinner, drinks, and a chat and a walk in the grounds of the hotel.
+- Desa does her usual thing, jokingly telling us she thinks Chris is a psychopath; she always does that (I always thought she was joking when she did that).
+- He never says anything when she insults him, which she does, a lot.
+- In fact, I always found Desa rather unpleasant because of the way she talks to Chris; putting him down all the time.
+- And Chris is my friend, so I don't like it.
+- I explain all this over dinner this evening because it all comes up again - Desa explaining how much she likes Matthew Copeland.
+- Backstory:
+- Early on in their relationship, I tell Matthew Copeland that I don't really like Desa very much and I tell him why - she's always putting him down.
+- We all go to dinner one time, the four of us. I'm guessing this is 2007 when I visit Matthew, but it could be a lot earlier. I can't remember well. They weren't yet married at the time so it may have even been around 2002.
+- We have dinner near the old snooker club (or maybe in a restaurant that replaced the snooker club) in Tottenham Lane opposite the YMCA.
+- We're having dinner, and Matthew declares: *Kate doesn't like you*, to Desa.
+- I'm horrified. Why would he do such a thing. He's such a brute.
+- Since then she always brings this story up - I guess it's a giggle for her - I'm embarrassed and I'm reminded how much of a nightmare Matthew always was.
+- So, it comes up again in Luton, and I explain, annoyed, as if I have to, why I don't like people who insult my friends, and she should be happy that Chris has got friends who will defend him this way.
+- She says nothing.
+- I can't figure her out.
+- Another thing she said to me on that day was, "you saved my life" - apparently with regards to a weekend in Scarborough with them all in 2019 (and my head is still ringing from being shouted at - not in a bad way - they all seemed to need to shout instead of talk for the whole weekend).
+- Anyway, I ask her why she's saying that.
+- She doesn't give me an explanation.
+- She also gives me a gift from the second-hand shop she works at. It's a little money purse.
+
+### Des and Nikki 
+
+- We talk about Des and Nikki too.
+- Des was Chris Ludwick's great friend from school and Nikki was his wife.
+- They lived in Woodgreen and were both black taxi drivers.
+- Anyway, all a bit of a tragedy, they did a lot of drugs over the years, and Nikki found out she had breast cancer, and not thinking clearly they both decided they'd kill themselves in South America.
+- So they went to Chile, went out into the desert, and Des chickened out at the last minute but Nikki died.
+- So he ended up in prison in Lima for murdering his wife.
+- I had started to wonder if Des knew what had happened to me with Winston May through friends of his (no idea about the wider story).
+- The last time I saw Des, at Chris and Desa's wedding, he was ashamed and could not look me in the eye.
+- I had just remembered one instance of gang rape in Tottenham in 1989 (so it was probably around 2007 or 2008) so it occurred to me by his reaction to me that he must have known!
+- I guess he knew about *everything*, like they all did.
+- A rare declaration of shame is quite unique in this story, isn't it.
+- He'd be good to talk to, if you haven't already.
 
 ## Israel TT
 
