@@ -229,7 +229,7 @@ function googleTranslateElementInit() {
 - And Chris is my friend, so I don't like it.
 - I explain all this over dinner this evening because it all comes up again - Desa explaining how much she likes Matthew Copeland.
 - Some backstory required.
-- Early on in their relationship, I tell Matthew Copeland that I don't really like Desa very much and I tell him why - she's always putting him down.
+- Early on in their relationship, I tell [Matthew Copeland](../pre-2001/1993.md#matthew-copeland) that I don't really like Desa very much and I tell him why - she's always putting Chris down.
 - We all go to dinner one time, the four of us. I'm guessing this is 2007 when I visit Matthew, but it could have been a lot earlier. They weren't yet married at the time so it may have even been around 2002.
 - We have dinner near the old snooker club (or maybe in a restaurant that replaced the snooker club) in Tottenham Lane opposite the YMCA.
 - We're having dinner, and Matthew declares: *Kate doesn't like you*, to Desa.
