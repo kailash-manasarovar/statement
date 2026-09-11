@@ -19,18 +19,21 @@ function googleTranslateElementInit() {
 - At the time, I assume in my ignorance that it is criminal gangs.
 - I'm meant to.
 
-### Tanya Harding is in reception 
+### Tanya Wilder is in reception 
 
-- One morning, I see Tanya Harding in reception.
+- One morning, I see Tanya Wilder in reception.
 - She is sitting with a bunch of other Americans as if part of a tour group.
 - She looks at me intently but does not say anything.
 - I note this.
-- She does it in exactly the same way the [Naama Levy lookalike looked at me in Bangkok in November 2024](../2024/november.md#a-woman-who-looks-like-naama-levy-is-in-reception), as if there's formal training they both attended.
+- She does it in exactly the same way the [Naama Levy lookalike looked at me in Bangkok in November 2024](../2024/november.md#a-woman-who-looks-like-naama-levy-is-in-reception), as if they've both attended the same formal training course on this.
 - Me and mum met Tanya on the [eclipse tour of 2006 in Egypt](../2001-to-2010/2006.md#total-eclipse-of-the-sun) and I told mum I had seen her in Dublin when I got back to London.
 - Tanya and I had gone to dinner together in Cairo and shared personal stories on sedated rape; and her experience, she said, had been on a dinner date in Italy.
 - I believe that this is where I was first signed up without my knowledge or consent for the CIA's intuitive program whose main goal was to keep an eye on the criminal gangs of Dénia, some of whom have been a major thorn in their side.
-- Mum still has Tanya on her Facebook.
-- I'm interested that Tanya's name is Tanya; rather like Tonia. Coincidence? Or have they been after him all along too? If so, why.
+- Mum still has Tanya on her Facebook. Here she is: 
+
+![Tanya Wilder](../../content/images/tanya-wilder-18.png)
+
+- I'm interested that Tanya's name is Tanya; rather like Tonia. Coincidence? Or have the Americans been after him all along too? If so, why. So interesting. Rich Freed is involved.
 - At the Anantara, I wonder if her popping up like this is a sign from the FBI to tell me they're working on my case, but it's so top secret they can't speak to me directly.
 - Tanya had told us she lived in a town (did she say Langley, I don't think it was that but it was somewhere in Virginia) which I immediately linked to the FBI. 
 - I think I even told my mother this.

@@ -25,6 +25,16 @@
 - He says "cos I like her".
 - I think, fair enough.
 
+#### Brooklyn 99
+
+- I'm obsessed with this show. I love it.
+- I start seeing Rich Freed as Captain Holt. I love Captain Holt so much.
+- I tell Rich Freed about this on WhatsApp in December 2024 at the Spa Samui while I'm being battered online by criminal gangs and agents have taken all the rooms beside mine.
+
+#### Hanuman at Rishikesh
+
+- The couple who lost family in the bombed Air India jet and visit Cork every year and how we got talking.
+
 ### 2021
 
 - While the "Portuguese" man is visiting (Mark right?) I am headhunted for a job with the UN in Fiji.

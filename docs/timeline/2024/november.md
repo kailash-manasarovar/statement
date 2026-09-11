@@ -357,7 +357,7 @@ function googleTranslateElementInit() {
 - I'm coming back from shopping or coffee, or whatever. I did go out every day while I was staying here.
 - As I approach the hotel reception, I see a woman standing there with some others.
 - She stops and stares at me.
-- Later, I realize it is the same way [Tanya Harding stopped and stared at me](../2025/may.md#tanya-harding-is-in-reception) at reception in the Anantara in Dublin in April 2025.
+- Later, I realize it is the same way [Tanya Wilder stopped and stared at me](../2025/may.md#tanya-harding-is-in-reception) at reception in the Anantara in Dublin in April 2025.
 - I cannot figure out what I'm seeing, at all, or why, because Naama is still a hostage in Gaza.
 - I believe my sight is failing from poisons, I'm stressed about kidney damage, and I'm high all the time - although this was from poisons in my toiletries and not drugs, necessarily, but could be.
 - My mind is neither clear nor secure, and I'm extremely anxious all the time from being continually stalked online and in the streets of Bangkok.
