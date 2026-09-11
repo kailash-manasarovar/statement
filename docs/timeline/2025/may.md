@@ -233,13 +233,15 @@ function googleTranslateElementInit() {
 - We're having dinner, and Matthew declares: *Kate doesn't like you*, to Desa.
 - I'm horrified. Why would he do such a thing. He's such a brute.
 - Since then she always brings this story up - I guess it's a giggle for her - I'm embarrassed and I'm reminded how much of a nightmare Matthew always was.
+- She always says how much she likes Matthew.
+- He certainly gave her a good reason for her very obvious dislike of me which I never really figured out properly.
 - So, it comes up again in Luton, and I explain, annoyed, as if I have to, why I don't like people who insult my friends, and she should be happy that Chris has got friends who will defend him this way.
 - She says nothing.
 - I can't figure her out.
 - Another thing she said to me on that day was, "you saved my life" - apparently with regards to a weekend in Scarborough with them all in 2019 (and my head is still ringing from being shouted at - not in a bad way - they all seemed to need to shout instead of talk for the whole weekend).
-- Anyway, I ask her why she's saying that.
-- She doesn't give me an explanation.
-- She also gives me a gift from the second-hand shop she works at. It's a little money purse.
+- I ask her why she says that.
+- She doesn't answer.
+- She also gives me a gift from the second-hand shop she works at that evening; a little money purse - I wonder if it had a tracking device from Adams inside - which I didn't keep.
 
 ### Des and Nikki 
 
