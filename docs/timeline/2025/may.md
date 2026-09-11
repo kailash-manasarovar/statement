@@ -223,14 +223,14 @@ function googleTranslateElementInit() {
 - I'm staying at a hotel in Luton the night before I fly out because the flight is so early.
 - We meet for dinner, drinks, a chat and a walk in the grounds of the hotel.
 - Desa does her usual thing, jokingly telling us she thinks Chris is a psychopath; she always does that.
-- *No, he is a psychopath,* she'll emphasize, and then, *aren't you Chris?* directly to him.
+- *No, he is a psychopath,* she'll emphasize with a chuckle, and then, *aren't you Chris?* directly to him.
 - He never says anything when she does this.
 - In fact, I always found Desa rather unpleasant because of the way she talks to Chris; putting him down all the time.
 - And Chris is my friend, so I don't like it.
 - I explain all this over dinner this evening because it all comes up again - Desa explaining how much she likes Matthew Copeland.
 - Some backstory required.
 - Early on in their relationship, I tell Matthew Copeland that I don't really like Desa very much and I tell him why - she's always putting him down.
-- We all go to dinner one time, the four of us. I'm guessing this is 2007 when I visit Matthew, but it could have been a lot earlier. I can't remember well. They weren't yet married at the time so it may have even been around 2002.
+- We all go to dinner one time, the four of us. I'm guessing this is 2007 when I visit Matthew, but it could have been a lot earlier. They weren't yet married at the time so it may have even been around 2002.
 - We have dinner near the old snooker club (or maybe in a restaurant that replaced the snooker club) in Tottenham Lane opposite the YMCA.
 - We're having dinner, and Matthew declares: *Kate doesn't like you*, to Desa.
 - I'm horrified. Why would he do such a thing. He's such a brute.
@@ -244,6 +244,8 @@ function googleTranslateElementInit() {
 - I ask her why she says that.
 - She doesn't answer.
 - She also gives me a gift from the second-hand shop she works at that evening; a little money purse - I wonder if it had a tracking device from Adams inside - which I didn't keep.
+- As she's giving it me, and I accept it and tell her she shouldn't have, she looks over a Chris and makes a face as if to say, *see? she's taking it*, a communication that was totally inexplicable to me at the time.
+- I just assume she still hates me, like she always has, and is doing weird things because of her hatred.
 
 ### Des and Nikki 
 
