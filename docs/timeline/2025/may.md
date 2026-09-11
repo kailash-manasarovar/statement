@@ -258,6 +258,17 @@ function googleTranslateElementInit() {
 - A rare declaration of shame is quite unique in this story, isn't it.
 - He'd be good to talk to, if you haven't already.
 
+### When they were dating
+
+- Chris met Desa online.
+- He had previously been honey-trapped by a woman online from America who never sent him a photo but he was ready to fly out to Carolina to see her.
+- I know this because it was all going on when I visited him one weekend in Stevenage and we went out clubbing with one of his local mates.
+- He didn't have a photo to show me, and I even spoke to her online and thought it was all very suspicious. 
+- So I wasn't surprised it all went tits up for him.
+- So then he meets Desa. And I'm talking to him about her, and he says the only thing he doesn't like about her is that she's overweight, and he doesn't like fat women.
+- And I'm pretty horrified he would be so ignorant like that, so I automatically quite like Desa before I even met her.
+- When I do meet her I'm amazed because she is obese; so I think Chris must have done the right thing and got out of his ignorance about women's bodies.
+
 ## Israel TT
 
 - I attend a Transforming Touch course in Israel where I'm assisting Steve.
