@@ -243,7 +243,7 @@ function googleTranslateElementInit() {
 - Another thing she said to me on that day was, "you saved my life" - apparently with regards to a weekend in Scarborough I went on with them all in 2019.
 - I ask her why she says that.
 - She doesn't answer.
-- She also gives me a gift from the second-hand shop she works at that evening; a little money purse - I wonder if it had a tracking device from Adams inside - which I left at the hotel.
+- She also gives me a gift from the second-hand shop she works at that evening; a tiny cloth money purse - I wonder if it had a tracking device from Adams inside - which I left at the hotel.
 - As she's giving it to me, and I accept it and tell her she really shouldn't have, she looks over at Chris and makes a face as if to say, *see? she's taking it*, a communication that was totally inexplicable to me at the time.
 - I just assume she still hates me, like she always has, and is doing weird things because of her hatred.
 
@@ -255,25 +255,25 @@ function googleTranslateElementInit() {
 - Anyway, all a bit of a tragedy, they did a lot of drugs over the years, and Nikki found out she had breast cancer, and not thinking clearly they both decided they'd kill themselves in South America.
 - So they went to Chile, went out into the desert, and Des chickened out at the last minute but Nikki died.
 - So he ended up in prison in Lima for murdering his wife.
-- And I had started to wonder if Des knew what had happened to me with Winston May through friends of his (no idea about the wider story).
+- And I had started to wonder if Des knew what had happened to me with Winston May through friends of his (no idea about the wider story at the time).
 - The last time I saw Des, at Chris and Desa's wedding, he was ashamed and could not look me in the eye.
-- I had just remembered one instance of gang rape in Tottenham in 1989 (so it was probably around 2007 or 2008), and I had told everyone about that, so it occurred to me by his reaction to me that he must have known!
-- I guess he knew about *everything*, like they all did.
+- I had just remembered one instance of gang rape in Tottenham in 1989 (so it was probably around 2007 or 2008), and I had told everyone about that, so it occurred to me by his reaction to me that he heard my story from Chris and knew some of the men involved and was ashamed by them.
+- I guess he knew about *everything*, in fact, like they all did.
 - A rare declaration of shame is something unique in this story, isn't it.
 - He'd be good to talk to, if you haven't already.
 
 ### When they were dating
 
 - Chris met Desa online.
-- He had previously been honey-trapped by a woman online from America who never sent him a photo but he was ready to fly out to Carolina to see her.
+- He had previously been honey-trapped by a woman online from America who never sent him a photo but he was ready to fly out to Florida to see her.
 - I know this because it was all going on when I visited him one weekend in Stevenage and we went out clubbing with one of his local mates.
-- He didn't have a photo to show me, and I even spoke to her online and thought it was all very suspicious. 
+- He didn't have a photo of her to show me, and I even spoke to her online and thought it was all very suspicious. 
 - So I wasn't surprised it all went tits up for him.
 - So then he meets Desa. And I'm talking to him about her, and he says the only thing he doesn't like about her is that she's overweight, and he doesn't like fat women, and he's demanded that she lose weight for him.
 - And I'm pretty horrified he would be as ignorant as this, so I automatically quite like Desa before I even met her.
 - When I do meet her I'm amazed because she is obese; so I think Chris must have done the right thing and got out of his ignorance about women's bodies.
 
-### The abomination of desolation leaves participating men open to scamming and blackmail
+### Sedated-rape participating men leave themselves open to scamming and blackmail and worse
 
 - I'll just leave that there with no further explanation.
 - While remembering my poor brother's experience at the same time.
