@@ -284,7 +284,10 @@ function googleTranslateElementInit() {
 - He likes me and I like him back.
 - He's wild and untamed, however, and terribly fierce.
 - Nevertheless, we love each other, and I decide to call him Anthony.
-- Sometimes, it seems like he's very protective over me. One morning I see him chasing an agent on a bike up the road, angrily.
+- Sometimes, it seems like he's very protective over me.
+- He's always chasing the other cats out of the garden, glancing at me as he does, and some nights I can hear him howling as if his wee heart is in torment, poor soul.
+- I think his owner must have died, or something like that, and he's heart broken.
+- One morning he comes out to see me, and we're talking, and an agent on a bike comes by, and he sees her and immediately starts chasing her down the road, angrily. It's very funny.
 - Other times, he's soft and sweet and wants cuddles.
 - One time, I'm giving him cuddles and he's so happy and delighted - he's sitting in my lap in the garden - and it's a bit cold and starts to rain, but Anthony is not going anywhere.
 - He gets terribly cross with me when I say it's time to go inside, and he can bite too and viciously.
