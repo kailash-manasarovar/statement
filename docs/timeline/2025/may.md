@@ -278,6 +278,10 @@ function googleTranslateElementInit() {
 - I'll just leave that there with no further explanation.
 - While remembering my poor brother's experience at the same time.
 
+## Anthony Pussycat 
+
+- wip
+
 ## Israel TT
 
 - I attend a Transforming Touch course in Israel where I'm assisting Steve.

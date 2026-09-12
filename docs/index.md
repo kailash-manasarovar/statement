@@ -98,15 +98,15 @@ However, I am aware of growing international support for my endeavors; and a sol
     - The good people of Dénia know the truth about [the Lopez Cano's mistaken belief in America's gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), and other contentious matters.
     - The Lopez Cano's (and North London's criminal porn gangs) often assist the Americans - not something they'd do if the American's were truly concerned about their criminality.
     - The Americans have been working for decades towards framing my helpers for *all* the Lopez Cano crimes, and kidnapping them was part of that process.
-    - I was helping the Americans with the conspiracy - I was recruited onto the CIA intuitive program in 2006, without my knowledge and utterly non-consensually.
-    - Since 1997, everyone has either believed the biggest lie ever told, or found it very useful  for expanding their criminal enterprises, and the world has gone stark-raving, criminal-porn mad because of it.
+    - I was helping the Americans with this - I was recruited onto the CIA intuitive program in 2006, without my knowledge and utterly non-consensually.
+    - And since 1997, everyone has either believed the biggest lie ever told, or found it very useful for expanding their criminal enterprises, and the world has gone stark-raving, criminal-porn mad in the process.
 - The reason all this must be true is that classes at the conservatory where children are groomed and drugged and put in porn by the serial-killing Lopez Cano gang continue to this day!
 
 ## Background
 
 !!! danger "Crimes committed by teachers and staff at the Tenor Cortis conservatory of music in Dénia, Spain"
     - Mass voyeurism, cyber-stalking, gang-stalking, honey-trapping, sedated spy-cam rape-porn, poisoning and drugging, murder, and staggering levels of sexual violence against women, children, and babies.
-    - The school's website: https://portal.edu.gva.es/conservatoriDénia/.
+    - The school's website: https://portal.edu.gva.es/conservatoridenia/.
 
 ### Porn fatwa
 
@@ -116,9 +116,9 @@ However, I am aware of growing international support for my endeavors; and a sol
 - I have been under constant criminal surveillance since then.
 - In 1997, male friends I trusted got me to the Las Marinas beach for casting purposes.
 - At the same time, the Americans were working on extracting billions from Gaddafi for compensation payouts to Lockerbie family members, of which I am one.
-- Criminal gang members were certain about this very early on - at least three years before I received any money - and used my guaranteed upcoming wealth to persuade more apparently normal men I trusted to sedate and rape me, and add me to the criminal porn archives where a category all my own had started to solidify.
-- The gangs knew where I was to pinpoint precision: where I went, what I was doing, who I talked to, what I was planning, where I worked, and importantly who my criminal porn-subscribing colleagues were.
-- They read everything I wrote, watched everything I did online, attended work meetings, yoga classes, and therapy sessions with me, while keeping a watchful eye on my bank balance.
+- Criminal gang members were certain this was going to happen very early on - at least three years before I received any money - and used my guaranteed upcoming wealth to persuade more apparently normal men I trusted to sedate and rape me, and get their friends to do the same, adding the footage to the criminal porn archives where a category all my own had started to solidify.
+- The gangs knew where I was to pinpoint precision: where I went, what I was doing, who I talked to, what I was planning, where I worked, and importantly who my criminal porn-subscribing colleagues were at work.
+- They read everything I wrote, watched everything I did online, attended work meetings with me, yoga classes, and therapy sessions, while keeping a watchful eye on my bank balance.
 - And they weren't the only ones watching either.
 
 ### Brain-damaged for switcheroo horror-porn
