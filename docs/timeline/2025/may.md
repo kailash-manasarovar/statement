@@ -420,12 +420,13 @@ function googleTranslateElementInit() {
 
 ### Fertility and pregnancy
 
-- A theme throughout the course was fertility and pregnancy; we even had a new born with us, Ruth.
+- A theme running throughout the course was fertility and pregnancy; we even had a nearly new born with us, Ruth.
 - She was gorgeous, her mother was older and single and very inspiring.
-- Another was was desperate to get pregnant, and struggling with that, but there was nothing abnormal about this things.
-- However, I was picking up strong signals about pregnancy from Mrs Wasserman particularly - but also from Steve and Mrs Wasserman's nephew Jonathan.
+- Another woman was desperate to get pregnant, and struggling with that - was she hoping to have an egg of mine too? Her husband did not appear to be her husband when she introduced Steve and I to him.
+- As well as this, I was picking up strong signals about pregnancy from Mrs Wasserman particularly - but also from Steve and Mrs Wasserman's nephew Jonathan.
 - Steve kept telling me how Jonathan has eight children; *eight Katharine, eight!*.
-- It was very clear the idea was an assisted pregnancy, mine specifically, and I started thinking cool, I could get pregnant and have children at my ripe old age, how miraculous and wonderful that would be!
+- It was very clear the idea was an assisted pregnancy, mine specifically, and I started thinking cool, I could get pregnant and have children at my ripe old age, and how miraculous and wonderful that would be!
+- The thought of surrogacy never crossed my mind while all this was being suggested to me.
 - One night at the Wall, Mrs Wasserman asks me what I think of Jonathan her nephew.
 - I say I think he's very nice.
 - She stops, then adds quickly that his wife is very nice too.
@@ -435,7 +436,7 @@ function googleTranslateElementInit() {
 - All of this was hints and suggestions, and was surprising enough that I really didn't fully understand it, so I just watched.
 - Had they already got a viable pregnancy going from one of my eggs they extracted in Dublin at the Anantara?
 - Did Mrs Wasserman's people find out about it and want in?
-- Had Steve already fathered a surrogate baby of mine?
+- Had Steve already fathered a baby of mine?
 
 ### Feeling sick on my return
 
