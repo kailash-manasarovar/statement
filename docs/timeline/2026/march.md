@@ -103,7 +103,7 @@ like light, like answering?
 - I'd happily live here for a while I reckon, it's gorgeous.
 - Can we stay a month or two here please? 
 - I know squirrel will love it.
-- However, on this visit, there seemed to be some already alerted porn-addicts there.
+- However, on this visit, there seemed to be some already alerted porn-addicts there - read salmon mousse activity wherever I have mistaken it.
 - The technician enters my room repeatedly without knocking, knowing I am inside.
 - He makes a silly excuse and snickers when I'm upset about it, then does it again.
 - I tell reception about this and ask the receptionist, who has his name printed on a card at the desk as [*Mr Banga*](../2024/august.md#4), to tell the management about how I found the technician's behavior threatening.
