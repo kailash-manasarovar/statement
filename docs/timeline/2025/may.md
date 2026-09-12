@@ -287,25 +287,29 @@ function googleTranslateElementInit() {
 - Sometimes, it seems like he's very protective over me.
 - He's always chasing the other cats out of the garden, glancing at me as he does, and some nights I can hear him howling as if his wee heart is in torment, poor soul.
 - I think his owner must have died, or something like that, and he's heart broken.
-- One morning he comes out to see me, and we're talking, and an agent on a bike comes by, and he sees her and immediately starts chasing her down the road, angrily. It's very funny.
+- One morning he comes to see me, and we're talking in the front, and an agent on a bike comes by, and he sees her and immediately starts chasing her down the road, angrily. It's very funny.
 - Other times, he's soft and sweet and wants cuddles.
 - One time, I'm giving him cuddles and he's so happy and delighted - he's sitting in my lap in the garden - and it's a bit cold and starts to rain, but Anthony is not going anywhere.
 - He gets terribly cross with me when I say it's time to go inside, and he can bite too and viciously.
 - So we're dancing around the garden a bit while I'm trying to get away. He is funny.
 - He always wants to come inside the house but no-else is allowing it.
-- Another day, he decides he's going to get in the house from an upstairs window, so off he goes, along the fence and onto the roof, and he's making sure I see him doing it too.
+- Another day, he decides he's going to get into the house from an upstairs window, so off he goes, along the fence and onto the roof, and he's making sure I see him doing it too.
 - I'd certainly let him in and make him a nice warm bed, and try not to get bitten too much :)
 
 ## Israel TT
 
-- I attend a Transforming Touch course in Israel where I'm assisting Steve.
-- wip.
+- It's module two of the Transforming Touch course in Jerusalem, Israel.
+- I'm assisting Steve, along with Mrs Wasserman who is the other assistant from Brooklyn.
+- Steve and I are staying in the same hotel just inside the Jaffa Gate in the Old City.
 
 ### Steve gets upset with me
 
-- wip, he's angry at me because of what I said regarding [political views](#stopping-the-intolerable-political-diatribes-at-break-times) in Dublin.
-- And he's been laying into me all day.
-- On the way back to our hotel, Mrs Wasserman, Steve and I are walking and he says something political again, and I say something back.. maybe about suicidal empathy, not sure, and he goes ballistic and walks off.
+- On the first or second morning at breakfast, Steve brings up [what I had said in Dublin](#stopping-the-intolerable-political-diatribes-at-break-times) just a few weeks before.
+- He wants me to clarify on *trans*.
+- I say transvestitism is a fetish.
+- He's speechless with rage and wants to talk about trans-men and things like that but it's such a huge topic and he's already angry so we don't speak about it again.
+- But he's angry with me, and he snipes at me all day.
+- At the end of the day, Mrs Wasserman, Steve and I are walking back and he says something *political* again, and I say something back.. maybe about suicidal empathy, not sure, and he goes ballistic and walks off.
 - Mrs Wasserman and I are dumbfounded!
 
 ### Mrs Wasserman puts up her hands and tells me to stop talking
