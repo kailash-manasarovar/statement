@@ -144,16 +144,16 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ### Gang-stalking
 
-- Intense gang-stalking running concurrently to grooming, sedating, and repeatedly raping a victim for porn is now a requirement; not only to give the victim some explanation for why they are suffering sudden onset anxiety and depression, but also for humiliation content which makes pornographers many more millions.
+- Intense gang-stalking running concurrently to grooming, sedating, and repeatedly raping a victim for porn is now a requirement; not only to give the victim some explanation for why they are suffering sudden onset anxiety and depression, but also for victim-humiliation content which makes pornographers many more millions.
 - I report on other women in the region suffering inexplicable panic attacks and other suspicious symptoms, including my mother when she visited me with my father.
-- In fact, my guess is this community has been brain-damaging women for centuries in order to rape them in macabre ways, and then laugh and point, and undoubtedly the same trauma effects have arisen in all victims historically.
-- So, in order to "explain away" these expected trauma-reactions to a sedated-rape victim, the gangs create incessant and intricate, carefully-choreographed terror-vignettes starring multiple known protagonists that render a victim so anxious she doesn't notice the true inexplicability of the anxiety and depression.
+- My guess is this small community in Spain has been brain-damaging women for centuries in order to rape them in macabre ways, and then laugh and point, and the trauma effects must be well understood
+- So, in order to "explain away" these expected trauma-reactions to a sedated-rape victim, the gangs create incessant and intricate, carefully-choreographed terror-vignettes starring multiple known protagonists that render a victim so anxious she doesn't notice the inexplicability of the anxiety and depression.
 - I detail these daily instances in Dénia of physical stalking by a cast of seemingly hundreds, assisted by pinpoint tracking of my movements via my hacked mobile phones in order to harass me and create anxiety-forming situations with the sole intention of terrorizing me into believing that the extreme anxiety and grievous mental and emotional harm I was suffering, due to repeated sedated rape, had a "logical reason".
-- I assume the gangs expected this anxiety to also mask the toxic physical side-effects arising from constant drugging and poisoning.
+- The gangs rely on the anxiety also masking the toxic physical side-effects arising from constant drugging and poisoning.
 - Back in the UK in July 2024, while the terror was ongoing, I stood as a [candidate for general election](timeline/2024/june.md#volunteers-not-what-they-seem) and was stalked endlessly in exactly the same way by criminal gangs, political parties, and other interested groups in North London.
-- Gang stalking teams from the Metropolitan police even wheeled out [1989's North London rape-gang boss Winston May](timeline/2024/june.md#winston-may) to terrorize me while I was canvassing at a tube station.
+- Gang stalking teams from the Metropolitan police even wheeled out [1989's North London rape-gang boss Winston May](timeline/2024/june.md#winston-may) to terrorize me while I was canvassing at a tube station and I would be very surprised if that event didn't make it onto the porn networks.
 - In [Bali in July 2026](timeline/2026/july.md#loka-yoga), I was lured into attending a yoga retreat which turned out to be a CIA torture chamber whose gang-stalking processes were exactly the same as the criminal gangs of Dénia, including being drugged with intense anxiety-forming substances so that I would struggle to think straight and make good decisions.
-- In fact, in my view, criminal porn-gangs and security services must have attended the same gang-stalking training courses.
+- Criminal porn-gangs and security services must have attended the same gang-stalking training courses.
 
 ### Hallucinogens, aphrodisiacs, brake-fluid, pesticides, and other substances
 
