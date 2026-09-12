@@ -299,7 +299,7 @@ function googleTranslateElementInit() {
 ## Israel TT
 
 - It's module two of the Transforming Touch course in Jerusalem, Israel.
-- I'm assisting Steve, along with Mrs Wasserman who is the other assistant from Brooklyn.
+- I'm assisting Steve, along with Mrs Wasserman from Brooklyn.
 - Steve and I are staying in the same hotel just inside the Jaffa Gate in the Old City.
 
 ### Steve gets upset with me
@@ -307,9 +307,11 @@ function googleTranslateElementInit() {
 - On the first or second morning at breakfast, Steve brings up [what I had said in Dublin](#stopping-the-intolerable-political-diatribes-at-break-times) just a few weeks before.
 - He wants me to clarify on *trans*.
 - I say transvestitism is a fetish.
-- He's speechless with rage and wants to talk about trans-men and things like that but it's such a huge topic and he's already angry so we don't speak about it again.
-- But he's angry with me, and he snipes at me all day.
-- At the end of the day, Mrs Wasserman, Steve and I are walking back and he says something *political* again, and I say something back.. maybe about suicidal empathy, not sure, and he goes ballistic and walks off.
+- He's speechless with rage, and says *what about trans men* but it's such a huge topic and he's furious already so we don't speak about it again.
+- But he remains angry with me, and he snipes at me all day.
+- At lunch he says something I find quite threatening about [Kathleen Love](../2011-to-2020/2020.md#kathleen-love), a woman who used to assist Steve; that she's disappeared, and he thinks she's dead.
+- He gives me this information utterly non-contextually outside of being angry with me; i.e. no run up, and no further thoughts once said.
+- At the end of the day, Mrs Wasserman, Steve and I are walking back towards the hotel and he says something *political* again, and I say something back.. maybe about suicidal empathy, not sure, and he goes ballistic and storms off.
 - Mrs Wasserman and I are dumbfounded!
 
 ### Mrs Wasserman puts up her hands and tells me to stop talking
@@ -326,6 +328,7 @@ function googleTranslateElementInit() {
 - So I sigh - I'm used to this bizarre indifference to absolute horror - and instead I try to tell her what I want to say another way without provoking alarm.
 - So I tell her that "because of the things that have been happening to me over the last few years", without giving any examples, "I'm very confident about the future and doing something about the child abuse epidemic".
 - Mrs Wasserman tells me she's going to speak to Steve.
+- Back at my hotel, I'm online with the *hackers* asking what happened to Kathleen Love. I get information suggesting she's living in her van, and had a violent boyfriend. I start to wonder if Steve might have been her violent boyfriend.
 
 ### Steve's suddenly inexplicably OK
 
