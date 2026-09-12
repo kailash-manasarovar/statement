@@ -118,17 +118,18 @@ like light, like answering?
 
 ### Transforming Touch consultations
 
-- Every Thursday Steve does consultations with all his students over the world
-- I have been attending for years.
-- This month, while I'm in Bandol, they seem to be bullying Leslie and signalling to me and turning on me, a lot, and I believe this is the last time I ever went because it was unpleasant - I could be wrong, I might have gone another couple of times in Lourdes,  but not many more.
-- I realize they had started making themselves known to me at that time, and not in a good way either.
-- Obviously this got a bit fever pitched in Lourdes too.
+- Every Thursday Steve does an online consultation with all his students over the world.
+- I have been attending these for years.
+- This month, while I'm in Bandol, they seem to be bullying Leslie and signalling to me and turning on me too, a lot, and I believe this is the last time I ever went because it was so unpleasant.
+- I realize they had started revealing their true nature to me at that time, purposefully, and not in a good way - or maybe there is no good way in their playbooks.
+- Obviously this activity became rather fever pitched in Lourdes too.
 - Anyway, there was a woman in the group about to have her baby around this time.
-- She spoke up every time for a few months, she cried and stuff, and the last time I attended (had she had the baby.. or was about to) she did the healing at the end.
-- I think she'd had the baby by then... but we didn't get to see it or anything.
+- She spoke up every time for a few months from about seven months pregnant, and would cry and be emotional, and the last time I attended (I think she'd had the baby by then) she did the healing at the end.
+- She didn't bring the baby to consultation while I was there.
 - Was she a surrogate? Is this totally paranoid? I guess we're gonna find out thank God.
-- I thought she looked a bit like the woman on *Heather's* Google profile pic at that time and wondered if they were the same people.
-- Was this mine and Steve's baby? He lived just down the road and was always saying how he was coming round to see it once she'd had it.
+- I thought she looked a bit like the woman on *Heather's* Google profile pic and wondered if they were the same people.
+- Was this mine and Steve's baby? He lived just down the road from her, and was always saying how he was coming round to see it once she'd had it.
+- UGH! God help them.
 
 ### Thalazur Saint Jean de Luz
 

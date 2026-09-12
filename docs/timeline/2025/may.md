@@ -423,7 +423,14 @@ function googleTranslateElementInit() {
 - A theme running throughout the course was fertility and pregnancy; we even had a nearly new born with us, Ruth.
 - She was gorgeous, her mother was older and single and very inspiring.
 - Another woman was desperate to get pregnant, and struggling with that - was she hoping to have an egg of mine too? Her husband did not appear to be her husband when she introduced Steve and I to him.
-- As well as this, I was picking up strong signals about pregnancy from Mrs Wasserman particularly - but also from Steve and Mrs Wasserman's nephew Jonathan.
+
+!!! tip "A curious moment"
+    - This woman had asked Steve for some extra help about not being able to get pregnant.
+    - She stayed back one evening after everyone had gone and for over an hour Steve gave her a personal session, with Mrs Wasserman standing by.
+    - Mrs Wasserman shut me out of the house while it was going on, and I was upset by that.
+    - And then I heard Steve say, *is that Katharine?*, to Mrs Wasserman while I was standing at the door wondering what to do, and then, *of course KATHARINE (emphasized) can be here*.
+
+- As well as all this, I was picking up strong signals about pregnancy from Mrs Wasserman particularly - but also from Steve and Mrs Wasserman's nephew Jonathan.
 - Steve kept telling me how Jonathan has eight children; *eight Katharine, eight!*.
 - It was very clear the idea was an assisted pregnancy, mine specifically, and I started thinking cool, I could get pregnant and have children at my ripe old age, and how miraculous and wonderful that would be!
 - The thought of surrogacy never crossed my mind while all this was being suggested to me.
