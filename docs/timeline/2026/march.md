@@ -130,6 +130,7 @@ like light, like answering?
 - I thought she looked a bit like the woman on *Heather's* Google profile pic and wondered if they were the same people.
 - Was this mine and Steve's baby? He lived just down the road from her, and was always saying how he was coming round to see it once she'd had it.
 - UGH! God help them.
+- By the time I get round to a full editorial of this month, we'll know for sure. Long before probably.
 
 ### Thalazur Saint Jean de Luz
 
