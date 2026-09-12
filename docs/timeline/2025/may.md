@@ -337,11 +337,12 @@ function googleTranslateElementInit() {
 
 - The next time I see Steve, it's like nothing happened.
 - He's completely fine and doesn't mention anything about the matter ever again.
+- And he stops swiping at me too.
 - When I see Mrs Wasserman again, I ask her what she said to him.
 - She said she didn't need to say anything to him, he was just OK when she spoke to him again.
 - She said she had no idea why or how.
 - It was unusual.
-- Did my *hackers*, Americans obviously - I did think they were Israeli for a long time, have a word with him later on telling him he's risking me starting getting suspicious?
+- Did my *hackers*, Americans obviously - I did think they were Israeli for a long time, although I expect everyone was listening in anyhow - have a word with him later on telling him he needs to be nice to me as I'm going to start getting suspicious?
 
 ### Alma
 
