@@ -158,7 +158,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 ### Hallucinogens, aphrodisiacs, brake-fluid, pesticides, and other substances
 
 - From February 2022 to October 2025, I was drugged continuously with hallucinogens and other substances.
-- - Unusually elevated eye-pressure readings were reported as soon as I returned to Dénia in 2022, and [sudden onset pre-glaucoma symptoms](timeline/2024/november.md#pre-glaucoma-diagnosis) prove constant drug-taking as my pupils were near-permanently dilated, for years.
+- Unusually elevated eye-pressure readings were reported as soon as I returned to Dénia in 2022, and [sudden onset pre-glaucoma symptoms](timeline/2024/november.md#pre-glaucoma-diagnosis) prove constant drug-taking as my pupils were near-permanently dilated, for years.
 - My brain had already been damaged by poisoning over many years to give me a perceptual stroke-like injury whereby I'm unable to recognize objects out of context.
 - This ensured that a group of vastly different-looking men - dressing the same, using a familiar voice, and performing the same actions - I thought was just one man.
 - The constant hallucinogen-dosing ensured the efficacy of [the switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) while it was going on, and a continued inability to understand it afterwards.
