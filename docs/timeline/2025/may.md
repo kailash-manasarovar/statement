@@ -336,8 +336,11 @@ function googleTranslateElementInit() {
 ### Steve's suddenly inexplicably OK
 
 - The next time I see Steve, it's like nothing happened.
-- I ask Mrs Wasserman what happened when she spoke to him.
-- She said she didn't say anything to him, he was just OK, and she didn't know why or how.
+- He's completely fine and doesn't mention anything about the matter ever again.
+- When I see Mrs Wasserman again, I ask her what she said to him.
+- She said she didn't need to say anything to him, he was just OK when she spoke to him again.
+- She said she had no idea why or how.
+- It was unusual.
 
 ### Alma
 
