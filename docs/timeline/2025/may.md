@@ -361,16 +361,18 @@ function googleTranslateElementInit() {
 
 ### Alma goes upstairs 
 
-- Alma is so upset by what I told her, that she takes time out from the afternoon group sessions and goes upstairs.
+- Alma is so upset by what I told her that she takes time out from the afternoon group practical sessions and goes upstairs.
 - Mrs Wasserman asks me where Alma is.
-- I tell her that I told her my story after she had asked about my life, and it had upset her.
+- I tell her that I told her my story after she had asked about my life, and it had upset her so much she didn't want to practice.
 - Mrs Wasserman goes upstairs and sits with Alma.
 
 ### Alma is crying
 
-- Later, Alma is crying and being consoled by one of the other women.
-- Steve tells me they're doing it for him.. and I wondered at the time if this means he's surrounded by unhelpful spies all the time too.
-- Today I wonder if Mrs Wasserman told Alma something that upset her even more than my story.
+- At the end of the day, Alma is crying and being consoled by one of the other women.
+- I'm sitting with them at the table but I don't know or ask what's going on for anyone.
+- Later, when everyone has left, Steve tells me they're doing it for him, to make him think something or other.
+- It sounded a bit paranoid but I also wondered at the time if this meant he's surrounded by unhelpful spies all the time just like I am.
+- Today, I wonder if while they were upstairs Mrs Wasserman told Alma something that upset her even more than our conversation did.
 
 ### Steve falls
 
