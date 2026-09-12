@@ -306,7 +306,7 @@ function googleTranslateElementInit() {
 
 - On the first morning at breakfast, Steve shares some sensitive information with me.
 - He wants to know what I would do in his position.
-- He tells me that Roisin (a course participant and assistant) fell in love with another course attendee and there was something contentious about the affair - details of which I don't remember - but nevertheless such relationships are forbidden.
+- He tells me that Roisin (a course participant and assistant) fell in love with another course attendee and there was something contentious about the affair - details of which I don't remember - but regardless such relationships are forbidden.
 - I tell Steve that I would find a way to reconcile everyone.
 - *Oh, you're kind,* he says a little surprised.
 - He then tells me they already decided to fire her, and this has already happened, and he's now got Roisin on WhatsApp giving him a hard time constantly, lying about stuff, and it all sounds a bit fraught.
@@ -314,8 +314,8 @@ function googleTranslateElementInit() {
 - I knew Roisin from [the first course I attended in Cork](../2011-to-2020/2020.md#transforming-touch) in February 2020.
 - I had no issue with Roisin at all but I did notice her energetic boundaries were miniscule, I could practically mind-read with her. 
 - She had expressed a desire to move to Spain with her husband one time, and I told her not to, that it was a bad idea as it is dangerous for foreign women and children with porn-gangs now operating freely in schools.
-- I had written to her and Yvonne too, a couple of times I was in a panic expecting to be murdered at any moment, explaining that I was being drugged and poisoned by criminal gangs in Spain who were murdering women.
-- I think Roisin was a genuine tax-paying civilian - i.e. non-spy but super intuitive - and when Steve brought up Kathleen Love at lunch (an old assistant he was apparently having a romantic relationship with), I did feel that sacking Roisin was hypocritical of him.
+- I had written to her and Yvonne too, a couple of times I was in a panic expecting to be murdered at any moment, explaining that I was being drugged and poisoned by criminal gangs in Dénia, Spain who were murdering women.
+- I think Roisin was a genuine tax-paying civilian - i.e. non-spy but super intuitive - and when Steve brought up Kathleen Love at lunch the next day - an old assistant he was apparently having a romantic relationship with - I did feel that sacking Roisin was hypocritical of him.
 - And today, as I write this section, I have to wonder why he needed me to know about it.
 
 ### Steve gets upset with me
