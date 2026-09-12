@@ -173,7 +173,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ### Attempted murder by poisoning
 
-- I'm told there have been seven attempts at ending my life through poisoning. 
+- I'm told there have been seven serious attempts at ending my life through poisoning. 
 - From February 2022 and earlier in Dénia, I was drugged and poisoned without my knowledge; [in class at the conservatory](timeline/2023/january.md#serious-poisoning-at-chamber-music-class), at home via tampered-with water mains and air systems, by pesticides sprayed in my car and onto all my clothes and belongings, in my hotel rooms and wherever criminals gain illicit access for adding poisons and drugs to my personal items such as food, water, makeup and bathroom products - possibly still happening in September 2026 (and nothing to do with the Lopez Cano's anymore) - and in the street during numerous distract-and-drug events.
 - On Halloween night in 2023, [I was poisoned with brake-fluid or anti-freeze](timeline/2023/november.md#starting-my-new-job) and expected to sustain a serious injury or death.
 - At the end of October 2024, I was supposed to die by poisoning with brake-fluid, anti-freeze, pesticides, and methanol [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-kill), doused over all my belongings, and added to my bathroom products for absorption through the skin.
