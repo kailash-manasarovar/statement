@@ -302,9 +302,25 @@ function googleTranslateElementInit() {
 - I'm assisting Steve, along with Mrs Wasserman from Brooklyn.
 - Steve and I are staying in the same hotel just inside the Jaffa Gate in the Old City.
 
+### Roisin
+
+- On the first morning at breakfast, Steve shares some sensitive information with me.
+- He wants to know what I would do in his position.
+- He tells me that Roisin (a course participant and assistant) fell in love with another course attendee and there was something contentious about the affair - details of which I don't remember - but nevertheless such relationships are forbidden.
+- I tell Steve that I would find a way to reconcile everyone.
+- *Oh, you're kind,* he says a little surprised.
+- He tells me they've decided they're firing her instead, and this has already happened and he's got Roisin on WhatsApp giving him a hard time constantly, and it all sounds a bit fraught.
+- I'm a little surprised to be honest.
+- I knew Roisin from [the first course I attended in Cork](../2011-to-2020/2020.md#transforming-touch) in February 2020.
+- I had no issue with Roisin at all but I did notice her energetic boundaries were miniscule, I could practically mind read with her. 
+- She had expressed a desire to move to Spain with her husband one time, and I told her that was a bad idea as it is dangerous for foreign women and children with sex-gangs operating freely in schools and murdering women.
+- I had written to her and Yvonne too, a couple of time I was in a panic expecting to be murdered at any moment.
+- I explained to both Roisin and Yvonne in writing at that time I was being drugged and poisoned by criminal gangs in Spain who were murdering women.
+- I think Roisin was a genuine tax-paying civilian; i.e. non-spy but super intuitive.
+
 ### Steve gets upset with me
 
-- On the first or second morning at breakfast, Steve brings up [what I had said in Dublin](#stopping-the-intolerable-political-diatribes-at-break-times) just a few weeks before.
+- On the second morning at breakfast, Steve brings up [what I had said in Dublin](#stopping-the-intolerable-political-diatribes-at-break-times) just a few weeks before.
 - He wants me to clarify on *trans*.
 - I say transvestitism is a fetish.
 - He's speechless with rage, and says *what about trans men* but it's such a huge topic and he's furious already so we don't speak about it again.
@@ -402,10 +418,15 @@ function googleTranslateElementInit() {
 - I'm very impressed.
 - When Steve and I are talking later on about these things, he tells me that yeah, Mrs Wasserman is Jewish royalty.
 
-### Signs and signals of fertility and pregnancy
+### Fertility and pregnancy
 
-- I was getting this from Mrs Wasserman, her nephew Jonathan, and even Steve throughout the course.
-- It was surprising, I didn't understand it though so I just watched.
+- A theme throughout the course was fertility and pregnancy, we even had a new born with us, Ruth.
+
+ and I was picking up signals from Mrs Wasserman particularly - but Steve also and Mrs Wasserman's nephew Jonathan - about the idea of assisted pregnancies, mine specifically.
+- One night at the Wall, Mrs Wasserman asks me what I think of Jonathan her nephew. I say he's very nice. She stops, then adds quickly that his wife is very nice too. I say I'm sure she is. And Mrs Wasserman weeps. 
+- I read all this as "when the investigation is over", and everyone can speak plainly, I might consider having babies and perhaps Jonathan would be a sperm donor, and I was not at all against the idea.
+- It was surprising though, and I didn't fully understand it, so I just watched.
+
 - I think now it's possible they got a viable pregnancy going from one of my eggs they extracted in Dublin at the Anantara... I wonder if it is this one that Steve is the father of because squirrel was still a free man in Spain.
 - Anyway. We'll soon find out for sure.
 - Steve kept saying, repeatedly to me, and markedly too, *Jonathan has 8 children you know*, so I don't feel that he was necessarily in full agreement with however they were deciding without my knowledge or consent - and had just already done in Dublin - to chop me up and divvy me out.
@@ -417,12 +438,6 @@ function googleTranslateElementInit() {
 - Nevertheless, whenever they turned this online manipulation off, I still felt like I wanted to be a mother, and I thought that was marvelously ironic.
 - Could the mousses have set this up for themselves, essentially? Knowing from 2007 that I survive poisoning?
 - More coming up on this for this session, and September as I go through my todo: list.
-
-#### from next batches May 2025
-
-1. Babies and pregnancy signals in Israel module 2 May 2025 and how I read it as "when the investigation is over" and everyone can speak plainly, I might consider having babies.
-1. Mrs Wasserman asks me what I think of Jonathan her nephew at the Wall. I say he's very nice. She stops, then adds quickly, and his wife is very nice too. I say I'm sure she is. Mrs Wasserman weeps. Did she think that was an agreement from me?
-1. May 2025, Steve tells me they're sacking Rosheen. Apparently she fell in love with another TT practitioner from overseas (I guess online and then she joined for a session - I think it must be the Australian woman who came in Jan 2025) and this is NOT allowed. Steve is disparaging about her, calls her a liar. I knew Rosheen from the first course in Cork and we had spoken a lot. I had no issue with Rosheen but noticed her boundaries were miniscule, I could practically mind read with her. She had expressed a desire to move to Spain with her husband one time and I told her that was a bad idea as it is dangerous for foreign women with sex-gangs operating freely in schools. I had written to her and Yvonne too in a panic (not the first time) in September 2024 (I get these dates wrong a lot, confusing 26, 25, 24.. please note that) explaining I was being targeted by criminal gangs in Spain when it was all kicking off big time - photos of murdered women etc, poisoning threats. They all knew.
 
 ### Feeling sick on my return
 
