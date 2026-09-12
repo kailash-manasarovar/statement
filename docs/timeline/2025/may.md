@@ -394,11 +394,12 @@ function googleTranslateElementInit() {
 ### Mrs Wasserman is the Rebbe's niece
 
 - Steve and I are at dinner in Mamilla one evening with Mrs Wasserman.
-- Over dinner they start talking about kabbalah, and Chabad - I'm actually counting the omer at that time using the Chabad website to do so.
-- Steve (feigns?) ignorance by seeming to only know about Kabbalah from Madonna.
-- I tell everyone I had written to the Rebbe twice.
+- Over dinner they start talking about Kabbalah, and the Chabad movement - I'm actually counting the omer at that time using the Chabad website to help me.
+- Steve seems to only know about the Kabbalah from Madonna.
+- I tell them I had written to the Rebbe twice, probably in 2012 sometime.
 - Mrs Wasserman tell us she's his niece.
-- I gasp! I'm very impressed.
+- I gasp!
+- I'm very impressed.
 - When Steve and I are talking later on about these things, he tells me that yeah, Mrs Wasserman is Jewish royalty.
 
 ### Signs and signals of fertility and pregnancy
