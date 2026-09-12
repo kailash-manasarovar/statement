@@ -316,7 +316,7 @@ function googleTranslateElementInit() {
 - She had expressed a desire to move to Spain with her husband one time, and I told her that was a bad idea as it is dangerous for foreign women and children with sex-gangs operating freely in schools and murdering women.
 - I had written to her and Yvonne too, a couple of time I was in a panic expecting to be murdered at any moment.
 - I explained to both Roisin and Yvonne in writing at that time I was being drugged and poisoned by criminal gangs in Spain who were murdering women.
-- I think Roisin was a genuine tax-paying civilian; i.e. non-spy but super intuitive.
+- I think Roisin was a genuine tax-paying civilian - i.e. non-spy but super intuitive - and when Steve brought up Kathleen Love at lunch (an old assistant he was apparently having a relationship with), I did feel that sacking Roisin was hypocritical of him.
 
 ### Steve gets upset with me
 
