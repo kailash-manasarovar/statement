@@ -117,7 +117,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 - In 1997, male friends I trusted got me to the Las Marinas beach for casting purposes.
 - At the same time, the Americans were working on extracting billions from Gaddafi for compensation payouts to Lockerbie family members, of which I am one.
 - Criminal gang members were certain this was going to happen very early on - at least three years before I received any money - and used my guaranteed upcoming wealth to persuade more apparently normal men I trusted to sedate and rape me, and get their friends to do the same, adding the footage to the criminal porn archives where a category all my own had started to solidify.
-- The gangs knew where I was to pinpoint precision: where I went, what I was doing, who I talked to, what I was planning, where I worked, and importantly who my criminal porn-subscribing colleagues were at work.
+- The gangs knew where I was to pinpoint precision: where I went, what I was doing, who I spoke to, what I was planning, where I worked, and importantly who my criminal porn-subscribing colleagues were at work.
 - They read everything I wrote, watched everything I did online, attended work meetings with me, yoga classes, and therapy sessions, while keeping a watchful eye on my bank balance.
 - And they weren't the only ones watching either.
 
@@ -127,9 +127,9 @@ However, I am aware of growing international support for my endeavors; and a sol
 - Dénia - as the entire criminal underworld and any serious pornographer knows - has been the world's criminal porn capital for over half a century.
 - The porn-gangs there produce the worst sort of porn we all hear about, but usually only men like to watch: bestiality, incest, snuff, pedophilia, and baby-rape.
 - For nearly twenty years, whenever I was living in the town, I was slowly poisoned by deadly herbs so that I would lose the ability to recognize objects out of context; a stroke-like symptom.
-- This was so that between November 2022 and June 2023, the gangs could set up a [*switcheroo* horror-porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed live at the conservatory, in and around the town, and in my apartment without my knowledge, where seven very different-looking men turned up to teach a class at the music school, children in attendance, and I would see them as one man only.
+- This was so that between November 2022 and June 2023, the gangs could set up a [*switcheroo* horror-porn show](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) filmed live at the conservatory, in and around the town, and in my apartment without my knowledge, where seven very different-looking men turned up to teach a class at the music school, children in attendance, and I would see them as the same man.
 - The scam also required intense hallucinogenic intake to work effectively and I was drugged  at my home before class, and topped up as I entered the music school by teachers, staff, and students.
-- They also intended that I would invite the "trumpet teacher" to my home - a man they had manipulated me into finding sexually attractive - where they planned to live-stream sessions of *switcheroo* porn through the 24-7 spy-cam network, me somewhat conscious.
+- They also intended that I would invite the "trumpet teacher" to my home - a man they had manipulated me into finding sexually attractive - where they planned to live-stream sessions of *switcheroo* porn through the 24-7 spy-cam network, me somewhat conscious and consenting.
 - This did not happen as the man's rather pathetic romantic-advance (*oh, I'm in town on Monday afternoons*) gave me a PTSD reaction like no other.
 - The body always knows.
 
