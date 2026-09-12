@@ -101,12 +101,6 @@
 
 1. Paul's description of how he caught Diana as she fell in Camden High Street!
 
-### May 2025
-
-1. Babies and pregnancy signals in Israel module 2 May 2025 and how I read it as "when the investigation is over" and everyone can speak plainly, I might consider having babies.
-1. Mrs Wasserman asks me what I think of Jonathan her nephew at the Wall. I say he's very nice. She stops, then adds quickly, and his wife is very nice too. I say I'm sure she is. Mrs Wasserman weeps. Did she think that was an agreement from me?
-1. May 2025, Steve tells me they're sacking Rosheen. Apparently she fell in love with another TT practitioner from overseas (I guess online and then she joined for a session - I think it must be the Australian woman who came in Jan 2025) and this is NOT allowed. Steve is disparaging about her, calls her a liar. I knew Rosheen from the first course in Cork and we had spoken a lot. I had no issue with Rosheen but noticed her boundaries were miniscule, I could practically mind read with her. She had expressed a desire to move to Spain with her husband one time and I told her that was a bad idea as it is dangerous for foreign women with sex-gangs operating freely in schools. I had written to her and Yvonne too in a panic (not the first time) in September 2024 (I get these dates wrong a lot, confusing 26, 25, 24.. please note that) explaining I was being targeted by criminal gangs in Spain when it was all kicking off big time - photos of murdered women etc, poisoning threats. They all knew.
-
 ### July 2025
 
 1. Hip/groin started to complain in Cauterets in August. I thought I had twinged it while trekking. Over next few months, while walking it complained a lot but I kept walking on it, something intensely, like all day just walk walk walk... never had an issue with that before. I think the botch (probably not a botch if you let the patient know they have to take A LOT OF REST for it to heal) might have happened in Cauterets, then weakened further in Bangkok, then pop!

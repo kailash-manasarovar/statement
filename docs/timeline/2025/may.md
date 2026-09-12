@@ -280,7 +280,18 @@ function googleTranslateElementInit() {
 
 ## Anthony Pussycat 
 
-- wip
+- A cat comes round to visit 31 sometimes.
+- He likes me and I like him back.
+- He's wild and untamed, however, and terribly fierce.
+- Nevertheless, we love each other, and I decide to call him Anthony.
+- Sometimes, it seems like he's very protective over me. One morning I see him chasing an agent on a bike up the road, angrily.
+- Other times, he's soft and sweet and wants cuddles.
+- One time, I'm giving him cuddles and he's so happy and delighted - he's sitting in my lap in the garden - and it's a bit cold and starts to rain, but Anthony is not going anywhere.
+- He gets terribly cross with me when I say it's time to go inside, and he can bite too and viciously.
+- So we're dancing around the garden a bit while I'm trying to get away. He is funny.
+- He always wants to come inside the house but no-else is allowing it.
+- Another day, he decides he's going to get in the house from an upstairs window, so off he goes, along the fence and onto the roof, and he's making sure I see him doing it too.
+- I'd certainly let him in and make him a nice warm bed, and try not to get bitten too much :)
 
 ## Israel TT
 
@@ -383,6 +394,12 @@ function googleTranslateElementInit() {
 - Nevertheless, whenever they turned this online manipulation off, I still felt like I wanted to be a mother, and I thought that was marvelously ironic.
 - Could the mousses have set this up for themselves, essentially? Knowing from 2007 that I survive poisoning?
 - More coming up on this for this session, and September as I go through my todo: list.
+
+#### from next batches May 2025
+
+1. Babies and pregnancy signals in Israel module 2 May 2025 and how I read it as "when the investigation is over" and everyone can speak plainly, I might consider having babies.
+1. Mrs Wasserman asks me what I think of Jonathan her nephew at the Wall. I say he's very nice. She stops, then adds quickly, and his wife is very nice too. I say I'm sure she is. Mrs Wasserman weeps. Did she think that was an agreement from me?
+1. May 2025, Steve tells me they're sacking Rosheen. Apparently she fell in love with another TT practitioner from overseas (I guess online and then she joined for a session - I think it must be the Australian woman who came in Jan 2025) and this is NOT allowed. Steve is disparaging about her, calls her a liar. I knew Rosheen from the first course in Cork and we had spoken a lot. I had no issue with Rosheen but noticed her boundaries were miniscule, I could practically mind read with her. She had expressed a desire to move to Spain with her husband one time and I told her that was a bad idea as it is dangerous for foreign women with sex-gangs operating freely in schools. I had written to her and Yvonne too in a panic (not the first time) in September 2024 (I get these dates wrong a lot, confusing 26, 25, 24.. please note that) explaining I was being targeted by criminal gangs in Spain when it was all kicking off big time - photos of murdered women etc, poisoning threats. They all knew.
 
 ### Feeling sick on my return
 
