@@ -300,7 +300,7 @@ function googleTranslateElementInit() {
 
 - It's module two of the Transforming Touch course in Jerusalem, Israel.
 - I'm assisting Steve, along with Mrs Wasserman from Brooklyn.
-- Steve and I are staying in the same hotel just inside the Jaffa Gate in the Old City.
+- Steve and I are staying in the same hotel just inside Jaffa Gate in the Old City.
 
 ### Roisin
 
@@ -420,24 +420,22 @@ function googleTranslateElementInit() {
 
 ### Fertility and pregnancy
 
-- A theme throughout the course was fertility and pregnancy, we even had a new born with us, Ruth.
-
- and I was picking up signals from Mrs Wasserman particularly - but Steve also and Mrs Wasserman's nephew Jonathan - about the idea of assisted pregnancies, mine specifically.
-- One night at the Wall, Mrs Wasserman asks me what I think of Jonathan her nephew. I say he's very nice. She stops, then adds quickly that his wife is very nice too. I say I'm sure she is. And Mrs Wasserman weeps. 
-- I read all this as "when the investigation is over", and everyone can speak plainly, I might consider having babies and perhaps Jonathan would be a sperm donor, and I was not at all against the idea.
-- It was surprising though, and I didn't fully understand it, so I just watched.
-
-- I think now it's possible they got a viable pregnancy going from one of my eggs they extracted in Dublin at the Anantara... I wonder if it is this one that Steve is the father of because squirrel was still a free man in Spain.
-- Anyway. We'll soon find out for sure.
-- Steve kept saying, repeatedly to me, and markedly too, *Jonathan has 8 children you know*, so I don't feel that he was necessarily in full agreement with however they were deciding without my knowledge or consent - and had just already done in Dublin - to chop me up and divvy me out.
-- There was a small baby Ruth attending, who was gorgeous, her mother was older and single and very inspiring actually.
-- Another one of the women was desperate to get pregnant, and nothing was happening, but this all seemed normal to me.
-- However, the signals with regards to my potential motherhood were very clear to me; hints and signs, the way spies do.
-- So I ignored them.
-- But it did get me thinking, and indeed since summer 2024 I have been desirous of offspring but I always believed that was the porn-gang manipulation tech demo to describe how women are tricked into producing the product for the baby-rape industrialists.
-- Nevertheless, whenever they turned this online manipulation off, I still felt like I wanted to be a mother, and I thought that was marvelously ironic.
-- Could the mousses have set this up for themselves, essentially? Knowing from 2007 that I survive poisoning?
-- More coming up on this for this session, and September as I go through my todo: list.
+- A theme throughout the course was fertility and pregnancy; we even had a new born with us, Ruth.
+- She was gorgeous, her mother was older and single and very inspiring.
+- Another was was desperate to get pregnant, and struggling with that, but there was nothing abnormal about this things.
+- However, I was picking up strong signals about pregnancy from Mrs Wasserman particularly - but also from Steve and Mrs Wasserman's nephew Jonathan.
+- Steve kept telling me how Jonathan has eight children; *eight Katharine, eight!*.
+- It was very clear the idea was an assisted pregnancy, mine specifically, and I started thinking cool, I could get pregnant and have children at my ripe old age, how miraculous and wonderful that would be!
+- One night at the Wall, Mrs Wasserman asks me what I think of Jonathan her nephew.
+- I say I think he's very nice.
+- She stops, then adds quickly that his wife is very nice too.
+- I say I'm sure she is.
+- And Mrs Wasserman weeps. 
+- I read all this as "when the criminal investigation is over", and everyone can speak plainly, I might consider having babies and perhaps Jonathan could be a sperm donor, and I was not at all against the idea.
+- All of this was hints and suggestions, and was surprising enough that I really didn't fully understand it, so I just watched.
+- Had they already got a viable pregnancy going from one of my eggs they extracted in Dublin at the Anantara?
+- Did Mrs Wasserman's people find out about it and want in?
+- Had Steve already fathered a surrogate baby of mine?
 
 ### Feeling sick on my return
 
