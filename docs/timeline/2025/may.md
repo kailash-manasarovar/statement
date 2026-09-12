@@ -440,5 +440,9 @@ function googleTranslateElementInit() {
 
 ### Feeling sick on my return
 
-- I throw up in the street.
-- Steve was pretty unwell too in Jerusalem.
+- I was unwell in Jerusalem for this trip; very constipated (I now know that's a mousse-technique to weaken people) and I was feeling nauseated a lot.
+- Fortunately, I discovered the juice bar.
+- Steve was unwell too and had bad diarrhea one night.
+- When I get home, I'm still feeling unwell and I throw up in the street in Muswell Hill one morning.
+- It was completely yellow.
+- Hmm. Was the surrogate suffering morning sickness?
