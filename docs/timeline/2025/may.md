@@ -376,10 +376,10 @@ function googleTranslateElementInit() {
 
 ### Steve falls
 
-- One night, Steve and I are out walking; I think we're heading for the Wall.
-- Steve says, come this way and starts heading to New Gate to enter the old city that way.
-- At that moment, a cockroach is running around my feet.
-- The way the cockroach is running around my feet makes me think that we should not go the New Gate way.
+- One night, Steve and I are out walking in Jerusalem, heading for the Wall.
+- Steve says, come this way and starts heading to New Gate to enter the Old City that way instead of Jaffa Gate.
+- At that moment, a cockroach starts running around my feet in an unusual way.
+- The way the cockroach is running around my feet - it seems to be trying to push me back somehow - makes me think that we should not go the New Gate way.
 - I tell Steve that I think we should go in via Jaffa Gate instead.
 - He says, no, no, it's fine, let's go to New Gate.
 - The cockroach is still running around my feet, I'm not kidding it was very peculiar.
