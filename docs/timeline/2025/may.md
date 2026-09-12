@@ -355,16 +355,16 @@ function googleTranslateElementInit() {
 - I'm amazed, because this is the first time ANYONE! has reacted normally to what's been going on for me.
 - I'm surrounded by totally unhelpful people, all the time, and it was somewhat inexplicable to me until I realized they are either spies instructed to not care for sinister reasons, or are involved somehow and hiding something.
 - Her reaction is so powerful, and so healing, it prompts me to [write again to the police and the Baroness](june.md#writing-to-the-baroness-again) when I'm on detox in a few weeks time in Devon.
-- The second time someone reacts normally to my story is nearly a year later, in April 2026, on another TT course I'm attending as a student in Dublin.
-- This is really interesting because this lady was also a spy, and yet they allowed her to do TT shares with me online, so they must have realized by then how damning their indifference is.
+- The second time someone reacts normally to my experiences is nearly a year later, in April 2026, on another TT course I'm attending as a student in Dublin.
+- This is really interesting because this lady was also a spy, and yet they allowed her to do TT shares with me online, so they must have realized by then how damning their indifference has been.
 - There has not yet been a third time.
 
 ### Alma goes upstairs 
 
-- My story has upset Alma so much that she has to take time out from the group sessions.
-- She goes upstairs.
-- Mrs Wasserman asks me where Alma is, at which point I tell her that I told her my story after she had asked about my life, and it upset her.
-- Mrs Wasserman goes upstairs and sits for some time with Alma.
+- Alma is so upset by what I told her, that she takes time out from the afternoon group sessions and goes upstairs.
+- Mrs Wasserman asks me where Alma is.
+- I tell her that I told her my story after she had asked about my life, and it had upset her.
+- Mrs Wasserman goes upstairs and sits with Alma.
 
 ### Alma is crying
 
