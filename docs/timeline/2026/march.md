@@ -116,6 +116,20 @@ like light, like answering?
 - Do you think men are just like... yeh, this is great, come on everyone, let's rape our mothers, wives, sisters, daughters, mate's girlfriends, children, babies etc... oh yeah, let's use the pets too... hehe... and we'll get the local postman to deliver them drugs so they'll never bother questioning us they'll be so high... and these men fail to notice how the world is literally about to end because of their pathetic actions.
 - No, in August 2026 after everything that's happened, I believe this sort of thing is organized by the mousses so that I wouldn't get comfortable anywhere, or sidetracked - I think I looked up rentals a few times in the town online as it was so nice there - so that my trajectory would continue to egg-extraction in Dublin.
 
+### Transforming Touch consultations
+
+- Every Thursday Steve does consultations with all his students over the world
+- I have been attending for years.
+- This month, while I'm in Bandol, they seem to be bullying Leslie and signalling to me and turning on me, a lot, and I believe this is the last time I ever went because it was unpleasant - I could be wrong, I might have gone another couple of times in Lourdes,  but not many more.
+- I realize they had started making themselves known to me at that time, and not in a good way either.
+- Obviously this got a bit fever pitched in Lourdes too.
+- Anyway, there was a woman in the group about to have her baby around this time.
+- She spoke up every time for a few months, she cried and stuff, and the last time I attended (had she had the baby.. or was about to) she did the healing at the end.
+- I think she'd had the baby by then... but we didn't get to see it or anything.
+- Was she a surrogate? Is this totally paranoid? I guess we're gonna find out thank God.
+- I thought she looked a bit like the woman on *Heather's* Google profile pic at that time and wondered if they were the same people.
+- Was this mine and Steve's baby? He lived just down the road and was always saying how he was coming round to see it once she'd had it.
+
 ### Thalazur Saint Jean de Luz
 
 - I'm just wondering about the Thalazur because I used to visit their hotel in Saint Jean de Luz regularly and I wonder if there had been any "date nights" on those visits.

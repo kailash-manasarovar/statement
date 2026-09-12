@@ -377,7 +377,7 @@ function googleTranslateElementInit() {
 
 ### Alma goes upstairs 
 
-- Alma is so upset by what I told her that she takes time out from the afternoon group practical sessions and goes upstairs.
+- Alma is so upset by what I told her that she takes time out from the afternoon practical sessions and goes upstairs.
 - Mrs Wasserman asks me where Alma is.
 - I tell her that I told her my story after she had asked about my life, and it had upset her so much she didn't want to practice.
 - Mrs Wasserman goes upstairs and sits with Alma.
