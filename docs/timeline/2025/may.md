@@ -317,14 +317,15 @@ function googleTranslateElementInit() {
 ### Mrs Wasserman puts up her hands and tells me to stop talking
 
 - So Mrs Wasserman and I are sitting next to the Spanish house, trying to figure out what happened to Steve.
-- I'm explain that I'm worried about people who think that sterilizing children is OK, and how they might be working with children, and I tell her I'm worried about Steve getting in trouble because there's *always* a time limit on child abuse.
+- I tell her what happened at breakfast, and I explain that I am indeed worried about people who think that sterilizing children is OK, and how they might be working with children.
+- I tell her I'm worried about Steve getting in trouble because there's *always* a time limit on child abuse.
 - She doesn't disagree.
 - In context with our conversation, I start to tell her about the unresolved horrors that I'm living with day to day; about how I fought the Spanish porn-gangs, how they've set up porn studios in schools in Spain, etc,
 - And she shouts *STOP!* and puts her hand up.
 - "Don't speak!", she orders.
 - I don't understand her reaction but don't say anything.
 - So we're talking again about Steve and what's happened, and I have to explain some of the things that have been going on again, and she reacts in exactly the same way.
-- She says: *because of the work we're doing, I'm very sensitive, and it's too much*... I hadn't told her anything, did she know already what I was about to say?
+- She says: *because of the work we're doing, I'm very sensitive, and it's too much*... I wasn't able to tell her anything much at all, did she know already what I was about to say?
 - So I sigh - I'm used to a bizarre indifference to absolute horror - and instead I try to tell her what I want to say another way without provoking alarm.
 - So I tell her that "because of the things that have been happening to me over the last few years", without giving any examples, "I'm extremely confident about the future and doing something about the child abuse epidemic".
 - Mrs Wasserman tells me she's going to speak to Steve.
