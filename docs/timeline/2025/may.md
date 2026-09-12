@@ -369,10 +369,10 @@ function googleTranslateElementInit() {
 ### Alma is crying
 
 - At the end of the day, Alma is crying and being consoled by one of the other women.
-- I'm sitting with them at the table but I don't know or ask what's going on for anyone.
-- Later, when everyone has left, Steve tells me they're doing it for him, to make him think something or other.
-- It sounded a bit paranoid but I also wondered at the time if this meant he's surrounded by unhelpful spies all the time just like I am.
-- Today, I wonder if while they were upstairs Mrs Wasserman told Alma something that upset her even more than our conversation did.
+- I'm sitting with them at the table but I don't know or ask what's going on.
+- Later, when everyone has left, Steve tells me they were doing it for him, to make him think something or other.
+- It sounded a bit paranoid but I also wondered at the time if this meant he's surrounded by unhelpful spies all the time, just like I am.
+- Today, I wonder if while they were upstairs Mrs Wasserman told Alma something that upset her even more than our conversation at lunch.
 
 ### Steve falls
 
