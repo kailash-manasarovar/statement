@@ -135,13 +135,12 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ### Hazel Smith tries to murder me by poisoning in 2007
 
-- British serial killers living safely in Dénia targeted me [directly in 2007](timeline/2001-to-2010/2007.md#hazel-smith).
-- It took me a long while to figure out exactly why they did so.
-- Hazel Smith had been tasked with poisoning me by the Americans who had met me the week before at a Kabbalah conference in Barcelona.
+- British serial killers living safely in Dénia targeted me [directly in 2007](timeline/2001-to-2010/2007.md#hazel-smith) and it took a long while to figure out why.
+- Hazel Smith had been tasked with poisoning me by the Americans I had met the week before at a Kabbalah conference in Barcelona.
 - I survived.
-- I don't believe Hazel and others realized the implications of this; but I'm certain my future helpers did.
-- Hazel and Sandra Smith - well known British honey-trappers and serial-killers - are connected to the Americans by the Lopez Cano's and North London's criminal porn distributors, Adams.
-- I expect the American interest made everyone suspicious of me in Dénia.
+- I don't believe Hazel and others realized the implications of this at the time; but I'm certain my future helpers did.
+- Hazel and Sandra Smith - well known British honey-trappers and serial-killers - are connected to the Americans through the Lopez Cano's, and North London's criminal porn distributors, Adams.
+- I expect American interest made everyone suspicious of me in Dénia.
 
 ### Gang-stalking
 
