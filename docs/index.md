@@ -158,29 +158,29 @@ However, I am aware of growing international support for my endeavors; and a sol
 ### Hallucinogens, aphrodisiacs, brake-fluid, pesticides, and other substances
 
 - From February 2022 to October 2025, I was drugged continuously with hallucinogens and other substances.
+- - Unusually elevated eye-pressure readings were reported as soon as I returned to Dénia in 2022, and [sudden onset pre-glaucoma symptoms](timeline/2024/november.md#pre-glaucoma-diagnosis) prove constant drug-taking as my pupils were near-permanently dilated, for years.
 - My brain had already been damaged by poisoning over many years to give me a perceptual stroke-like injury whereby I'm unable to recognize objects out of context.
-- This ensured that a group of vastly different-looking men - dressing the same, using the same voice (only siblings amongst them speak), and performing the same actions - I confused as the same one man.
+- This ensured that a group of vastly different-looking men - dressing the same, using a familiar voice, and performing the same actions - I thought was just one man.
 - The constant hallucinogen-dosing ensured the efficacy of [the switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) while it was going on, and a continued inability to understand it afterwards.
-- The hallucinogens were also used to exaggerate all emotional content; specifically terror, confusion and anxiety resulting from constant gang-stalking, and intense and overwhelming sexual arousal resulting from aphrodisiac intake coupled with online manipulation from hacked devices.
-- My view is that the hallucinogens, along with sedatives and *happy pills*, were also used to keep my mind in a confused state so that I failed to notice the obvious signs of sedating-events when they happened.
-- As soon as I had a period of continued clarity, the memories of those unusual events returned, and I detail them in this statement's timeline.
-- [Sudden onset pre-glaucoma symptoms](timeline/2024/november.md#pre-glaucoma-diagnosis) point toward constant drug-taking as my pupils would have been near-permanently dilated, for years.
-- Unusually elevated eye-pressure readings were reported as soon as I returned to Dénia in 2022.
+- The hallucinogens also exaggerated all emotional content; specifically terror, confusion and anxiety resulting from constant gang-stalking, and intense and overwhelming sexual arousal resulting from aphrodisiac intake coupled with online manipulation from hacked devices.
+- My view is that the hallucinogens, along with sedatives and *happy pills*, were also used to keep my mind in a confused state so that I failed to notice the obvious signs of sedating-events when they happened; just like alcohol would have when I was a child.
+- As soon as I had a period of continued clarity, memories of those unusual events returned, and I am reporting them in this statement's timeline.
 - Whatever they gave me to invoke timed and overwhelming sexual-arousal was extremely effective and, given it always seemed to come on around lunchtimes - porn-addict showtime - I wonder if my neighbors popped in to add those substances to my lunch items while I was at the conservatory in the mornings.
-- I believe that from around April to December 2023 I was also given some "physical performance" related substances as my yoga practice improved in miraculous ways, for just those months! (Curiously, something similar had happened to my body in August-September 1989 while I was in the clutches of the North London rape-gangs.)
-- I felt physically twenty-years younger for a short period and I have to wonder if those feelgood emotions were intended as preparation for the planned post-switcheroo, faux-relationship-leading-to-marriage honey-trap - resulting in sudden death and inheritance.
+- I believe that from around April-to-December 2023 I was also given some "physical performance" related substances as my yoga practice improved in miraculous ways, for just those months! (Curiously, something similar had happened to my body in August-September 1989 while I was in the clutches of the North London rape-gangs.)
+- I felt physically twenty-years younger for a short period and I have to wonder if those feelgood emotions were intended as preparation for the planned post-switcheroo, faux-relationship-leading-to-marriage honey-trap - and my subsequent sudden death for inheritance purposes.
 - Alongside all this, the gangs were poisoning me repeatedly with brake-fluid, antifreeze, pesticides, and similarly deadly substances.
 - It's not clear why they would continuously risk the life of their live-streaming, sex-slave porn-star other than that they are murderously insane and their hatred of women makes the caliphate look like pussycats.
-- I was drugged and poisoned without my knowledge; [in class at the conservatory](timeline/2023/january.md#serious-poisoning-at-chamber-music-class), at home via tampered-with water mains and air systems, in my car (sprayed/misted onto surfaces) and onto all my belongings before I moved them to London, in my hotel rooms and wherever criminals gained illicit access for adding poisons and drugs to my personal items such as food, water, makeup and bathroom products - the most recent egregious example of this occurring in [July 2025 in Lourdes](timeline/2025/july.md#lourdes) - and in the street during numerous distract-and-drug events.
+
+### Attempted murder by poisoning
+
+- I'm told there have been seven attempts at ending my life through poisoning over the last years. 
+- I suspect it's many more than that.
+- I was drugged and poisoned without my knowledge; [in class at the conservatory](timeline/2023/january.md#serious-poisoning-at-chamber-music-class), at home via tampered-with water mains and air systems, in my car (sprayed/misted onto surfaces) and onto all my belongings before I moved them to London, in my hotel rooms and wherever criminals gained illicit access for adding poisons and drugs to my personal items such as food, water, makeup and bathroom products and in the street during numerous distract-and-drug events.
 - On Halloween night in 2023, [I was poisoned with brake-fluid or anti-freeze](timeline/2023/november.md#starting-my-new-job) and expected to sustain a serious injury or death at that time.
 - At the end of October 2024, I was supposed to die by poisoning with brake-fluid, anti-freeze, methanol or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-kill), doused over all my belongings, and added to my bathroom products for absorption through the skin.
-- The porn-gangs and *all* their subscribing audiences, from lengthy experience, were absolutely certain of my demise and their freedom to murder a victim without consequence.
-- I sustained an injury to my right kidney which might now just be scarring (time of writing). 
-- My eyesight was severely affected while being poisoned.
-- Something I was ingesting thinned my bones and I had three repeated rib fractures at an already weakened area over the switcheroo period and on the run up to the [Bali horror-porn events](timeline/2024/may.md#bali).
-- This continues to bother me for some reason; especially when having to shift all my belongings which I have to do fairly regularly as a homeless person.
-- I lost a great deal of my mental capacity and cognitive skills, and I found my ability to play chess - previously exceptional - totally obliterated.
-- I suspect this was very intentional, and possibly in answer to specific requests.
+- The Lopez Cano gang tried again to murder me with digitalis and other substances in [July 2025 in Lourdes](timeline/2025/july.md#lourdes) on order from the Americans and the UN.
+- In June 2026, the Americans tried once again to [murder me by poison in Tibet at Everest Base Camp](timeline/2026/june.md#kailash-team-who-dun-it) and whatever they used was so toxic I nearly went blind and I suffered intense fatigue for weeks.
+- Previously, Hazel Smith tried to [murder me by poisoning in 2007](timeline/2001-to-2010/2007.md#hazel-tries-to-kill-me), and I wonder if perhaps Patrick Evers in Holland too had tried and failed in the year 2000 when I ended up in hospital with blood poisoning.
 
 ### Sedated-rape
 
