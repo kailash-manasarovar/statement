@@ -180,7 +180,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 - At the end of October 2024, I was supposed to die by poisoning with brake-fluid, anti-freeze, methanol or similar, [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-kill), doused over all my belongings, and added to my bathroom products for absorption through the skin.
 - The Lopez Cano gang tried again to murder me with digitalis and other substances in [July 2025 in Lourdes](timeline/2025/july.md#lourdes) on order from the Americans and the UN.
 - In June 2026, the Americans tried once again to [murder me by poison in Tibet at Everest Base Camp](timeline/2026/june.md#kailash-team-who-dun-it) and whatever they used was so toxic I nearly went blind and I suffered intense fatigue for weeks.
-- Previously, Hazel Smith tried to [murder me by poisoning in 2007](timeline/2001-to-2010/2007.md#hazel-tries-to-kill-me), and I wonder if perhaps Patrick Evers in Holland too had tried and failed in the year 2000 when I ended up in hospital with blood poisoning.
+- Previously, Hazel Smith tried to [murder me by poisoning in 2007](timeline/2001-to-2010/2007.md#hazel-tries-to-kill-me), and I wonder if perhaps Patrick Evers - a man I had met in Mallorca - had tried and failed in the year 2000 when I ended up in hospital in Amsterdam with blood poisoning.
 
 ### Sedated-rape
 
