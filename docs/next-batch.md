@@ -4,13 +4,6 @@
 
 ## TODO: list
 
-### 2013
-
-1. After I write and publish my book, The Liar, Rich Freed's dad follows me on an early Twitter account I set up to promote it. The dad, or Rich's brother maybe, one of them, is playing polo (please look this up if you skimmed over it first time) in his profile pic. I never met his dad. I told Rich about this because it was bit weird tbf. He said nothing.
-
-1. Rich Freed and I do a re-birthing session with *the* Stella in Koh Phangan. She is ice cold towards me. I mention this online in Bali in July 2026. Crickets. Every time I mentioned Richard Freed, it's like there's a collective gulp.
-1. Same trip to Thailand, Rich and I are having something to eat at the spa, chatting, I'm making corrections to The Liar after having read Stephen King's On Writing. I mention briefly the "yoga teacher" in Rishikesh (meaning Jitendra Das) and Rich says, *Oh you mean the rapist!* and it's so incongruous and shocking actually - I never said he was a rapist to anyone - I laugh nervously. He was leaking a little here and there, wasn't he.
-
 ### 2014
 
 - Mousse activity on the Tube with Domingo. Someone, a woman, opening her mouth wide in a sarcastic shock face at him. He has his back to me. I can see her. Warning? It worked. From that moment I really found him despicable... but was that the intention, i.e. no warning, part of the twisted choreography? The fact that Domingo is an inside man is just blowing my mind. Did everyone know? How did he get away with it? Are they all great chums? Of course they are. That's the point. They're all great chums apart from the ones who weren't involved. But this begs the question, how did they manage to exert such power over their neighbors? Did the mousses step in to sort anyone out who complained? Is that it? Is that why the locals were poisoned and murdered too? Did he go for me (and my dad, mother, and brother) as power play... knowing the Lockerbie connection and other stuff too? Total insanity.
