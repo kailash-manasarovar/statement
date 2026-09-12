@@ -341,6 +341,7 @@ function googleTranslateElementInit() {
 - She said she didn't need to say anything to him, he was just OK when she spoke to him again.
 - She said she had no idea why or how.
 - It was unusual.
+- Did my *hackers*, Americans obviously - I did think they were Israeli for a long time, have a word with him later on telling him he's risking me starting getting suspicious?
 
 ### Alma
 
