@@ -8,6 +8,10 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Detox
+
+- wip
+
 ## Murdered by the gypsies in Madrid
 
 - I meet a man whose mother was likely murdered by gypsies in Madrid for her jewels.
@@ -23,6 +27,10 @@ function googleTranslateElementInit() {
 ![The hymn](../../content/images/the-hymn.jpeg)
 
 - TODO:
+
+## Writing to the Baroness, again
+
+- wip
 
 ## Snout or world-saving lucky-frog-missus
 

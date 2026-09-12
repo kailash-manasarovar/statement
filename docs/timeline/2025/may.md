@@ -350,11 +350,13 @@ function googleTranslateElementInit() {
 - She asks me about my life.
 - I tell her what's been going on for me.
 - She is utterly horrified, I see tears in her eyes.
-- She's determined to help me, *you must be able to do something*, she's really upset.
+- She's determined to help me, *you must be able to do something*, she says.
+- She's really upset.
 - I'm amazed, because this is the first time ANYONE! has reacted normally to what's been going on for me.
 - I'm surrounded by totally unhelpful people, all the time, and it was somewhat inexplicable to me until I realized they are either spies instructed to not care for sinister reasons, or are involved somehow and hiding something.
-- Her reaction is so powerful, and so healing, it prompts me to write again to the police and the Baroness when I'm on detox in a few weeks time in Devon.
-- The second time someone reacts normally to my story is in April 2026 on another TT course I'm attending as a student in Dublin, and this is really interesting because this lady *was* a spy, and they *allowed* her to do TT shares with me online, so they must have realized by then how damning their indifference is.
+- Her reaction is so powerful, and so healing, it prompts me to [write again to the police and the Baroness](june.md#writing-to-the-baroness-again) when I'm on detox in a few weeks time in Devon.
+- The second time someone reacts normally to my story is nearly a year later, in April 2026, on another TT course I'm attending as a student in Dublin.
+- This is really interesting because this lady was also a spy, and yet they allowed her to do TT shares with me online, so they must have realized by then how damning their indifference is.
 - There has not yet been a third time.
 
 ### Alma goes upstairs 
