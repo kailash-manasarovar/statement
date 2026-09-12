@@ -4,6 +4,10 @@
 
 ## TODO: list
 
+### 1999
+
+- Mallorca - Patrick - Amsterdam - first poisoning attempt?
+
 ### 2013
 
 1. After I write and publish my book, The Liar, Rich Freed's dad follows me on an early Twitter account I set up to promote it. The dad, or Rich's brother maybe, one of them, is playing polo (please look this up if you skimmed over it first time) in his profile pic. I never met his dad. I told Rich about this because it was bit weird tbf. He said nothing.

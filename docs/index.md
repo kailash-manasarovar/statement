@@ -40,17 +40,17 @@ At this point, security services lost their minds completely. They decided that 
 
 Thus one criminal gang replaced another and I continued to be sedated after going to bed but for a different purpose, and I have the surgical injuries and scars to prove it.
 
-In October 2025 just after Michaelmas, memories from sedated rape started to return and I realized [something extraordinary about the Tenor Cortis conservatory of Dénia, a government-run music school](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars*.
+In October 2025 just after Michaelmas, memories from sedated rape started to return and I realized [something extraordinary about the Tenor Cortis conservatory of Dénia, a government-run music school](timeline/2025/october.md#thunderbolt-clarity) and how it doubles as a criminal porn-studio using teachers, staff, and children as its actors - with unwitting students as its drugged and brain-damaged *porn-stars*.
 
-Eight different men had posed as a single chamber music teacher at the conservatory for [Spain's internationally renowned switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and I had been so successfully brain-damaged, I believed they were all the same man.
+Eight different men had posed as a single chamber music teacher, employed by the Spanish government, for [Spain's internationally renowned switcheroo-porn scam](crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) and I had been so successfully brain-damaged by then, I believed they were all the same man.
 
 ![Novel cover](content/images/the-novel/cover.webp)
 
 I remain homeless and essentially stateless (with no access to healthcare, police services, privacy, normal things like that..). My family threw me under the bus for the porn gangs years ago. I have symptoms of brain-damage which feel a bit like I've landed on another planet and I don't know how anything works. 
 
-I am unable to work because I continue to be recognized by random men all over the world and even my colleagues and managers were subscribing to my sex-slave switcheroo sedated rape-porn stardom!
+I am unable to work because I continue to be recognized by random men all over the world and even my colleagues and managers were subscribing to my sex-slave, switcheroo, sedated-rape-porn stardom!
 
-However, I am aware of growing international support for my endeavors; and some solid, quiet, ancient and powerful faith in me; and I'm truly glad there is some sanity out there.
+However, I am aware of growing international support for my endeavors; and a solid, quiet, ancient and powerful faith within me that I've started to share; and I'm truly glad there is some sanity out there.
 
 ## A friend on the inside, and his gang
 
@@ -76,30 +76,31 @@ However, I am aware of growing international support for my endeavors; and some 
 - I was so high and out of my mind on drugs and poisons, I understood nothing of this until the last few weeks (time of writing September 2026)!
 - In July 2025, the CIA, with help from the UN, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
 - They did it in secret - yet wanted me to know about it for some reason - and then lied to me incessantly about the nature of it, online and in choreographed stalking events internationally since then.
-- My helpers have been in Israel ever since - in slavery or incarceration of some sort I assume - which is what they were doing in Spain alongside the Lopez Cano's for Adams's North-London-based international, criminal porn enterprise.
-- The UN raid had been in planning for some time (and coincides with a [reported mass arrest on 22 July](https://www.europapress.es/nacional/noticia-liberadas-162-mujeres-victimas-red-explotacion-sexual-varias-provincias-espana-20250722093030.html)), but it appears the UN required confirmation that I survive poisoning before they agreed to kidnap these people.
-- This is [why they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, to prepare me for the weeks ahead, and to lay foundations for yet another CIA blame-game targeting French and Italian Catholics.
-- And this is why [the Americans together with the UN tasked their good friends the Lopez Cano's with poisoning me at Lourdes](timeline/2025/july.md#poisoning-ordered-by-the-mousses) - so that I'd still think I was in danger from them alone - an extraordinary admission of criminal involvement, if not full management of what's going on in Denia, and adds to [my assertion that the Lopez Cano's really have no clue at all about who didn't pay them back in the 90s](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known).
+- My helpers have been in Israel ever since - in slavery or incarceration of some sort I assume - doing the same work they were doing in Spain for Adams's North-London-based international, criminal porn enterprise.
+- The UN raid had been in planning for some time (it coincides with a [reported mass arrest on 22 July](https://www.europapress.es/nacional/noticia-liberadas-162-mujeres-victimas-red-explotacion-sexual-varias-provincias-espana-20250722093030.html) in Spain and, the record will show, a viable pregnancy from an egg the CIA stole from me in Dublin in April 2025).
+- However, the UN required further confirmation that I survive poisoning before they agreed to kidnap these people.
+- So [they put a baby ram in with Bernadette](timeline/2025/july.md#the-baby-ram) at Lourdes, to prepare me for the weeks ahead, and to lay foundations for yet another CIA blame-game targeting French and Italian Catholics.
+- And then, amazingly, [the Americans together with the UN tasked their good friends the Lopez Cano's with poisoning me at Lourdes](timeline/2025/july.md#poisoning-ordered-by-the-mousses) - so that I'd still think I was in danger from them alone - an extraordinary admission of criminal involvement, if not full management of what's going on in Dénia, and adds to [my assertion that the Lopez Cano's really have no clue at all about who didn't pay them back in the 90s](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known).
 
 ![Super-hero squirrel](content/images/super-hero-squirrel.png)
 
-- After [seeing the woman poisoner from Dénia](timeline/2025/july.md#poisoning-ordered-by-the-mousses) in reception at my hotel, and then reading "Hola I Sorry" on my mobile before poisoning, and throughout my stay in Cauterets after surviving poisoning, the CIA gave me a lot of false information online - and in the same way they had said "Hola I Sorry".
+- After [seeing the woman poisoner from Dénia](timeline/2025/july.md#poisoning-ordered-by-the-mousses) in reception at my hotel, and then reading "Hola I Sorry" on my mobile before poisoning, and throughout my stay in Cauterets after surviving poisoning, the CIA gave me a lot of false information online - much of it delivered in the same way they had said "Hola I Sorry".
 - They told me my friend was going to be rescued and taken to Israel and they even gave me a date and time for it - it was a Monday that's all I can remember, I was up in the high mountains that day or the day after.
 - And, online, they were pretending to me they were Israeli, and that only Israelis were involved in rescuing him and him alone.
 - I understand why the Americans were lying to me about Israel; they set Israel up to take the blame for nearly all their evil doing, unless there's a stronger or more politically favorable option(s) to hand.
 - But why lie to me about the nature of the extraction? What did they hope to gain? How were they planning on manipulating the story around favorably to themselves? And why did they take twenty-two people instead of just the one they told me about?
 - My view is that once they had gotten what they psychotically (it has to be agreed) wanted from myself and my dear friend, they were planning to murder us all. Yes, the whole of lot of us. 
-- Certainly the way they have treated me, an apparent friend, over these last years - while doing **NOTHING** about the real crimes - makes our murder look very much like their certainty.
+- Certainly the way they have treated me, an apparent friend, over these last years - while doing **NOTHING** about the hideous criminality in Dénia - makes our murder look very much like their certainty.
 - I also believe that my helpers had been targeted by the CIA from as early as 1997, to take the blame for what the Lopez Cano's never got paid for, and my presence in Dénia had always been a huge part of that since *casting* in October 1997 with Matt Pompeus.
-- On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice and I hope it gets even more pathological because *that* appears to be my true party trick), and I even saw [a switcheroo-porn trumpet teacher for the first time consciously](crimes/protagonists/vidal-sastre.md#7-the-pangolin), as well as a female gang member I have never seen before but it seems any online hypno-tech communication is memorable.
-- All this *must* prove the following:
-    - The Lopez Cano's (and North London criminal porn gangs) often assist the Americans - not something you'd do if you were exercising rampant vengeance against them, and some in the region are indeed (see the Walmart reference later on).
-    - The good people of Dénia know the truth about [the Lopez Cano's mistaken belief in the American's gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), and other contentious matters.
-    - The Americans have been working for decades towards framing my helpers for the original crime.
-    - I was helping them with that, without my knowledge and utterly non-consensually.
-    - The Americans tasked the Lopez Cano's with the original crime and set them up to believe it was the British all this time.
-    - Since then, everyone has believed the biggest lie in two thousand years and the world has gone stark-raving, criminal-porn mad because of it.
-- The reason all these things must be true is that classes at the conservatory where children are groomed and drugged and put in porn by the serial-killing, Lopez Cano gang, teachers and staff continue to this day!
+- On my recent visit to Israel in July-August 2026, I realized my errors of judgement on the situation, and how innocent I am when I think about people (which is so nice and I hope it gets even more pathological because *that* is my true party trick), and I even saw [a switcheroo-porn trumpet teacher for the first time consciously](crimes/protagonists/vidal-sastre.md#7-the-pangolin), as well as a female gang member I have never seen before but it seems any online hypno-tech communication is memorable.
+- All this proves the following:
+    - The Americans tasked the Lopez Cano's with the original crime in 1997 and set them up so that they would believe the instruction came from the British alone.
+    - The good people of Dénia know the truth about [the Lopez Cano's mistaken belief in America's gargantuan lie](how-will-it-end/theories.md#the-biggest-lie-the-world-has-ever-known), and other contentious matters.
+    - The Lopez Cano's (and North London's criminal porn gangs) often assist the Americans - not something they'd do if the American's were truly concerned about their criminality.
+    - The Americans have been working for decades towards framing my helpers for *all* the Lopez Cano crimes, and kidnapping them was part of that process.
+    - I was helping the Americans with the conspiracy - I was recruited onto the CIA intuitive program in 2006, without my knowledge and utterly non-consensually.
+    - Since 1997, everyone has either believed the biggest lie ever told, or found it very useful  for expanding their criminal enterprises, and the world has gone stark-raving, criminal-porn mad because of it.
+- The reason all this must be true is that classes at the conservatory where children are groomed and drugged and put in porn by the serial-killing Lopez Cano gang continue to this day!
 
 ## Background
 
