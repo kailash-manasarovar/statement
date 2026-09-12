@@ -311,24 +311,26 @@ function googleTranslateElementInit() {
 - But he remains angry with me, and he snipes at me all day.
 - At lunch he says something I find quite threatening about [Kathleen Love](../2011-to-2020/2020.md#kathleen-love), a woman who used to assist Steve; that she's disappeared, and he thinks she's dead.
 - He gives me this information utterly non-contextually outside of being angry with me; i.e. no run up, and no further thoughts once said.
-- At the end of the day, Mrs Wasserman, Steve and I are walking back towards the hotel and he says something *political* again, and I say something back.. maybe about suicidal empathy, not sure, and he goes ballistic and storms off.
+- At the end of the day, Mrs Wasserman, Steve and I are walking back towards the hotel and he says something *political* again, and I say something back.. maybe about suicidal empathy, not sure.. and he goes ballistic and storms off.
 - Mrs Wasserman and I are dumbfounded!
 
 ### Mrs Wasserman puts up her hands and tells me to stop talking
 
-- We're sitting next to the Spanish house, wondering what happened.
-- I'm explaining a little bit about how I worry that people who think that sterilizing children is OK are working with children and I'm worried about Steve getting in trouble.
-- I tell her there's *always* a time limit on child abuse.
+- So Mrs Wasserman and I are sitting next to the Spanish house, trying to figure out what happened to Steve.
+- I'm explain that I'm worried about people who think that sterilizing children is OK, and how they might be working with children, and I tell her I'm worried about Steve getting in trouble because there's *always* a time limit on child abuse.
 - She doesn't disagree.
-- In context with our chat, I start to tell her about how I fought the Spanish porn-gangs, etc, etc...
-- And she shouts *STOP* and puts her hand up.
-- "Don't speak", she orders.
-- So we talk a bit again, and I have to explain some of the things that have been going on as part of the chat, and she reacts in exactly the same way.
-- She says: *because of the work we're doing, I'm very sensitive, and it's too much*... I hadn't told her anything, did she know already what I was going to say?
-- So I sigh - I'm used to this bizarre indifference to absolute horror - and instead I try to tell her what I want to say another way without provoking alarm.
-- So I tell her that "because of the things that have been happening to me over the last few years", without giving any examples, "I'm very confident about the future and doing something about the child abuse epidemic".
+- In context with our conversation, I start to tell her about the unresolved horrors that I'm living with day to day; about how I fought the Spanish porn-gangs, how they've set up porn studios in schools in Spain, etc,
+- And she shouts *STOP!* and puts her hand up.
+- "Don't speak!", she orders.
+- I don't understand her reaction but don't say anything.
+- So we're talking again about Steve and what's happened, and I have to explain some of the things that have been going on again, and she reacts in exactly the same way.
+- She says: *because of the work we're doing, I'm very sensitive, and it's too much*... I hadn't told her anything, did she know already what I was about to say?
+- So I sigh - I'm used to a bizarre indifference to absolute horror - and instead I try to tell her what I want to say another way without provoking alarm.
+- So I tell her that "because of the things that have been happening to me over the last few years", without giving any examples, "I'm extremely confident about the future and doing something about the child abuse epidemic".
 - Mrs Wasserman tells me she's going to speak to Steve.
-- Back at my hotel, I'm online with the *hackers* asking what happened to Kathleen Love. I get information suggesting she's living in her van, and had a violent boyfriend. I start to wonder if Steve might have been her violent boyfriend.
+- Back at my hotel, I'm online with the *hackers* and I ask them what happened to Kathleen Love. 
+- I get information suggesting she's living in her van, and she had a violent boyfriend. 
+- I start to wonder if Steve might have been her violent boyfriend.
 
 ### Steve's suddenly inexplicably OK
 
