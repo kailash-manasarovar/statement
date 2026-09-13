@@ -646,7 +646,7 @@ function googleTranslateElementInit() {
 - "Irene".
 - I immediately look her up on Google: *Irene, ceramics artist, Valencia*... 
 - And there she is.
-- Except she is about 50 now: [Irene Molina Pascual](https://alfarim.es/coneix-nos).
+- Except she is about 50 now: [Irene Molina Pascual](https://alfarim.es/).
 - There is absolutely no doubt in my mind. 
 - This is the woman I saw as a 30 year old, or younger, in photos posted on my hacked Google search in July 2023 while I was trying to figure out what was going on.
 - The woman who was very obviously being filmed sexually without her knowledge, and later exploited in some way with the spy-cam photography.

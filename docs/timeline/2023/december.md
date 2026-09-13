@@ -466,7 +466,7 @@ function googleTranslateElementInit() {
 
 [![Relaxing her nervous system](../../content/tweets/december-2023/relaxing-nervous-system.png)](https://x.com/1FRGVN/status/1740889587545751848)
 
-- This is [Transformational Touch](https://www.austinattach.com/), and trauma-therapy terminology in general.
+- This is [Transformational Touch](https://transformingtouch.com/), and trauma-therapy terminology in general.
 - We had spoken previously in the kitchen.
 - She told me she was Finnish and had been at the center for months.
 - She said she had been feeling extremely miserable, that the other women were horrible, and that I had cheered her up.

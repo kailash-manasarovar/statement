@@ -955,7 +955,7 @@ function googleTranslateElementInit() {
 - His behavior is utterly insubordinate and so outrageous I'm forced to stop calling team meetings as he sabotages them with (pretend?) rage.
 - Another employee, Jarrod Watts, on Gabriel's orders, tries to break what is [a very robust documentation system](https://squidfunk.github.io/mkdocs-material/) in order to *make it look like* my system is unusable, but he can't really and [his attempts make him look a bit stupid](https://github.com/jarrodwatts/polygon-docs/commits/main/?since=2024-06-21&until=2024-06-30). 
 - The implication, however, is that I am incompetent. And mud sticks.
-- My system gets hacked by a script that creates thousands of issues in the [GitHub repo](https://github.com/0xPolygon/polygon-docs/issues) and I know it's an inside job.
+- My system gets hacked by a script that creates thousands of issues in the [GitHub repo](https://github.com/0xPolygon/polygon-docs-old) and I know it's an inside job.
 - Whatever Polygon had required from me in Bali was now over, and they were keen I left the company, and quickly.
 - Did they know I was about to be murdered?
 - Do they know that *switcheroo* involves long-term blinding of a target with poisons in her home so that she doesn't notice the slow deterioration of her sight, then drugging while it's happening so she can't make people out?

@@ -131,7 +131,7 @@ function googleTranslateElementInit() {
 
 - The end of year piano concert takes place at the boat club venue in Dénia.
 - A huge crowd of parents and children comes to listen to piano students of all levels and all ages.
-- All the [piano teachers](https://portal.edu.gva.es/conservatoriDénia/es/departaments-es/#dep-inst-tecla) attend.
+- All the [piano teachers](https://portal.edu.gva.es/conservatoridenia/es/departaments-es/#dep-inst-tecla) attend.
 - I play Philip Glass etude no 2: https://www.youtube.com/watch?v=850kyfwmRcM.
 - Before the concert begins, and as we were all preparing, and just as I was a few bars into rehearsing my piece, Domingo shouts **"Again?"** in an accusatory tone, very very loudly.
 - The whole auditorium hears him.
@@ -363,7 +363,7 @@ function googleTranslateElementInit() {
 [![Tweeting about the storm and rainbow in December 2023](../../content/tweets/december-2023/remembering-the-13th-june.png)](https://x.com/1FRGVN/status/1741449673678729502)
 
 !!! warning "Teachers and staff involved in gang stalking students at Dénia Conservatory"
-    - You can find a list of current teachers and staff on the [conservatory website](https://portal.edu.gva.es/conservatoriDénia/es/inici/).
+    - You can find a list of current teachers and staff on the [conservatory website](https://portal.edu.gva.es/conservatoridenia/es/inici/).
     - As a taste of things to come in this story, hackers will create numerous fake X accounts using genuine pictures of teachers and staff in the profiles.
     - These accounts interact with me endlessly from September 2023 onwards, when these people try once again to terrorize me into having a nervous breakdown, or worse, and to not return to classes.
         
@@ -453,8 +453,8 @@ function googleTranslateElementInit() {
 
 - In Ireland, I do a search for *"Vidal Sastre Sanchez Hornero"* on YouTube.
 - A number of results come up, one of which is particularly interesting.
-- He is a soloist playing at the [Banda Sinfónica L'Amistat - Quart de Poblet](https://www.lamistatquart.com/sociedad/). 
-- The [band's website](https://www.lamistatquart.com/sociedad/) makes for interesting reading, particularly concerning the unconditional support (inability to say no whilst drugged/sedated?) of the female members.
+- He is a soloist playing at the [Banda Sinfónica L'Amistat - Quart de Poblet](https://www.lamistatquart.com/). 
+- The [band's website](https://www.lamistatquart.com/) makes/made? for interesting reading, particularly concerning the unconditional support (inability to say no whilst drugged/sedated?) of the female members.
 
 ![Unconditional support in their entirety](../../content/images/unconditional-support-in-their-entirety-EN.jpg)
 ![Unconditional support in their entirety](../../content/images/unconditional-support-in-their-entirety-ES.jpg)
@@ -713,7 +713,7 @@ function googleTranslateElementInit() {
 ![Julia Lohmann](../../content/images/julia-lohman.jpg)
 
 - This goes on for a week or two, inexplicably.
-- I have no idea what this means until I see numerous pictures of [Ana Requena](https://lamarina.eldiario.es/2015/03/02/denia-classics-a-piacere-ha-sido-un-orgullo-poder-tocar-por-fin-en-Dénia/) modeling for Julia Lohmann.
+- I have no idea what this means until I see numerous pictures of [Ana Requena](https://lamarina.eldiario.es/2015/03/02/denia-classics-a-piacere-ha-sido-un-orgullo-poder-tocar-por-fin-en-denia/) modeling for Julia Lohmann.
 - The Julia Lohmann art installation is revealed to me in [July on Google searches as something Ana Requena the violin teacher took part in](july.md#seaweed) with a kind of *mean girl* energy that's supposed to upset me and make me jealous. 
 - The pics come up on the `@sinremite` account, now deleted, which I believe is Carmen Cano's account.
 

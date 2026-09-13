@@ -47,7 +47,7 @@ function googleTranslateElementInit() {
 - The thought of everyone coming to a concert where myself and the trumpet teacher are in the same room, and with everything that's happened so far; the constant bullying, my feelings for him, how my whole body vibrates whenever I'm with him, the whole conservatory knowing something of my child sexual abuse history, because he told them, and him not speaking to me about any of it. It's all too much. 
 - I'm clear with the trumpet teacher that I do not want to do it, but I have to agree because it is a requirement of the course.
 - It feels like a set up; a trap. I'm right about this with no details.
-- The concert is originally arranged for the [Casa de Cultura](https://www.Dénia.com/casa-de-cultura/) in the town.
+- The concert is originally arranged for the [Casa de Cultura](https://www.denia.com/casa-de-cultura/) in the town.
 - After my groans of complaint, the venue somehow changes and the concert will take place at the conservatory instead. 
 - Myself and Pablo, the autistic girl Candela and her guitarist partner, turn up to play.
 - I am, as usual, euphoric, anxious, and high.
@@ -162,7 +162,7 @@ function googleTranslateElementInit() {
 
 ## Concert de Orfeo de Dénia
 
-- The choir I used to sing in, the Orfeo de Dénia, gave a [concert to celebrate 40 years of activity](https://www.Dénia.com/el-orfeo-de-denia-celebra-sus-40-anos-con-un-emotivo-concierto-que-unio-varias-generaciones-de-coristas/).
+- The choir I used to sing in, the Orfeo de Dénia, gave a [concert to celebrate 40 years of activity](https://www.denia.com/el-orfeo-de-denia-celebra-sus-40-anos-con-un-emotivo-concierto-que-unio-varias-generaciones-de-coristas/).
 - Mercedes had told me about it at my piano classes.
 - I went along and met some of my old pals. It was really wonderful to see them again.
 
@@ -325,7 +325,7 @@ function googleTranslateElementInit() {
 ## TEB with Robin
 
 - I book a number of TEB therapy sessions with senior practitioner and professional therapist Robin Sullivan.
-- Transforming the experienced-based brain, or [TEB](https://www.austinattach.com/transforming-the-experience-based-brain/), is the therapy that I have been learning in Ireland and online with Stephen Terrell since 2020.
+- Transforming the experienced-based brain, or [TEB](https://transformingtouch.com/transforming-the-experience-based-brain/), is the therapy that I have been learning in Ireland and online with Stephen Terrell since 2020.
 - I specifically wanted these therapy sessions to take place on the Monday before a chamber music class, mainly to calm my nerves and anxiety before going to class. 
 - Sometimes he came to class, often he canceled.
 

@@ -439,7 +439,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 - I thought I had many friends there.
 - I had no idea that - apart from my first visit in 1997 - I'd been lured there by online manipulation as a prime target for horror-porn specials that require careful poisoning over many years to administer stroke-like, brain-damage symptoms.
 - I sang in the Orfeó de Dénia choir, led by Klara Sarkadi.
-- It was while singing with Klara's choir that I met the characters who made sure I applied to the [conservatory of Dénia](https://portal.edu.gva.es/conservatoriDénia/) to study the piano.
+- It was while singing with Klara's choir that I met the characters who made sure I applied to the [conservatory of Dénia](https://portal.edu.gva.es/conservatoridenia/) to study the piano.
 - "Find out what she wants", is their subtle and not-so subtle honey-trap game, and they supplied.
 
 ![All I wanted was to play the piano](content/tweets/all-i-wanted.png){width=75%}

@@ -18,8 +18,8 @@ function googleTranslateElementInit() {
 
 - I wonder if the older woman to his right is his mother? They're very alike.
 - And I wonder who the young woman he is with is? Could she be another target? I have to say, I have very strong feelings about her not being alive. You can't imagine the horrific images I'm getting of this woman and how my foot pain might be related to seeing her. Is her name Sara? Is she Czech? I wonder if missing-persons in Czechoslovakia has her?
-- Is this article from the [local online newspaper](https://www.Dénia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-Dénia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
-- Or is the article featured on [Dénia.com](https://www.Dénia.com/) a declaration from the *whole town* that they are aware of what these people are doing, and to whom?
+- Is this article from the [local online newspaper](https://www.denia.com/ramon-garcia-soler-hace-vibrar-la-plaza-del-consell-en-el-concierto-de-musica-festera-de-la-banda-de-Dénia/26-concierto-agrupacio-artistica-musical-denia-moros-y-cristianos-2016-escuadras-en-el-publico) actually an advertisement where the young lady is the product on sale?
+- Or is the article featured on [Dénia.com](https://www.denia.com/) a declaration from the *whole town* that they are aware of what these people are doing, and to whom?
 - (The fact they removed the article suggests the town's complicity.)
 - I bet there are a million more evidential-snippets, just like this one, aren't there.
 - The woman on the far left, Taya, ends up [very obviously stalking me in July 2025 at my hotel in Lourdes](../../timeline/2025/july.md#lourdes).

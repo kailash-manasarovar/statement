@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## Mary Magdalene’s Cave; the Sainte Baume Grotto
 
-- I do a [Transforming Touch intensive](https://www.austinattach.com/transforming-the-experience-based-brain/online-training/) course online before leaving Lourdes.
+- I do a [Transforming Touch intensive](https://transformingtouch.com/transforming-the-experience-based-brain/online-training/) course online before leaving Lourdes.
 - I then pack up the car and drive to the [Sainte Baume](https://perfectlyprovence.co/mary-magdalenes-cave-the-sainte-baume-grotto/) grotto near Marseille.
 - I hang out with the Dominicans, and some pilgrims, and the spirit of Mary Magdalene who spent her later life in meditation in a cave close to the retreat centre.
 - It's really beautiful; a special place.
