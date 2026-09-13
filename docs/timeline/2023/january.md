@@ -139,7 +139,7 @@ function googleTranslateElementInit() {
 ## Serious poisoning at chamber-music class
 
 - On Monday 30th January I go to my chamber music class at Dénia conservatory as normal for 8pm.
-- The doctor, Joan, from the [Dénia hospital](https://Dénia.san.gva.es/es/localizacion) attends his class which is scheduled before ours at 7-8pm.
+- The doctor, Joan, from the [Dénia hospital](https://denia.san.gva.es/es/localizacion) attends his class which is scheduled before ours at 7-8pm.
 - I'm a little early so I wait outside. 
 - No-one is around.
 - Pablo, my 14-year-old classmate, has not yet arrived.
@@ -200,7 +200,7 @@ function googleTranslateElementInit() {
 - He didn't once look at the screen, or if he did it was a couple of quick glances.
 - He is *overtly* not doing what he's been tasked to do, and I wonder if he's trying to tell me something.
 - I start to become suspicious about my GP clinic.
-- I try to do a kidney test myself at the [local chemist](https://farmaciaDénia.es/); their pamphlet says they have them available.
+- I try to do a kidney test myself at the [local chemist](https://farmaciadenia.es/); their pamphlet says they have them available.
 - They never have the test whenever I ask for it, and they never seem to know why they don't have it, or when it's coming in.
 - One of the pharmacists tells me vaguely, "Oh, I don't think we sell the kidney tests anymore."
 - My GP tells me I have a bacterial infection in my urethra and explains how to wipe my bum from the back, giggling a little.
