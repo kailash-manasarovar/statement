@@ -23,12 +23,13 @@ function googleTranslateElementInit() {
 ### Murdered by the gypsies in Madrid
 
 - A therapist on the retreat is someone I know from the US trauma world.
-- He was assisting at the Somatic Experiencing (SE they call it) trauma introductory course I went to in Edinburgh I think in 2017 but found it not for me.
+- He was assisting at the Somatic Experiencing (SE they call it) trauma introductory course I went to in Edinburgh I think in 2017 but found it not for me - actually people had been particularly unpleasant towards me when I was looking for help.
 - In February 2020 at TT in Cork, a woman tells me the man's son committed suicide.
 - He doesn't tell me this when we have a chat but he does tell me his mother was likely murdered by gypsies in Madrid for her jewels.
 - They set it up like she had commit suicide - head in the oven - and there was no investigation.
-- I tell him I'm doing it all for her too, which I am if she was another mousse patsy sent in and never expected to come out alive.
+- I tell him I'm doing it all for her too, which I most certainly am if she was another mousse patsy sent in and never expected to come out alive, like me.
 - I wonder did they bring him in, because of it, and he lost his son to them too?
+- I saw him in Glastonbury the last time I was there... when was that, oh yeah, while I was staying in Dorset in February 2026... I was walking and saw him, but he kept his distance... very far off he was but I could see it was him.
 - Incidentally, Levine's program is closely connected to the US military.
 
 ## St Michael's church Minehead
