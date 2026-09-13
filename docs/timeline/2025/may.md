@@ -225,6 +225,14 @@ function googleTranslateElementInit() {
 - Desa does her usual thing, jokingly telling us she thinks Chris is a psychopath; she always does that.
 - *No, he is a psychopath,* she'll emphasize with a chuckle, and then, *aren't you Chris?* directly to him.
 - He never says anything when she does this.
+- It may be a case of taking one to know one. 
+- Here's Desa knowing she's busted.
+
+<video controls>
+  <source src="/content/vids/desa.mp4" type="video/mp4">
+    Your browser does not support the video tag.
+</video>
+
 - In fact, I always found Desa rather unpleasant because of the way she talks to Chris; putting him down all the time.
 - And Chris is my friend, so I don't like it.
 - I explain all this over dinner this evening because it all comes up again - Desa explaining how much she likes Matthew Copeland.
