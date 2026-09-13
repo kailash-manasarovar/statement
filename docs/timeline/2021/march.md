@@ -33,6 +33,11 @@ function googleTranslateElementInit() {
 
 ## Qredo
 
+!!! tip "A salmon-mousse inc."
+    - It is my view that Qredo was set up entirely by the salmon mousses who are in charge of criminal gangs Lopez Cano and Adams for the sole purpose of stealing something they'll never EVER have that they wanted for their dark purposes.
+    - Anita Diamond, therefore, is either a paid up salmon mousse, or did not know what she had signed up to, or was being used by them in an intuitive manner, just like me.
+    - It is my view also that Matthew Diamond can shed even more light on this.
+
 - Soon after the [Chronicle Software](january.md#chronicle-software) role goes sour, I'm offered a new contract with a crypto company [Qredo](https://www.qredo.com/), now broken try [Qredo Network](https://qredo.network/app) also broken; interestingly now **wiped** off LinkedIn (time of writing September 2026) which would need some backend mousse help. 
 - On the first day, I see a name fly-by on Slack: *Anita Diamond* - (oh, is Anita Diamond a salmon mousse operative? Does she know about it?).
 - You may remember [Anita and her husband visiting me in Dénia in 2006](../2001-to-2010/2006.md#matthew-goes-upstairs-on-his-own), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../2001-to-2010/2006.md#dave-porter-on-guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel (Fiona) Smith](../2001-to-2010/2007.md#hazel-smith) and her manipulation-tech associates.
