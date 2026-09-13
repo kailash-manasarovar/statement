@@ -463,6 +463,14 @@ function googleTranslateElementInit() {
 - My boss Grace Torrellas starts to treat me with disdain and I am no longer given any work by Gabriel Silva who I am supposed to be working with closely. 
 - Was this all intentional though?
 
+### Gabriel Silva
+
+- Gabe is a manager I'm supposed to be working with closely but stops giving me work around January 2024.
+- There's no question Gabriel knew and likely took part in the sedated-rape scam in Bali in May 2024.
+- Gabe's previous management role was with Microsoft.
+- I have to wonder if all the British women sent by the mousses to, their deaths essentially, in Dénia got added to lists which are shared around US tech companies and their friends as to who can be safely sedated and raped at work with no possible repercussions.
+- And then the mousses making a big deal about how he was getting a divorce in Thailand December 2025 (and I had to wonder if they were trying to get me to feel sorry for him! I mean, really. They hate us THAT much... they never saw me coming).
+
 ### Hans Bodani
 
 - In January 2024, Grace employs a new writer Hansraj Bodani.
