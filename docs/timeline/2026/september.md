@@ -20,4 +20,4 @@ Before we get going, me and my beautiful feet, I have two important announcement
 
     <iframe width="839" height="472" src="https://www.youtube.com/embed/2LFZ-MssIbA" title="Dennis Moore | Monty Python (Official Sketch)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-2. I hereby state that *nothing important* happens now without Antonio's unconditional support and counsel, cos we're a team.
+2. I hereby state that *nothing important* happens now without Antonio's unconditional safety, support, and counsel - cos we're a team.
