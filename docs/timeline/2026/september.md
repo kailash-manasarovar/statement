@@ -20,4 +20,4 @@ Before we get going, me and my beautiful feet, I have two important announcement
 
     <iframe width="839" height="472" src="https://www.youtube.com/embed/2LFZ-MssIbA" title="Dennis Moore | Monty Python (Official Sketch)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-2. My dear Antonio. There is a spare room here and you are invited. I can't promise any privacy, not for a while, and I did have some weird nights the first couple of nights I was here, but nevertheless I believe it is safe now - although you will know better than me because you're way smarter. I don't know about the wedding, it might be a bit inappropriate for a while, let's see what the Father says. Regardless of things, I know you're coming and I don't care how long it takes for you to get here. 
+2. I hereby state that *nothing important* happens now without Antonio's unconditional support and counsel, cos we're a team.
