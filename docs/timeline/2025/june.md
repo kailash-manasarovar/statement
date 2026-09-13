@@ -10,13 +10,26 @@ function googleTranslateElementInit() {
 
 ## Detox
 
-- wip
+- Spies everywhere: woman bullied at work, over-chatty woman, etc.
+- I'd be surprised if there were any normal people on this retreat.
+- Just sketching now, will edit later
 
-## Murdered by the gypsies in Madrid
+### Louis Theroux lookalike and his wife give me a hard time
 
-- I meet a man whose mother was likely murdered by gypsies in Madrid for her jewels.
-- They set it up like she had commit suicide and there was no investigation.
-- I tell him I'm doing it all for her too.
+- What a set up.
+- God told me he'd put the wipes back, and where they were too.
+- Extraordinary business.
+
+### Murdered by the gypsies in Madrid
+
+- A therapist on the retreat is someone I know from the US trauma world.
+- He was assisting at the Somatic Experiencing (SE they call it) trauma introductory course I went to in Edinburgh I think in 2017 but found it not for me.
+- In February 2020 at TT in Cork, a woman tells me the man's son committed suicide.
+- He doesn't tell me this when we have a chat but he does tell me his mother was likely murdered by gypsies in Madrid for her jewels.
+- They set it up like she had commit suicide - head in the oven - and there was no investigation.
+- I tell him I'm doing it all for her too, which I am if she was another mousse patsy sent in and never expected to come out alive.
+- I wonder did they bring him in, because of it, and he lost his son to them too?
+- Incidentally, Levine's program is closely connected to the US military.
 
 ## St Michael's church Minehead
 

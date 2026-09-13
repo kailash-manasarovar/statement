@@ -226,7 +226,7 @@ function googleTranslateElementInit() {
 - *No, he is a psychopath,* she'll emphasize with a chuckle, and then, *aren't you Chris?* directly to him.
 - He never says anything when she does this.
 - It may be a case of taking one to know one. 
-- Here's Desa knowing she's busted.
+- Here's Desa knowing she's busted - she knew a while back I guess.
 
 <video controls>
   <source src="/content/vids/desa.mp4" type="video/mp4">
