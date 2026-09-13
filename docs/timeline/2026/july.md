@@ -108,6 +108,7 @@ function googleTranslateElementInit() {
     ![Exhaustion prompt from Joy](../../content/images/exhaustion-prompt-from-joy.jpg)
 
     - Phrases and sentences from non-fiction, fiction, blogs, emails, tweets and similar from as far back as 2007 to the current time, that morning even sometimes if I had been online before class.
+    - He wasn't here just for the water - referencing Elon's trip to Bali in May 2024.
     - (I'll keep adding these in as I remember them..., it's gonna be quite a list)
 
 - It was a battering.
