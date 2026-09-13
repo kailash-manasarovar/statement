@@ -11,3 +11,13 @@
 - It looks like my eyebrows either stopped growing or fell out!
 - I've just thrown everything else from those times (a few months ago) away too now. It's really a huge hassle you know. I wish it would stop. I hope it has stopped now.
 - I hope we're all gonna end up friends now; and the bad folk do the right thing and not try to hide from the consequences of their foolish activity. That'd be really good. Then I'd really like to see squirrel.
+
+## Two Announcements
+
+Before we get going, me and my beautiful feet, I have two important announcements to make.
+
+1. I hereby redefine the collocation *Salmon Mousse* to exclude ALL Brits (except perhaps some recalcitrant ones with Aries rising maybe...).
+
+    <iframe width="839" height="472" src="https://www.youtube.com/embed/2LFZ-MssIbA" title="Dennis Moore | Monty Python (Official Sketch)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+2. My dear Antonio. There is a spare room here and you are invited. I can't promise any privacy, not for a while, and I did have some weird nights the first couple of nights I was here, but nevertheless I believe it is safe now - although you will know better than me because you're way smarter. I don't know about the wedding, it might be a bit inappropriate for a while, let's see what the Father says. Regardless of things, I know you're coming and I don't care how long it takes for you to get here. 
