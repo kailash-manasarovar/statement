@@ -91,7 +91,7 @@ function googleTranslateElementInit() {
 - Interspersed with everything they said, were trigger meme's from my life experiences and particularly in reference to sexual violence and everything that happened in Dénia.
 - I started to become totally disassociated and found myself thinking more about the trigger memes than whatever it was they were "normally" talking about around it.
 - Some of this has already been set up, but I missed it the first time around.
-- Here's a list of words or phrases or names that kept coming up:
+- Here's a list of words or phrases or names that kept coming up verbally by other course participants then online when I got back to my house:
     - Winston.
     - Coffee.
     - Tonia - pronounced Tona, no Y.
@@ -109,6 +109,10 @@ function googleTranslateElementInit() {
 
     - Phrases and sentences from non-fiction, fiction, blogs, emails, tweets and similar from as far back as 2007 to the current time, that morning even sometimes if I had been online before class.
     - He wasn't here just for the water - referencing Elon's trip to Bali in May 2024.
+    - Leave no trace - Vincent had a "surfing" accident early on and had bumped his head. He told me this but something rang untrue about it.
+    - Who are the other disciples?
+    - Standing spit - referencing a sedated porn position.
+    - Three-legged dog - referencing my neighbors dog in Las Marinas who may have starred in porn with me.
     - (I'll keep adding these in as I remember them..., it's gonna be quite a list)
 
 - It was a battering.
