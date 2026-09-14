@@ -82,7 +82,7 @@ function googleTranslateElementInit() {
 - Oh wait, I'm Amale (love him?) and this is confirmation that my status as a CIA intuitive spy sent into hell to report back on - or retrieve even - the stash is well-known to all?
 - It's just mind-blowing.
 - Well, my lovelies, I have my own plans for the stash which involve God alone, and His Word - nothing double-edged.
-- I hope my friend shares my plans.
+- I hope that's not dreadfully presumptive (although I have been banging on about it for a while now) and that my friend shares my inspired plans.
 
 ## So, Janet, asks me to run an X Space about hacking
 
