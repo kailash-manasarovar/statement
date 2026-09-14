@@ -506,7 +506,7 @@ function googleTranslateElementInit() {
 
 ### Gabriel Silva and Polygon's campaign of terror on a child rape-gang survivor
 
-- Gabriel and I have an [extraordinarily weird meeting in January 2024](../2024/january.md#a-strange-meeting-with-gabriel-silva) in which he's looking at the screen in the same way my father looked at Domingo in [my kitchen in December 2014](../2011-to-2020/2014.md#trip-to-london).
+- Gabriel and I have an [extraordinarily weird meeting in January 2024](../2024/january.md#a-strange-meeting-with-gabriel-silva) in which he's looking at the screen in the same way my father looked at Domingo in [my kitchen in December 2014](../2011-to-2020/2014.md#domingo-lopez-cano-visits-london-with-me).
 - I don't see Gabriel for a couple of months after that. 
 - He's stopped giving me work.
 - At some point, it's not entirely clear when, Gabriel starts complaining about my work to me personally and to other colleagues; he doesn't like my writing style, he puts me down in meetings, he tells colleagues that my docs system is a *single point of failure*.

@@ -214,7 +214,7 @@ function googleTranslateElementInit() {
 - The interrogator reminds me of someone, but I don't place it for a few weeks...
 - Then it comes.
 - It's Domingo.
-- The whole scene reminded me of the time Domingo and I went out for dinner at the Japanese restaurant in Dénia in 2014 (just before [he came to London](../2011-to-2020/2014.md#trip-to-london) and my dad seemed to, gulp, recognize him) and he kind of *performed* for the people sitting around the table, as if he knew them, and they had to respect him, even though his loud behavior was terribly ignorant.
+- The whole scene reminded me of the time Domingo and I went out for dinner at the Japanese restaurant in Dénia in 2014 (just before [he came to London](../2011-to-2020/2014.md#domingo-lopez-cano-visits-london-with-me) and my dad seemed to, gulp, recognize him) and he kind of *performed* for the people sitting around the table, as if he knew them, and they had to respect him, even though his loud behavior was terribly ignorant.
 - The way Domingo spoke at that time was as if everyone had no choice but to listen to him, and smile, and agree, and that was exactly what I was seeing at the Red Lion.
 - Who was this overbearing, slightly camp 50-year-old white man with a moustache presiding over a table of British Muslim Asian men who may well have been second-generation Pakistanis?
 - And why did they sit right beside us instead of in one of the more private areas elsewhere? The whole pub was empty!

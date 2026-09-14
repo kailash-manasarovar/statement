@@ -634,7 +634,7 @@ function googleTranslateElementInit() {
 [![Updates](../../content/tweets/october-2023/summary-updates.png)](https://x.com/1FRGVN/status/1716065908488040538)
 
 - I mention that I kept a secret once. I'm referring to something Domingo asked me to keep secret, which I did until I told everyone he'd lied about being sick on December 5th 2014 to get off classes. 
-- I'm guessing now he didn't even have to lie and his trip to the doctor on that morning before we [left for the airport](../2011-to-2020/2014.md#trip-to-london) was for some other reason.
+- I'm guessing now he didn't even have to lie and his trip to the doctor on that morning before we [left for the airport](../2011-to-2020/2014.md#domingo-lopez-cano-visits-london-with-me) was for some other reason.
 
 [![Keeping secrets](../../content/tweets/october-2023/keeping-domingos-secret.png)](https://x.com/1FRGVN/status/1709965218531488064)
 
