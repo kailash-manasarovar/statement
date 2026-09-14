@@ -66,6 +66,7 @@ function googleTranslateElementInit() {
 | ![ fake ]( ../content/images/fake-accounts/list/32.png ){width=50%} |  AI mix of me and the trumpet teacher. |
 | ![ fake ]( ../content/images/fake-accounts/list/33.png ){width=50%} |  Stalker. |
 | ![ fake ]( ../content/images/fake-accounts/list/34.png ){width=50%} |  AI mix of me and ? |
+| ![ fake ]( ../content/images/fake-accounts/list/35.png ){width=50%} |  Bogus - British salmon mousse or Hazel's brother? |
 | ![ fake ]( ../content/images/fake-accounts/list/36.png ){width=50%} |  Stalker account. Communicating with me from early 2022. |
 | ![ fake ]( ../content/images/fake-accounts/list/37.png ){width=50%} |  Stalker. |
 | ![ fake ]( ../content/images/fake-accounts/list/38.png ){width=50%} |  Stalker. Honey trap account. This person may be a sexploitation victim. |
@@ -77,7 +78,8 @@ function googleTranslateElementInit() {
 | ![ fake ]( ../content/images/fake-accounts/list/44.png ){width=50%} |  Stalker. |
 | ![ fake ]( ../content/images/fake-accounts/list/45.png ){width=50%} |  Stalker. AI mix here but not sure with who, someone I trust because I had a long DM with this person. |
 | ![ fake ]( ../content/images/fake-accounts/list/46.png ){width=50%} |  Honey trap account. |
-| ![ fake ]( ../content/images/fake-accounts/list/47.png ){width=50%} |  Stalker most likely. Possibly legit and/or duplicated/leached. |
+| ![ fake ]( ../content/images/fake-accounts/list/47.png ){width=50%} |  Stalker. Possibly legit and/or duplicated/leached. |
+| ![ fake ]( ../content/images/fake-accounts/list/30.png ){width=50%} |  SM Jenkin chat. |
 | ![ fake ]( ../content/images/fake-accounts/list/48.png ){width=50%} |  Stalker. Tweets on auto-regenerate by the looks. |
 | ![ fake ]( ../content/images/fake-accounts/list/49.png ){width=50%} |  Stalker. |
 | ![ fake ]( ../content/images/fake-accounts/list/50.png ){width=50%} |  Bonafide stalker and honey trapper. Often thought this was Domingo or Samuel. |

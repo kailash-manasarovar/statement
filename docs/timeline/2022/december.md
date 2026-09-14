@@ -24,7 +24,10 @@ function googleTranslateElementInit() {
 - There were some messages from people on his Facebook saying "look how much they've grown" so I assumed they were his daughters.
 - The man I saw on Facebook with the two young girls was, I think, [trumpet teacher two](../../crimes/protagonists/vidal-sastre.md#seven-devils), but with longer hair.
 - I heard him tell my classmate Pablo - and when I asked him later he also told me - he was a secondary school teacher teaching music in the outskirts of Valencia, some 8kms away from the center of the city. I can't remember the name of the town he said, but it began with B.
-- I found no record of him teaching at any secondary school online.
+- I found no record of him teaching at any secondary school online apart from one apparently AI generated research reference I eventually discovered in late 2024.
+
+![Sastre at secondary school](../../content/images/hornero/victor-castro-sanchez.png)
+
 - When I looked at his Facebook page again over Christmas it appeared that he had deleted it, or blocked me, I was not familiar with how Facebook works.
 - The Facebook name was exactly the same as the name in the GV systems, *Vidal Sastre Sanchez Hornero*.
 - I started to think about him a lot. I have a tendency to do this with men I like so there was nothing strange about it from my side. 
