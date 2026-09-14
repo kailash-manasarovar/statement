@@ -277,6 +277,10 @@ function googleTranslateElementInit() {
 ![Juan Diego](../../content/images/juan-diego.jpg)
 
 - He replies he always knew it was Juan Diego.
+- Is Antonio's confirmation name Juan Diego?
+- Was all this made up for us by the mousses? Or were they just replaying what had already happened between us more-or-less without the cat's knowledge?
+
+![Another pic of Our Lady of Guadalupe](../../content/images/Our-Lady-of-Guadalupe.webp)
 
 #### Madrid airport
 
