@@ -84,6 +84,11 @@ function googleTranslateElementInit() {
 - Well, my lovelies, I have my own plans for the stash which involve God alone, and His Word - nothing double-edged.
 - I hope that's not dreadfully presumptive (although I have been banging on about it for a while now) and that my friend shares my inspired plans.
 - I guess I'm the only one who asked nicely, and they must have thought it defaulted to "on their behalf", but no, not at all.
+- And I made a promise too.
+
+![The most wonderful thing ever](../../content/tweets/august-comms/jackchardwood/making-promises.png)
+
+- Which I plan on keeping.
 
 ## So, Janet, asks me to run an X Space about hacking
 
