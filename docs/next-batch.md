@@ -4,13 +4,6 @@
 
 ## TODO: list
 
-### 2019
-
-- I visit Chris Ludwick, this is when I tell him about crypto and he gets into it.
-- He has a picture of Diana on his wall, it's a bit incongruous. I ask him why he's got Diana up.
-- He says "cos I like her".
-- I think, fair enough.
-
 ### 2021
 
 - While the "Portuguese" man is visiting (Mark right?) I am headhunted for a job with the UN in Fiji.
