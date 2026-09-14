@@ -995,6 +995,9 @@ function googleTranslateElementInit() {
 
 - Quite often, I'd see X spaces set up with a whole bunch of familiar fake accounts attending.
 - Interestingly, in the [Lorraine Tortured Whistleblower](#lorraine-tortured-whistleblower) pics, we see another account I believe was run by Hazel, or her Northern Ireland associates, [`@BelfastBeatnik`](https://x.com/BelfastBeatnik) running a space.
+
+![Lorraine and Belfast Beatnik](../../../content/images/threats/lorraine/lorraine-belfast-beatnik.png)
+
 - I'm curious about the Northern Ireland connection now, and [the horrible experience I had in 2020](../../2011-to-2020/2020.md#targeted-by-online-scammers) as I left my toxic environment in London and sought a new and better life, and seemed to be attacked by swarms of sinister people and events wherever I went from that moment onwards...
 
 ## 19th March
@@ -1108,6 +1111,10 @@ function googleTranslateElementInit() {
 - The hackers were more sure of the truth than myself at that time!
 
 ![mum](../../../content/images/mummy.png)
+
+- I interacted with mum on Twitter for a while but there were always technical problems.
+
+![Mum on X](../../../content/tweets/april-2024/speaking-to-mum.jpg)
 
 - Anyway, the whole interaction with the `@blueskies19761` account was extremely threatening.
 - Whoever was managing the account had done a fair bit of research on my X activity and background, or more likely knew me personally for a long time already.
