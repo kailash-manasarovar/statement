@@ -267,6 +267,11 @@ function googleTranslateElementInit() {
 - I wake up once they've left my apartment and I'm convinced I'm going to be murdered.
 - This is how they get me to finally leave my studies at the conservatory.
 
+#### Brain damage from lack of oxygen
+
+- Most of my brain-damage symptoms that include confusion, lack of coordination, and my inability to play chess started right after this event.
+- I believe the stroke symptom gained by poisoning over long periods, and used for the switcheroo porn, is separate to these symptoms.
+
 ### State of terror
 
 - The next thing I remember is being conscious of something evil in my vicinity, to the point of being concerned that I might be murdered and they would make it look like suicide.
