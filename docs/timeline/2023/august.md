@@ -148,7 +148,7 @@ function googleTranslateElementInit() {
 [![Offers of healing, promise of friends](../../content/tweets/august-comms/offers-of-healing-promise-of-friends-3.png)](https://x.com/1FRGVN/status/1691010959555379200)
 
 - Curiously, the tweets seem to have been deleted on the backend (time-of-writing September 2026) and not by me.
-- I started referring to the upcoming 4th year of professional studies as season 3. Season 2 was the trumpet teacher debacle and season 1 was the [first attempt to control me in 2014](../2011-to-2020/2014.md#conservatory-audition).
+- I started referring to the upcoming 4th year of professional studies as season 3. Season 2 was the trumpet teacher debacle and season 1 was the [first attempt to control me in 2014](../2011-to-2020/2014.md#meeting-domingo-lopez-cano-at-the-conservatory-audition).
 
 - This post below blew my mind a little. The pic on the last post of the thread came up on a random gif selection, but I don't believe it was random at all. The character here actually looks gaunt and unwell just like Domingo. 
 

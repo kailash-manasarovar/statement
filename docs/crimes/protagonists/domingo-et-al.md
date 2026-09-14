@@ -11,7 +11,7 @@ function googleTranslateElementInit() {
 ## Domingo Lopez Cano
 
 - Domingo Lopez Cano was my piano teacher in 2014.
-- I met him first at the [conservatory audition](../../timeline/2011-to-2020/2014.md#conservatory-audition).
+- I met him first at the [conservatory audition](../../timeline/2011-to-2020/2014.md#meeting-domingo-lopez-cano-at-the-conservatory-audition).
 - Here he is in the summer of 2016, just after I left Dénia as I started to suffer from severe depression.
 
 ![Domingo et al](../../content/images/domingo-target-mother-advertisement.jpg)
