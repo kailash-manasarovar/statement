@@ -107,7 +107,7 @@ function googleTranslateElementInit() {
 
     ![Exhaustion prompt from Joy](../../content/images/exhaustion-prompt-from-joy.jpg)
 
-    - Phrases and sentences from non-fiction, fiction, blogs, emails, tweets and similar from as far back as 2007 to the current time, that morning even sometimes if I had been online before class.
+    - My own words, phrases, and sentences from non-fiction, fiction, blogs, emails, tweets and similar from as far back as 2007 to the current time, from the morning even sometimes if I had been online before class.
     - He wasn't here just for the water - referencing Elon's trip to Bali in May 2024.
     - Leave no trace - Vincent had a "surfing" accident early on and had bumped his head. He told me this but something rang untrue about it.
     - Who are the other disciples?
