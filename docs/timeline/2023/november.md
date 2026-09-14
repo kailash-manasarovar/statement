@@ -541,7 +541,7 @@ function googleTranslateElementInit() {
 - At a dinner [in Bali, I am threatened with sexual violence from an "apparent" Rust engineer Aziz](../2024/may.md#the-pakistani-yorkshire-man) who has started that week. 
 - He looks exactly like [Jitendra Das](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star), the well-known to criminal porn gangs [porn-fatwa star](../2001-to-2010/2003.md#porn-fatwa) and perhaps another set of films everyone will be familiar with.
 - This man is set up to meet me by mushroom man, one of Ajay's team just mentioned, and he has clearly been told to target me in this sinister manner.
-- Anthony is at the dinner table when this happens. Is Anthony there to provide a Dénial?
+- Anthony is at the dinner table when this happens. Is Anthony there to provide a denial?
 
 ![Pakistani threats at dinner](../../content/images/pakistani-man-threatens-woman.png)
 

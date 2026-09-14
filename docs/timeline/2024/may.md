@@ -614,7 +614,7 @@ function googleTranslateElementInit() {
 - *Did you not see him make those sexually violent threats to me Anthony*, I said. *He was menacing.* 
 - Anthony says nothing so I explain by demonstrating it to him.
 - Anthony says nothing.
-- I wonder if Anthony was there for Dénial purposes in case I complain.
+- I wonder if Anthony was there for denial purposes in case I complain.
 - While this guy, Aziz Abad (something like that) was talking to us, his chatter was so disordered and threateningly meaningless, he reminded me of [Nadim Kobesi](../2023/november.md#nadim-kobesi).
 - I say so.
 - I say to Anthony, this guy has *Nadim energy*.

@@ -254,6 +254,8 @@ function googleTranslateElementInit() {
 - She also gives me a gift from the second-hand shop she works at that evening; a tiny cloth money purse - I wonder if it had a tracking device from Adams inside - which I left at the hotel.
 - As she's giving it to me, and I accept it and tell her she really shouldn't have, she looks over at Chris and makes a face as if to say, *see? she's taking it*, a communication that was totally inexplicable to me at the time.
 - I just assume she still hates me, like she always has, and is doing weird things because of her hatred.
+- One time I was suspicious she was poisoning Chris. He became extremely ill inexplicably, A&E ill, and nearly died. It may have happened twice. He got some weird diagnosis and it never happened again. She was that mean to him all the time, I did wonder and I think we have to probably. Chris Ludwick surviving poisoning would certainly be a surprise!
+- The Lord does roll in mysterious ways though.
 
 ### Des and Nikki 
 

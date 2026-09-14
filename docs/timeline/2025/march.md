@@ -15,7 +15,7 @@ function googleTranslateElementInit() {
 - In June 2026 while editing, this statement strikes me as a little strange coming from someone who criminal gangs have been trying to murder, repeatedly, after having sedated-and-raped them endlessly for years, even in her own homes, and by doing so made me famous in criminal porn internationally (probably even on PornHub they were so sure of my early demise)?
 - Shouldn't I be a little stressed, not cheerful surely?
 - It's two things.
-- It's the mind/brain's (a very smart organ) self-protective Dénial mechanism for continued survival, and Jesus.
+- It's the mind/brain's (a very smart organ) self-protective denial mechanism for continued survival, and Jesus.
 - The stress of knowing that the most outrageous crimes are being committed against innocent people, including children and babies, and no-one who could do something about it cares, is enormous.
 - The fact that it has been going on so long, so egregiously, and no-one cares did almost break me, but a little gallows-humor has been helpful now and then.
 - And that is why I'm thinking about this police statement in novel form, maybe someone might actually read it!
