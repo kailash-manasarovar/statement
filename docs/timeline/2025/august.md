@@ -16,6 +16,7 @@ function googleTranslateElementInit() {
 
 - The woman glaring at me with the bag from Sainte Marie de la Mer, for example.
 - It was so intense.
+- A toddler getting passed around - I thought they were seeing if I'd raise the alarm but I knew it was phoney.
 
 ### Cupcakes
 
