@@ -15,6 +15,7 @@ function googleTranslateElementInit() {
 ### The thermal baths are full of Jewish people and gypsies
 
 - The woman glaring at me with the bag from Sainte Marie de la Mer, for example.
+- It was so intense.
 
 ### Cupcakes
 
@@ -22,7 +23,7 @@ function googleTranslateElementInit() {
 
 ### Up the mountains
 
-- Spies everywhere
+- Spies everywhere, always *very* Jewish looking.
 
 ## A song to the mountains
 
