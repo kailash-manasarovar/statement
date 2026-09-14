@@ -8,6 +8,22 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## All over me like scabies in Cauterets
+
+- wip
+
+### The thermal baths are full of Jewish people and gypsies
+
+- The woman glaring at me with the bag from Sainte Marie de la Mer, for example.
+
+### Cupcakes
+
+- Me in the bath.
+
+### Up the mountains
+
+- Spies everywhere
+
 ## A song to the mountains
 
 - The mountains give me time to reflect and get my head straight.
