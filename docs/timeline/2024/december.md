@@ -71,6 +71,16 @@ function googleTranslateElementInit() {
 - Was it after she returned from her foundation art course in the UK - something she told me about on a loop - or just after her first, British husband died (or was murdered maybe)?
 - Were these messages from Trish a way for the criminal porn-gangs of Dénia to communicate with the multiple law enforcement organizations I had sent [my handwritten letters to](august.md#the-handwritten-letters) so that they might make deals while they conclude their detailed investigations and before they nick everyone and stop the baby-rapists, pedophiles, incest-obsessed, and sedated-rape insane please God.
 
+### Warning about So
+
+- She did appear to warn me about So (Janet) who I was already suspicious of.
+
+![Warning about So](../../content/documents/emails/trish-warning-about-So.png)
+
+- My guess is the porn gangs are communicating with the salmon mousses this way and I have no context nor comprehension about what is going on.
+- The reference to Amale's kitchen is utterly beyond me.
+- Perhaps someone will enlighten me one day, although I'm not sure I care anymore. I'm so ready for this to be over now.
+
 ## So, Janet, asks me to run an X Space about hacking
 
 - So, Janet, `@ladysolucky` on X - one of [my dubious UK general election volunteers](june.md#volunteers-not-what-they-seem) - presses me repeatedly to run an X Space describing hacking.
