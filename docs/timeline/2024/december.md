@@ -70,7 +70,9 @@ function googleTranslateElementInit() {
 - Things she said to me gave me cause for concern; for example, *my much-younger-Spanish-husband always brings me tea in the morning, every morning*.
 - Did Trish find herself starring in horror-porn just like I did?
 - Was it after she returned from her foundation art course in the UK - something she told me about on a loop - or just after her first, British husband died (or was murdered maybe)?
+- Was he (were they) a spy for the salmon mousses?
 - Were these messages from Trish a way for the criminal porn-gangs of Dénia to communicate with the multiple law enforcement organizations I had sent [my handwritten letters to](august.md#the-handwritten-letters) so that they might make deals while they conclude their detailed investigations and before they nick everyone and stop the baby-rapists, pedophiles, incest-obsessed, and sedated-rape insane please God.
+- Were statements like the last one I just made the main reason the salmon mousses thought they could continue to bite chunks out of me and I wouldn't notice, right up to July/August 2026 in Jerusalem when God told me EVERYTHING!?
 
 ### Warning about So
 
