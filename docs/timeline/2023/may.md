@@ -383,7 +383,7 @@ function googleTranslateElementInit() {
 
 - Are they referring to me, a known CIA intuitive and the current British target of the Lopez Cano's vengeance program?
 - Is the "upset and disoriented" referring to constant attacks and faeces in my knickers reported to Robin, a well-known CIA intuitive operator?
-- Is "plane crash" a reference to Lockerbie and "What rotten timing!" about how the flight had been delayed and so didn't go down over the Atlantic?
+- Is "plane crash" a reference to Lockerbie and "What rotten timing!" about how the flight had been delayed and so didn't go down over the Atlantic leaving evidence all over the Scottish countryside?
 - Do Spanish hackers have illicit recordings from that dreadful day that prove American involvement?
 - If so, why wouldn't it be enough to make them leave everyone in peace?
 - Is this why they kept the Lopez Cano's angry - chosen perhaps for their lack of wisdom and predilection to anger and vengeance?
