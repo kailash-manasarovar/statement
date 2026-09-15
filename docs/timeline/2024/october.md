@@ -588,7 +588,7 @@ function googleTranslateElementInit() {
 
 ### Richard Freed is Paloma's boss
 
-- It turns out, Paloma works for the British Foreign office or MI5, and her boss is likely Richard Freed.
+- It turns out, Paloma works for the British Foreign office or MI5 (but in fact her true task-masters are the Americans), and her boss is probably Richard Freed.
 - Richard Freed:
     - Richard Freed who had been all over this twenty years ago and then everyone pretended they didn't know him.
     - The man who - along with Loka Yoga, the Lopez Cano's and others - we can link directly to Stella; the head of at least one distribution network procuring British porn-product for sending to Spain with the intention of surveilling the porn gangs of Dénia; women that always end up traumatized and often end up murdered.
