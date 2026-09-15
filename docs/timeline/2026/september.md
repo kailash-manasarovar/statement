@@ -68,7 +68,7 @@ Before we get going, me and my beautiful feet, I have two important announcement
 ## I'm so annoyed at you all
 
 - So why the frantic, panicky, constant interference in other people's lives?
-- There's two reasons, both of which include or require even the TOTAL DISINTEREST in the rampant evildoing going on in the region:
-    1. The need to protect a lie so gargantuan, that if anyone found out about it, utter and complete disintegration would be inevitable.
+- There's two reasons, both of which include or require even the TOTAL DISINTEREST in the rampant evildoing going on in the region, and the world:
+    1. The need to protect a lie so gargantuan, that if anyone found out about it, utter and complete disintegration would be inevitable - even 300 years of redaction wouldn't save them if you had paid the Lopez Cano's and they know it too.
     1. The desire to steal a weapon. And let's be clear, people like this, who forgot about God - if they had such a weapon - would destroy the whole world with it, including themselves, in less than a decade (oh wait..).
-- And I'd like to be very clear here, if you think Jesus came down with the Course when that tiny sliver of Light got in in the 60s without knowing you'd all f*ck up so tragically in every way possible, you really have no idea about God.
+- And I'd like to be very clear here, if you think Jesus came down with the Course when that tiny sliver of Light got in in the 60s, without knowing you'd all f*ck up so tragically, so spectacularly, in every way possible, without knowing that a good chunk of his followers had got to carousing, you really have no idea about God.
