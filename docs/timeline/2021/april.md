@@ -20,6 +20,12 @@ function googleTranslateElementInit() {
 - There is never anything untoward on the recordings.
 - I tell [Anita at Qredo](march.md#qredo) about this.
 
+## Headhunted by the UN for a job in Fiji
+
+- While all this is going on, I'm headhunted by the UN for a job in Fiji.
+- I was watching the Truman Show the other day and I remembered this because Truman was always trying to escape to Fiji.
+- What are the chances?
+
 ## Earbuds clicking
 
 - Another weird thing that started happening was my headphones would make an extremely loud mechanical noise that hurt.

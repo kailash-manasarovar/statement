@@ -120,6 +120,14 @@ function googleTranslateElementInit() {
 - Curiously, (I think) I see a man I'm working closely with in ConsenSys Infura out walking in the Pyrenees (August 2022)... I know he's from nearby in France so I'm not totally surprised. We don't speak. 
 - I'm now *a bit more* surprised about that. I'd remember his name if I heard it.
 
+### CoderPad
+
+- I'm being forced out, again, but I decide to dig my heels in.
+- I look for some part time work so I don't get really bored and have to leave.
+- I find a job with a company CoderPad who I do a few hours with each week on contract while everyone is ignoring me at ConsenSys.
+- I'm adding this because I'm wondering if this was a salmon mousse operation, designed to keep me in the company while I'm lured back to Spain and at the same time manipulated into fancying the CEO, offsites pending.
+- Were they going to set Lubin up before they did Musk?
+
 ### Manipulated romantic attraction to the CEO 
 
 - I move to Dénia just a few months after I start my new job at ConsenSys.
