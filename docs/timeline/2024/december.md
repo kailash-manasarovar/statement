@@ -81,7 +81,7 @@ function googleTranslateElementInit() {
 ![Warning about So](../../content/documents/emails/trish-warning-about-So.png)
 
 - My guess is the porn gangs are communicating with the salmon mousses this way and I have no context nor comprehension about what is going on.
-- The reference to Toby is disturbing.
+- The reference to [Toby](#wheres-toby) is disturbing.
 - The reference to Amale's kitchen is utterly beyond me.
 - Oh wait, I'm Amale (love him?) and this is confirmation that my status as a CIA intuitive spy sent into hell to report back on - or retrieve even - the stash is well-known to all?
 - It's just mind-blowing.
