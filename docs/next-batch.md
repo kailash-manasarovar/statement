@@ -4,14 +4,6 @@
 
 ## TODO: list
 
-### 2021
-
-- CoderPad because I was being bullied out of my job and was utterly bored out of my mind cos they weren't giving me work. Mousses.
-
-### June 2022
-
-1. Christine Betterton Jones's friend who works at the British foreign office comes on a walk with us in June 2022. She's has her baby with her on her back. She wants to know all about my Indian trips, where I go, who I see, etc etc. She seems like a spy to me... I ask her if she knows Rich Freed as he also works at the FO, and had been stationed in Pakistan at one stage as second to the ambassador or something huge like that. She said no. It seemed unlikely to me she wouldn't know him.
-
 ### July 2022
 
 1. Fiona's murdered ACIM student - July 2022 Glastonbury Wearyall Hill. Fiona played us her singing live in Glastonbury Town Hall in the 90s I think, and called her "my love". She didn't seem sad when she told us she'd been murdered. I guess she got over it, or perhaps she's angry, unclear. She then plays, inordinately gushing as she does so, New York (the r&b one, female singer, is it Beyonce, I've no idea... never grabbed me much). I find all this a bit strange, notable, exaggerated, offkey, rememberable. 

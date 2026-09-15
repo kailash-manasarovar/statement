@@ -17,6 +17,19 @@ function googleTranslateElementInit() {
 - I wonder if maybe the refrigerator is so old it is leaking bacteria onto my food.
 - My eyes are tired and my sight is often blurry.
 
+### The British FO woman
+
+- One weekend, Christine has a bunch of people walking with the group who have popped over for a short visit.
+- One of them is a woman who works at the UK Foreign Office in London.
+- She has her baby with her on her back.
+- We walk together and talk.
+- She wants to know all about my Indian trips: where I go, who I see, etc etc. 
+- She seems like a spy to me...
+- I ask her if she knows Richard Freed because he also works at the foreign office.
+- He had even been stationed in Pakistan, as second to the ambassador or something huge like that.
+- She said no, she didn't, and changed the subject.
+- It seemed unlikely to me she wouldn't know him.
+
 ### Meeting Zoe and Marie while walking
 
 - One Saturday afternoon, I bump into an old friend I haven't seen in years while walking along Las Rotas, [Zoe Braganza Jones](../2001-to-2010/2008.md#zoe-bj).
