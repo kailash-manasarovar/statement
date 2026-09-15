@@ -35,8 +35,8 @@ Before we get going, me and my beautiful feet, I have two important announcement
 - But something happened to shut it out again because there's clearly more darkness around than Light at the moment.
 - So I'm not sure Joy is anything to do with A Course In Miracles and the original efforts; or if it was once and then lost it's way.
 - It's difficult to figure out but there are clearly two paths for spy-intuitive recruitment (neither of which the candidate may ever know they've been part of):
-    1. Highly intuitive people with massive trauma histories that have no spiritual practice.
-    1. God's chosen teachers described by Jesus in A Course In Miracles who may or may not have trauma histories.
+    1. Highly intuitive people with massive trauma histories that have no spiritual practice - these people are likely ideal for the more sinister tasks required of spies.
+    1. God's chosen teachers described by Jesus in A Course In Miracles who may or may not have trauma histories - these people are probably not quite so easy to control.
 - Sadly, it looks like at least some of God's chosen teachers - once discovered - have been murdered, and it would be good to understand how that was at all justifiable.
 - So, we have Joy (intuitive program), then Shield (ACIM program), and then the wider American security services who probably muscled in early on, after some obvious "results" maybe, and made it impossible to maintain the *better way*.
 - And today, these programs are doing more to protect evil than to bring the Light into the world, and that *mission*, as it were, is totally unhidden and universally accepted.
