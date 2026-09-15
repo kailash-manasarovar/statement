@@ -22,10 +22,11 @@ function googleTranslateElementInit() {
 - One weekend, Christine has a bunch of people walking with the group who have popped over for a short visit.
 - One of them is a woman who works at the UK Foreign Office in London.
 - She has her baby with her on her back.
+- Her husband is in the military or works for the Ministry of Defense.
 - We walk together and talk.
 - She wants to know all about my Indian trips: where I go, who I see, etc etc. 
 - She seems like a spy to me...
-- I ask her if she knows Richard Freed because he also works at the foreign office.
+- I ask her if she knows Richard Freed because he also works at the foreign office and I'm pretty sure he's a spy.
 - He had even been stationed in Pakistan, as second to the ambassador or something huge like that.
 - She said no, she didn't, and changed the subject.
 - It seemed unlikely to me she wouldn't know him.
