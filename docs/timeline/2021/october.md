@@ -124,7 +124,7 @@ function googleTranslateElementInit() {
 
 - I'm being forced out, again, but I decide to dig my heels in.
 - I look for some part time work so I don't get really bored and have to leave.
-- I find a job with a company CoderPad who I do a few hours with each week on contract while everyone is ignoring me at ConsenSys.
+- I *very quickly* find a job with a company CoderPad who I do a few hours with each week on contract while everyone is ignoring me at ConsenSys.
 - I'm adding this because I'm wondering if this was a salmon mousse operation, designed to keep me in the company while I'm lured back to Spain and at the same time manipulated into fancying the CEO, offsites pending.
 - Were they planning on setting Lubin up before Musk?
 - Notably, Lubin cancelled *all* offsites shortly after this.
