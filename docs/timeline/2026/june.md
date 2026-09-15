@@ -301,9 +301,11 @@ function googleTranslateElementInit() {
 
 ### Adoptive parents?
 
-- Did the black woman with the two small daughters that made pizzas with Mr Surya and my other friends; the woman with the white husband who kept greeting me in a spy-like way; did they get an egg?
+- Did the thin black American woman with the two small daughters that made pizzas with Mr Surya and my other friends; the woman with the tall white husband with the deep voice who kept greeting me in a spy-like way; did they get an egg?
 - Were they showing me their family to somehow offset the guilt?
 - Is it?
+- Did some of the other couples get one?
+- Was it an end-of-line egg sell-off?
 - Outrageous!
 
 ### Memories
