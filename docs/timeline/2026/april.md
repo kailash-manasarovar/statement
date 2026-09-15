@@ -185,16 +185,20 @@ function googleTranslateElementInit() {
 - This was a sort of meme that second week, or maybe both weeks.
 - Steve kept saying "enough is enough" in class, and I remembered the joke about only one egg for breakfast in France.
 - When I told him, while at the same time thinking about pregnancy, he looked so alarmed.
-- He went silent.
-- He had looked similarly alarmed when he suggested I come live with him in Texas, that I could have the room at the top of the stairs and I said, *is it the attic room*, as a joke (you know, mad woman lives in the attic, never comes down, controlled...) and he looked so alarmed.
+- He frowned and went silent for a long time.
+- He had looked similarly alarmed when he suggested I come live with him in Texas in the first week of the course, that I could have the room at the top of the stairs and I said, *is it the attic room*, as a joke (you know, mad woman lives in the attic, never comes down, controlled...) and he looked so alarmed that I had clearly declined.
+- Is that why they decided to stop playing nice with me in the second week?
 - Is he the similarly unconsenting father?
-- Is this why they put [hundreds of thousands into trying to get us together](../2025/september.md#weddings-at-the-church)?
+- Or is he 100% aware of the theft of my eggs and has in fact approved it and has been fielding requests from women who want to be mothers of my children?
+- Is this why they put [hundreds of thousands into trying to get me and Steve together](../2025/september.md#weddings-at-the-church)?
+- They seemed to have some desire that I experience motherhood of my own children, but only one of them!
+- When a relationship was Steve was obviously not going to work for them, they kept on trying to set up new men sith whom I might be a parent for one of my "adopted" children. 
 - Is my little oeuf destined for a life as a lab rat?
-- I'm going to pray it's not so.
+- I'm going to pray it's not so but look at how they treat Steve!
 - This is so hard.
 - Thousands may have raped me but this, if true, is infinitely more violating.
 - I notice another possible entry point for pinhole surgery, and that appeared back in November in Bangkok.
-- Is this the real reason behind the endless distraction and lies, just letting me wander around, maybe crash the car, maybe get drugged again at Lourdes, zero concern for my health and safety and wellbeing, just to keep me busy while they get what they want?
+- Is this the real reason behind the endless distraction and lies, just letting me wander around, maybe crash the car, zero concern for my health and safety and wellbeing, just to keep me busy while they get what they want?
 - And then I can be discarded.
 
 ### She reminds me of my mother
