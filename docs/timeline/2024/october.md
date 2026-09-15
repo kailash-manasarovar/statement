@@ -586,6 +586,18 @@ function googleTranslateElementInit() {
 - Over the next few weeks, I see fake accounts fly-by online with names like *dubious government official*, and similar.
 - They know.
 
+### Richard Freed is Paloma's boss
+
+- It turns out, Paloma works for the British Foreign office or MI5, and her boss is likely Richard Freed.
+- Richard Freed:
+    - Richard Freed who had been all over this twenty years ago and then everyone pretended they didn't know him.
+    - The man who - along with Loka Yoga, the Lopez Cano's and others - we can link directly to Stella; the head of at least one distribution network procuring British porn-product for sending to Spain with the intention of surveilling the porn gangs of Dénia; women that always end up traumatized and often end up murdered.
+    - The man who, along with Joy and other CIA departments, set me up to go into Dénia unawares in the same way, up to my ears in surveillance software.
+    - Richard Freed with links to disciple murders in Glastonbury and elsewhere.
+    - Richard Freed with links to Kabbalah groups who, along with Steve's people conspired to extract my eggs in clandestine surgeries and were likely planning to murder me when they were done if I didn't play nice.
+    - What else can we say about him...
+    - Do correct me if I'm wrong.
+
 ### Cullera
 
 - Paloma advised me to leave my apartment and go to Cullera to find a new place to live.
