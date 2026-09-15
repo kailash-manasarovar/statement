@@ -38,13 +38,13 @@ Before we get going, me and my beautiful feet, I have two important announcement
     1. Highly intuitive people with massive trauma histories that have no spiritual practice - these people are likely ideal for the more sinister tasks required of spies.
     1. God's chosen teachers described by Jesus in A Course In Miracles who may or may not have trauma histories - these people are probably not quite so easy to control.
 - Sadly, it looks like at least some of God's chosen teachers - once discovered - have been murdered, and it would be good to understand how that was at all justifiable.
-- So, we have Joy (intuitive program), then Shield (ACIM program), and then the wider American security services who probably muscled in early on, after some obvious "results" maybe, and made it impossible to maintain the *better way*.
+- So, we have Joy (intuitive program), then Shield (ACIM program), and then the wider American security services who probably muscled in early on, after some obvious "results" probably, and made it impossible to maintain the *better way*.
 - And today, these programs are doing more to protect evil than to bring the Light into the world, and that *mission*, as it were, is totally unhidden and universally accepted.
 
 ### Joy's fake accounts
 
-- So, understanding I'm part of this historical phenomena - without ever having realized I was (suspected from time to time perhaps but never understood the fuller implications of it) - I can now look back over the years of torture I endured in Dénia and see that, peppered throughout the online communications I was having with criminal gangs, there is evidence that the CIA via these programs were very much part of the torturing process.
-- They were totally disinterested in my horrific experiences, online and in person, and moreover totally disinterested in whatever is happening to British and other foreign women, and now the children and babies of Dénia and the region - and we can assuredly say this is due to their lies.
+- So, understanding I'm part of this historical phenomena - without ever having realized I was (suspected from time to time perhaps but never understood the fuller implications of it) - I can now look back over the years of torture I endured in Dénia and see that, peppered throughout the online communications I was having with criminal gangs, there is evidence that the CIA, via these programs, were very much part of the torturing process.
+- They were totally disinterested in my horrific experiences, online and in person, and moreover totally disinterested in whatever has been happening to British and other foreign women, and now the children and babies, in the region - and we can assuredly say this is due to their lies.
 - This is clear because the attacks on the vulnerable and innocent continue, and they *do* have the power to stop them, in the same way they've been *forbidding* anyone to do anything about them.
 - Anyway, here's a a list, and I'll keep adding to it as they come up - maybe you good folk tasked with abominations-without-your-knowledge can help me:
 
