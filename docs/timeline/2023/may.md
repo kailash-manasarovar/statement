@@ -387,7 +387,7 @@ function googleTranslateElementInit() {
 - Do Spanish hackers have illicit recordings from that dreadful day that prove American involvement?
 - If so, why wouldn't it be enough to make them leave everyone in peace?
 - Is this why they kept the Lopez Cano's angry - chosen perhaps for their lack of wisdom and predilection to anger and vengeance?
-- Did it suit them that the matter would never resolve?
+- Did it suit the Americans that the matter would never resolve?
 - Were the Spanish gangs making continual attempts at resolution which were ignored?
 - It would not surprise me.
 - After [intense stalking and harassment in March 2024](../../timeline/2024/march/13-end.md#distraction-then-drugging), and a serious assault while sedated which deprived my brain of oxygen for many minutes, I post a poll with this film as the winning option that describes the mood over the last year.
