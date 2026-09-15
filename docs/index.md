@@ -185,15 +185,15 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 - Imagine being able to rape the women you hate, and believing they'll never know about it?
 - Imagine looking for men who do that, and blackmailing them for life?
-- It turns out, they had been sedating and raping me for years already, long before the "switcheroo" events and my sex-slave porn-stardom at the Vilamar apartments of Carrer Furs, Dénia between 2022 and 2024.
-- I was repeatedly sedated, raped, and filmed in my apartments in Joan Fuster between 2014-2016, Passeig Periodista Ramon Ortega between 2012-2014, and even at my flat in Cami Llavador between 2006-2009.
+- It turns out, they had been sedating and raping me for years already, long before the "switcheroo" events and my sex-slave porn-stardom at the Vilamar apartments of Carrer Furs, Dénia, between 2022 and 2024.
+- I was repeatedly sedated, raped, and filmed in my homes in Joan Fuster between 2014-2016, Passeig Periodista Ramon Ortega between 2012-2014, and even in Cami Llavador between 2006-2009.
 - My father brought my mother to Dénia for the same reason in 2016.
 - I was sedated and raped in [Amsterdam in 2001](timeline/2001-to-2010/2001.md#amsterdam) by my boyfriend Brian and his criminal associates from North London and Dénia.
 - One of those criminal associates, a man with a severe facial disfigurement who may be related to another ex-boyfriend of mine Matthew Copeland, was set up to [repeat that event](timeline/2024/august.md#ugly) in France in 2024 when the gangs were panicking and needed someone to throw under the bus.
 - I was sedated and raped repeatedly in August-September of 1989 in Tottenham by North London rape-gangs.
 - I was sedated and raped by a multitude while believing I was a member of [the N8 band](timeline/pre-2001/1990.md#n8) between 1990-1992, and all the boyfriends I have had since then knew me for this reason and so continued the sedate-and-rape efforts.
 - It is likely that [Ray Archer's house in Queen's Avenue Muswell Hill](timeline/pre-2001/1996.md#ray-archer) was a brothel/rape-house that even my father and his mates visited.
-- And of course, not forgetting the [Polygon work's conference in Bali in May 2024](timeline/2024/may.md#bali) where I was sedated-and-raped for a whole week, multiple famous men in attendance.
+- And of course, not forgetting crypto-giant [Polygon's conference in Bali in May 2024](timeline/2024/may.md#bali) where I was sedated-and-raped for a whole week, multiple famous men in attendance.
 - Throughout my life, I have continually met other women who I now believe have suffered similarly.
 
 ### Police and government corruption
