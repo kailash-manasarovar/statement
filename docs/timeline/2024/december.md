@@ -45,8 +45,9 @@ function googleTranslateElementInit() {
 ## Trish Penny communicates terror again
 
 - Trish continues to contact me in ways that make me certain she knows what's been happening to me and that she must think I'm an idiot.
-- On the run up to the *conservatory-terror*, Trish had very obviously been instructed to say and do things on behalf of the criminal gangs that were intended to upset me and cause me anxiety.
-- One good example of this was her painting of a portrait of me dressed as a clown with my double chin over-pronounced, and this was emailed to me one evening while I was at my kitchen table at the exact moment some frequency trigger was applied on my devices' hardware, while I had just come under the effects of a recent hallucinogenic dose (something in my dinner perhaps?). 
+- On the run up to the *conservatory-terror* while out walking with the Brits, Trish had very obviously been instructed to say and do things on behalf of the criminal gangs that were intended to upset me and cause me anxiety - just like they did at the conservatory.
+- While the terror was fever-pitched, she continued to play this role.
+- One good example of this was her painting of a portrait of me dressed as a clown with my double chin over-pronounced, and this was emailed to me one evening while I was at my kitchen table at the exact moment some frequency trigger was applied on my devices' hardware, while I had just come under the effects of a recent hallucinogenic dose. 
 - I felt HORRENDOUS about her picture - more proof of how efficacious their emotional manipulation tech is - but it didn't make any logical sense to me at the time so I immediately filed it away as bogus.
 - Actually, I responded quickly to her email the moment she sent it, asking her about the picture to which she replied with some vague explanation.
 - The picture had been on display somewhere in the region and it wasn't the first "meaningful" painting she had informed me about on email.
