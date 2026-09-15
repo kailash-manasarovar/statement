@@ -48,7 +48,7 @@ function googleTranslateElementInit() {
 - He was nuts and I liked him. He may have been high quite a lot. I translated his Spanish for him a bit too. 
 - No-one ever called him Henry, but because you have been, I will.
 
-#### The Indian
+#### Randhir, call me Randy
 
 - There's an Indian man living in Canada, working for SAP he says - never stops working while on the trip.
 - He has a US mobile phone number.
@@ -60,6 +60,7 @@ function googleTranslateElementInit() {
 - That morning I had taken biscuits from him.
 - The group were sharing sweets and food around a lot, and we had stacks of water with us.
 - It could have been him, it could have been any of them.
+- Randy is a bit flirty with me too - how does this work, do they get bonuses if they manage to get someone in a relationship?
 
 #### Jyotir, Vilde, the Norwegian, my room mate
 
@@ -74,12 +75,14 @@ function googleTranslateElementInit() {
 - They weren't.
 - Jyotir could have done it, she had constant access to me and my belongings.
 - She said she had nearly been a flight attendant but decided she didn't want to fly everywhere for environmental reasons, and then ended up flying everywhere anyway, and neglected to tell me what her job had been or actually was.
-- She was off to stay at Amma's ashram in South India.
+- She was off to stay at Amma's ashram in South India, apparently.
+- Jyotir told me that the men's (Randy and Mani's) relationships were breaking down and I knew what she was doing.
 
 #### Mani
 
 - A British Sikh from Nuneaton (who I had initially thought was Muslim and still wonder because of the accent).
 - We got on but he was trying it on a bit and he was obviously a spy.
+- He kept telling me about how he's thinking about adopting a baby, but he doesn't think his wife will agree ! Hmmm, now, isn't it.
 - He was sharing with Henry.
 - Henry introduced him as Gerald before anyone met him; he said Gerald had arrived already and was sleeping.
 - Mani and the Canadian became "available men" over the trip, and Jyotir made sure to tell me.

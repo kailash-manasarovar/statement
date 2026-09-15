@@ -241,9 +241,13 @@ function googleTranslateElementInit() {
 ### A first roasting
 
 - Yeah, I didn't know why they turned on me on that course, but they certainly did.
-- It was the second course, module 3, with [the cohort I had met in September](../2025/september.md#dublin-transforming-touch-therapy-with-steve).
+- It's possibly because I turned down Steve's offer to go live with him in Texas.
+- As a prelude, Robin and Steve were testing my trigger reactions. One such test was while we were waiting to go to lunch, and Robin pipes up, *oh my friend Damien has just called me*, and I know she's testing to see how I react to my dad's name.
+- So I say: *Damien, the ultimate in horror*, in my film movie announcer voice. And she doesn't mention it again.
+- So they were poking already, but it was the second course, module 3, with [the cohort I had met in September](../2025/september.md#dublin-transforming-touch-therapy-with-steve) where the group really turned on me.
 - Guilt expressed maybe?
 - A test to see how I might take a bit of psychological torture?
+- I had already had a bit of that in consultation so it wasn't a huge surprise. And this particular group - that they had formed right after poisoning and the UN kidnap in July/August 2025 - was full of really obvious spies.
 - Before they started in on me, just before the course started, I had received a query from the [Transforming Touch referral system](https://coregulatingtouch.com/) - where people can contact you if you want healing.
 
 ![Co-regulating touch](../../content/images/co-regulating-touch.jpg)
