@@ -56,7 +56,7 @@ Before we get going, me and my beautiful feet, I have two important announcement
 - It had the face of Bruno (Gloria the school receptionist's brother) all the way back in 2023.
 - They know names, faces, everything about these people and they simply do not care that they've gone totally porn mad because of the *LIE* that keeps them untouchable.
 
-#### Choral Symphony
+#### Ich heisse Joy
 
 ![Choral Symphony](../../content/tweets/march-2024/ludwig-van-b.png)
 
