@@ -114,13 +114,13 @@ function googleTranslateElementInit() {
 - Fiona talked about her a little; the woman had been a friend of hers and had been a serious student of A Course In Miracles.
 - I could tell.
 - I forget the name and details but she referred to her as *my love*.
-- Someone asked where she is now.
+- Someone asked what happened to her.
 - Fiona tells us she was murdered.
 - Everyone's a bit shocked.
 - Fiona didn't seem sad when she told us she'd been murdered, or perhaps she was angry still.
 - Later, she plays Alicia Keys, Empire State of Mind (Part II) Broken Down and she's gushing about the song, it's not clear why.
 - I find all this a bit strange, notable, exaggerated, offkey, rememberable, remarkable.
-- I emailed Fiona in 2023 maybe asking for a link to the Glastonbury woman's music.
+- I emailed Fiona in 2023 asking for a link to the Glastonbury woman's live-recordings.
 - There was no reply. 
 - Did the CIA move in to control this woman carrying the Light; and she refused?
 - Does everyone in Glastonbury know what happened?
