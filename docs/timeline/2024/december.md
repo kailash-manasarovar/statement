@@ -82,14 +82,12 @@ function googleTranslateElementInit() {
 - The reference to Amale's kitchen is utterly beyond me.
 - Oh wait, I'm Amale (love him?) and this is confirmation that my status as a CIA intuitive spy sent into hell to report back on - or retrieve even - the stash is well-known to all?
 - It's just mind-blowing.
-- Well, my lovelies, I have my own plans for the stash which involve God alone, and His Word - nothing double-edged.
-- I hope that's not dreadfully presumptive (although I have been banging on about it for a while now) and that my friend shares my inspired plans.
-- I guess I'm the only one who asked nicely, and they must have thought it defaulted to "on their behalf", but no, not at all.
-- And I made a promise too.
+- Well, my lovelies, God has His own plans which involve Him alone, and His Word - nothing double-edged, no-one who thinks they replace Him and can do better.
 
 ![The most wonderful thing ever](../../content/tweets/august-comms/jackchardwood/making-promises.png)
 
-- Which I plan on keeping.
+- Trish always sounds severely traumatized to me; in writing, in speaking.
+- What hell did she and her family go through, something she's alluding to here? And was it at all necessary?
 
 ## So, Janet, asks me to run an X Space about hacking
 
