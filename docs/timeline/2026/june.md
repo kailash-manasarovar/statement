@@ -299,6 +299,13 @@ function googleTranslateElementInit() {
 - At breakfast, some of them are giggling at me as I walk past.
 - Was Elon there to supply some bodily fluids for his latest rape-porn-themed trophy, and take the opportunity to mock me at the same time?
 
+### Adoptive parents?
+
+- Did the black woman with the two small daughters that made pizzas with Mr Surya and my other friends; the woman with the white husband who kept greeting me in a spy-like way; did they get an egg?
+- Were they showing me their family to somehow offset the guilt?
+- Is it?
+- Outrageous!
+
 ### Memories
 
 - I realize I came to Bali and stayed here because it's right next door to the Hyatt where I was sedated and raped by hundreds probably for a whole week in May 2024 with work on a work's event with the whole company and their special guests from all over the world.
