@@ -23,9 +23,13 @@ function googleTranslateElementInit() {
 - On one walk with the English ladies, I have a leak in my bag and Hanuman pops out onto the ground as I sort out my stuff.
 - The ladies laugh at my silliness and one of them asks me who Hanuman is.
 - I explain.
-- The ladies very much enjoy the story of Hanuman; except, as I am informing them that Hanuman protects women and children from evil men, I notice Patricia is standing a little bit away and looking downwards. She doesn't join in the conversation.
+- The ladies very much enjoy the story of Hanuman; except, as I am informing them that Hanuman protects women and children from evil men.
+- I notice Patricia is standing a little bit away and looking downwards, texting.
+- She doesn't join in the conversation.
 
 <iframe width="857" height="228" src="https://www.youtube.com/embed/xAEbrieJsOU" title="Hanuman Ashtottara Namavalli | 108 Names of Lord Hanuman – Must Listen to Remove Negative Energy" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+- Has she been instructed to report on anything unusual I do because they know I'm a CIA intuitive spy?
 
 ## Walking in Benijembla with the English ladies
 
