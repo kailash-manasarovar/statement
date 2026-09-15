@@ -46,14 +46,14 @@ Before we get going, me and my beautiful feet, I have two important announcement
 - So, understanding I'm part of this historical phenomena - without ever having realized I was (suspected from time to time perhaps but never understood the fuller implications of it) - I can now look back over the years of torture I endured in Dénia and see that, peppered throughout the online communications I was having with criminal gangs, there is evidence that the CIA via these programs were very much part of the torturing process.
 - They were totally disinterested in my horrific experiences, online and in person, and moreover totally disinterested in whatever is happening to British and other foreign women, and now the children and babies of Dénia and the region - and we can assuredly say this is due to their lies.
 - This is clear because the attacks on the vulnerable and innocent continue, and they *do* have the power to stop them, in the same way they've been *forbidding* anyone to do anything about them.
-- Anyway, here's a a list, I'll keep adding to it as they come up, maybe you good folk tasked with abominations without your knowledge can help me:
+- Anyway, here's a a list, and I'll keep adding to it as they come up - maybe you good folk tasked with abominations-without-your-knowledge can help me:
 
 #### Susan
 
 ![Joy Susan](../../content/images/joy-accounts/joy-susan.png)
 
 - Remember this one?
-- It was an AI mix of the face of Bruno the trumpet teacher, and Gloria the school receptionist - his sister, and others, all the way back in 2023. 
+- Previously, the profile pic was an AI mix of the face of Bruno the trumpet teacher, and Gloria the school receptionist - his sister, and others, all the way back in 2023. 
 - Here it is:
 
 ![Joy Susan with Bruno's face](../../content/images/fake-accounts/ai-mix-of-trumpet-teachers-and-gloria.png)
@@ -64,7 +64,7 @@ Before we get going, me and my beautiful feet, I have two important announcement
 
 ![Choral Symphony](../../content/tweets/march-2024/ludwig-van-b.png)
 
-- Taking advantage of my belief that this account was managed by Hazel Smith, they rampaged over my hacked browser talking endlessly to the Spanish gangs.
+- Taking advantage of my belief that this account was managed by Hazel Smith, the Americans rampaged over my hacked browser talking endlessly to the Spanish gangs.
 - I mean, what exactly were they trying to do at that time?
 - It makes no sense apart from an inability to leave people in peace, I guess, because they are certainly not interested in law enforcement at all, we know this.
 - Oh look, Snoopy's there too! Who'd a thunk it.
@@ -72,9 +72,9 @@ Before we get going, me and my beautiful feet, I have two important announcement
 ## I'm so annoyed at you all
 
 - So why the frantic, panicky, constant interference in other people's lives?
-- There's two reasons, both of which include, or require even, the TOTAL DISINTEREST in the rampant sexually-psychotic evildoing going on in the region and the world:
+- There's two reasons, both of which include, or require even, the TOTAL DISINTEREST in the out-of-control, sexually-psychotic evildoing going on in the region and the world:
     1. The need to protect a lie so gargantuan that if anyone found out about it utter and complete disintegration would be inevitable - even 300 years of redaction wouldn't save them if they had paid the Lopez Cano's, and they know it too.
     1. The desire to steal a weapon. And let's be clear, people like this, who forgot about God - if they had such a weapon - would destroy the whole world with it, including themselves, in less than a decade (oh wait..).
-- And I'd like to be very clear here, if you think Jesus came down with the Course when that tiny sliver of Light got in in the 60s, without knowing you'd all f*ck up so tragically, so spectacularly, in every way possible, without knowing that a good chunk of his followers would get to carousing, you really have no idea about God.
+- And I'd like to be very clear here, if you think Jesus came down with the Course when that tiny sliver of Light got in in the 60s, without knowing you'd all f*ck up so tragically, so spectacularly, in every way possible, without knowing that one of his followers would side with evil against him again, and a good chunk of them would get to carousing, you really have no idea about God.
 - I hope you're ashamed of yourselves. At least that would imply some retention of humanity.
 - The irony being, of course, anyone who can't look me in the eye has retained some.
