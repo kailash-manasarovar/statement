@@ -106,6 +106,26 @@ function googleTranslateElementInit() {
 - She's normalizing my constant lack of balance, however.
 - One has to wonder if she was told to use my exact words and, if so, by whom.
 
+### A murdered Course In Miracles student
+
+- Fiona starts playing music.
+- One recording is of a woman playing live in Glastonbury (somewhere in the town rather than the festival - to be clear).
+- The Light is streaming from this woman's voice.
+- Fiona talked about her a little; the woman had been a friend of hers and had been a serious student of A Course In Miracles.
+- I could tell.
+- I forget the name and details but she referred to her as *my love*.
+- Someone asked where she is now.
+- Fiona tells us she was murdered.
+- Everyone's a bit shocked.
+- Fiona didn't seem sad when she told us she'd been murdered, or perhaps she was angry still.
+- Later, she plays Alicia Keys, Empire State of Mind (Part II) Broken Down and she's gushing about the song, it's not clear why.
+- I find all this a bit strange, notable, exaggerated, offkey, rememberable, remarkable.
+- I emailed Fiona in 2023 maybe asking for a link to the Glastonbury woman's music.
+- There was no reply. 
+
+1. Fiona is the key. Saint Michael's team told me Fiona and I remembered my old friend Fiona Thompson but they did not look like each other. I thought it could be Fiona from Wearyall Hill, but it didn't make sense so I went with Hazel. It's her. *And* she's an old friend.
+
+
 ## The landlady changes the bank account for the rent
 
 - At the beginning of August, Bea instructs me to change the bank account I pay my rent into.

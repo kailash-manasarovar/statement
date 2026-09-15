@@ -65,7 +65,7 @@ function googleTranslateElementInit() {
 - I had an interesting dream shortly after my aunt Mairead died.
 - A cherub - that reminded me of something in Dénia, and I even went looking for its painting in the churches there when I moved back (couldn't find it) - flew in through the door and picked me up in its arms and we flew over to the rock at Massabielle and went inside.
 - There were cherubs sitting in a circle and I was brought into the circle and I sat very closely to the cherub who had picked me up, who reminded me of a girl I went to school with, Fiona.
-- But the cherub's face wasn't like Fiona's at all, but for some reason it reminded me of her.
+- But the cherub's face wasn't like Fiona's at all, but for some reason it reminded me of her, an old friend.
 - And then the boss came, Archangel Michael, and he was like an enormous ... I don't have words really ... and I was so scared I started crying and the cherub comforted me.
 - On [Deso](https://desocialworld.com/u/KingForg?tab=posts), I said it had felt like a job interview, and it had somehow.
 
@@ -76,6 +76,4 @@ function googleTranslateElementInit() {
 - I had thought that there were paintings of cherubs just like the one who whisked me off in one of the churches in Dénia, and in 2022 I went to look for them, but there weren't any.
 - I wonder if this feeling I had in the dream about the cherub was a comforting signpost to the existence of a person with strong faith in Dénia - even though no-one else believed him - who was going to help me.
 - When I did [the detox in Glastonbury in 2022](../2022/july.md#glastonbury), the female host was called Fiona, and I thought maybe the dream was something to do with her, but that really didn't make any sense.
-- You know, I wonder, could Hazel Smith's real name be Fiona?
-- Or is it the name of the woman who heads up the global long-game investigation that's finally about to...?
-- Probably not. In August 2026, I don't believe they're interested in stopping the rape-porn rot at all.
+- Although, if [Fiona's friend's murder is the connection](../2022/july.md#a-murdered-course-in-miracles-student), then it makes a lot of sense.

@@ -4,13 +4,6 @@
 
 ## TODO: list
 
-### July 2022
-
-1. Fiona's murdered ACIM student - July 2022 Glastonbury Wearyall Hill. Fiona played us her singing live in Glastonbury Town Hall in the 90s I think, and called her "my love". She didn't seem sad when she told us she'd been murdered. I guess she got over it, or perhaps she's angry, unclear. She then plays, inordinately gushing as she does so, New York (the r&b one, female singer, is it Beyonce, I've no idea... never grabbed me much). I find all this a bit strange, notable, exaggerated, offkey, rememberable. 
-1. I emailed Fiona at some point asking for a link to her music. I was going to put it on one of my "play lists" so I guess it was around summer 2023 I reached out to her. There was no reply. Did she get the email?
-1. Fiona is the key. Saint Michael's team told me Fiona and I remembered my old friend Fiona Thompson but they did not look like each other. I thought it could be Fiona from Wearyall Hill, but it didn't make sense so I went with Hazel. It's her. *And* she's an old friend.
-1. Karina is coming up now, but I'm not sure who she is. Is that Hazel?
-1. Stein came up... but I don't know who this is. Judith Stein is ringing around my ears but Stein might also have been the woman who upset me in Dublin. Maybe this is the *Karina*... I guess we'll find out.
 
 ### November 2022
 
