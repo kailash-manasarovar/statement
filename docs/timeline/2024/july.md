@@ -447,3 +447,12 @@ function googleTranslateElementInit() {
 - I do try to go to the beach in the afternoon as there are a lot of tourists there and I believe this makes me relatively safer.
 - Down at the Las Marinas beach, young men come up to me and make references to coffee at the Mena restaurant, or other parts of our conversation we've had that day.
 - I wear my hiker's camera on these outings.
+
+### Constant assurance I should side with the Lopez Cano's
+
+- This was another message I received endlessly via my hacked browser after Bali.
+- That it is *better* with them.
+- I was not impressed, but I also believed the Lopez Cano's were sending me these messages themselves, pretending to be someone rare person with advice for me.
+- In September 2026, I believe messages like these came directly from the salmon mousses who were probably a little surprised at my resilience levels.
+- Did they organize the Elon scam too?
+- I bet they did. Cos there's someone they need to control, isn't it.
