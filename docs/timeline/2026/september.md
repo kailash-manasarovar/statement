@@ -45,7 +45,7 @@ Before we get going, me and my beautiful feet, I have two important announcement
 
 - So, understanding I'm part of this historical phenomena - without ever having realized I was (suspected from time to time perhaps but never understood the fuller implications of it) - I can now look back over the years of torture I endured in Dénia and see that, peppered throughout the online communications I was having with criminal gangs, there is evidence that the CIA via these programs were very much part of the torturing process.
 - They were totally disinterested in my horrific experiences, online and in person, and moreover totally disinterested in whatever is happening to British and other foreign women, and now the children and babies of Dénia and the region - and we can assuredly say this is due to their lies.
-- This is clear, because it's still happening.
+- This is clear because the attacks on the vulnerable and innocent continue, and they *do* have the power to stop them, in the same way they've been *forbidding* anyone to do anything about them.
 - Anyway, here's a a list, I'll keep adding to it as they come up, maybe you good folk tasked with abominations without your knowledge can help me:
 
 #### Susan
