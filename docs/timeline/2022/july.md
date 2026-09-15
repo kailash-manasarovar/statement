@@ -122,9 +122,8 @@ function googleTranslateElementInit() {
 - I find all this a bit strange, notable, exaggerated, offkey, rememberable, remarkable.
 - I emailed Fiona in 2023 maybe asking for a link to the Glastonbury woman's music.
 - There was no reply. 
-
-1. Fiona is the key. Saint Michael's team told me Fiona and I remembered my old friend Fiona Thompson but they did not look like each other. I thought it could be Fiona from Wearyall Hill, but it didn't make sense so I went with Hazel. It's her. *And* she's an old friend.
-
+- Did the CIA move in to control this woman carrying the Light; and she refused?
+- Does everyone in Glastonbury know what happened?
 
 ## The landlady changes the bank account for the rent
 
