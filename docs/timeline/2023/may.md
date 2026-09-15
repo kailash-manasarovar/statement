@@ -375,22 +375,36 @@ function googleTranslateElementInit() {
 
 ![Man with headphones](../../content/tweets/man-with-headphones.JPG)
 
-- [The Lives of Others](https://en.wikipedia.org/wiki/The_Lives_of_Others) is about the secret police listening into residents' lives in East Germany during the Cold War. The irony was lost on me at the time.
-- After [intense stalking and harassment in March 2024](../../timeline/2024/march/13-end.md#distraction-then-drugging), and possible serious physical assault while sedated, I post a poll with this film as the winning option that describes the mood over the last year.
+- [The Lives of Others](https://en.wikipedia.org/wiki/The_Lives_of_Others) is about the secret police listening into residents' lives in East Germany during the Cold War. The irony was lost on me at the time, as was the message from the Spanish to the mousses hidden - to me - in the tweet.
+
+!!! quote "Translating a direct message from the Spanish gangs to the Americans"
+    What rotten timing! Ours had a terrible time; during the first week he came out of school looking like he’d been in a plane crash. He never refused to go, but he was terribly sad and disoriented. What a horrible first month it was for everyone. Better not to think about it too much. Maybe he’ll handle it brilliantly.
+    </br>There’s still time to get used to the idea...
+
+- Are they referring to me, a known CIA intuitive and the current British target of the Lopez Cano's vengeance program?
+- Is the "upset and disoriented" referring to constant attacks and faeces in my knickers reported to Robin, a well-known CIA intuitive operator?
+- Is "plane crash" a reference to Lockerbie and "What rotten timing!" about how the flight had been delayed and so didn't go down over the Atlantic?
+- Do Spanish hackers have illicit recordings from that dreadful day that prove American involvement?
+- If so, why wouldn't it be enough to make them leave everyone in peace?
+- Is this why they kept the Lopez Cano's angry - chosen perhaps for their lack of wisdom and predilection to anger and vengeance?
+- Did it suit them that the matter would never resolve?
+- Were the Spanish gangs making continual attempts at resolution which were ignored?
+- It would not surprise me.
+- After [intense stalking and harassment in March 2024](../../timeline/2024/march/13-end.md#distraction-then-drugging), and a serious assault while sedated which deprived my brain of oxygen for many minutes, I post a poll with this film as the winning option that describes the mood over the last year.
 
 [![Lives of others](../../content/tweets/march-2024/the-lives-of-others.jpg)](https://x.com/1FRGVN/status/1772062320069398540)
-
-- The tweets below were part of the screenshot I took and didn't bother to edit. They were not related to the Lives of Others tweet.
 
 ### Translated threats
 
 - It just occurred to me to look up the translation of the other tweets above; time of writing 25th April 2025.
 - Notice the translation of '10' into something rather sinister.
-- These sorts of rewritten-UI threats have been ongoing on X, and elsewhere, while British and Spanish criminal gangs have had access to my machines and are angry with me because their evil is backfiring on them.
+- And notice the poorly translated "great aim", as if to hide the original.
+- These sorts of rewritten-UI threats have been ongoing on X, and elsewhere, while British and Spanish criminal gangs have had access to my machines and are angry with me because their evil is backfiring on them. At least, that's what I thought for a long time.
 
 ![Translated threat](../../content/tweets/man-with-headphones-translated.png)
 
 - The Metropolitan police have told me this sort of thing is not a threat or worth investigating.
+- How could I possibly know they have been forbidden to help me by the salmon mousses!
 
 ### A Course In Miracles
 

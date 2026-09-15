@@ -4,16 +4,6 @@
 
 ## TODO: list
 
-### Jan-May 2023
-
-- Is this the moment to tell them about the impressions I was doing of her when walking through the tunnel on my way home from the conservatory, totally high, and probably just dosed up with a sedative kicking in.
-- There'll be footage of that.
-- I can still feel my face going into that position... I never knew what that was all about, hadn't a clue. Just a simple servant of the Lord.
-
-### May 2023
-
-1. May 2023: The lives of others. The message in the tweet (if you translate it) is astonishing. I can't believe I missed it all, it was so obvious. I guess this is proof I was totally out of my mind on herbs, drugs, hallucinogens, whatever. And, I guess many of the tweets I have posted in this police statement must be similarly breathtaking.
-
 ### August 2023
 
 - These dates have been tampered with: [Torus email](content/documents/emails/torus-scam-email-august-2023.pdf) because I was interacting with this recruiter in Cauterets at my desk in the hotel there, not at home. This Morgan McCarthy no longer exists on LinkedIn. I think this was part of the set up for me taking a job with Polygon with the Elon scam already in play.
