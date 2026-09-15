@@ -183,26 +183,18 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ### Sedated-rape
 
-- It turns out, they had been sedating and raping me for years already, long before the "switcheroo" events and my sex-slave porn-stardom at the Vilamar apartments of Carrer Furs, Dénia.
-- I believe I was repeatedly sedated, raped, and filmed in my apartments in Joan Fuster between 2014-2016, Passeig Periodista Ramon Ortega between 2012-2014, and even at my flat in Cami Llavador between 2006-2009.
-- I was sedated and raped in [Amsterdam in 2001](timeline/2001-to-2010/2001.md#amsterdam) by my boyfriend Brian and his criminal associates from North London and Denia.
-- One of those criminal associates, a man with a severe facial disfigurement who may be related to another ex-boyfriend of mine Matthew, was set up to [repeat that event](timeline/2024/august.md#ugly) in France in 2024 when the gangs were panicking and needed someone to throw under the bus.
+- Imagine being able to rape the women you hate, and believing they'll never know about it?
+- Imagine looking for men who do that, and blackmailing them for life?
+- It turns out, they had been sedating and raping me for years already, long before the "switcheroo" events and my sex-slave porn-stardom at the Vilamar apartments of Carrer Furs, Dénia between 2022 and 2024.
+- I was repeatedly sedated, raped, and filmed in my apartments in Joan Fuster between 2014-2016, Passeig Periodista Ramon Ortega between 2012-2014, and even at my flat in Cami Llavador between 2006-2009.
+- My father brought my mother to Dénia for the same reason in 2016.
+- I was sedated and raped in [Amsterdam in 2001](timeline/2001-to-2010/2001.md#amsterdam) by my boyfriend Brian and his criminal associates from North London and Dénia.
+- One of those criminal associates, a man with a severe facial disfigurement who may be related to another ex-boyfriend of mine Matthew Copeland, was set up to [repeat that event](timeline/2024/august.md#ugly) in France in 2024 when the gangs were panicking and needed someone to throw under the bus.
 - I was sedated and raped repeatedly in August-September of 1989 in Tottenham by North London rape-gangs.
-- And of course, [whatever was going on at my work's event in Bali in May 2024](timeline/2024/may.md#bali), with me in the starring role, is extraordinarily indicative of nightly sedated-rape by my crypto-tech colleagues and their friends.
-- These are the sedated-rape events I'm sure about but it would not surprise me if there were many, many more.
-- I believe British gangs colluded with my father from as early as 1989 when child-rape-porn starring myself was disseminating through the networks.
-- I expect the people that showed him these films were instrumental in his unusual and sudden decisions to visit me in Spain in 2013, 2015, and in 2016 when he brought my mother with him.
-- He had never visited me before, ever, without an exceptional reason to do so, and was habitually totally disinterested in anything going on in my life.
-- I believe he was set up to [take a starring role](timeline/2011-to-2020/2015.md#inexplicable-anal-fissure) in an incest-porn special filmed at Joan Fuster in 2015 which everyone knows about.
-- During the gang-stalking terror at the conservatory, the *father* meme was reinforced constantly as if the whole town had watched my father anally-rape me while sedated, grinning in the bathroom after I woke up injured to see him run out of my bedroom door.
-- When my mother visited with him in 2016, they stayed at the Hotel Costa Blanca; the same establishment in which I experienced an inexplicable emotional reaction the night after my first piano lesson with Domingo Lopez Cano in September 2014.
-- My mother experienced a panic attack while staying there with my father in early Spring of 2016, and they even went to A&E because she thought she was having a heart attack.
-- My father did not want to tell me about it, and had told my mother not to tell me, but she told me over lunch the next day.
-- My father's involvement in all this finally triggered a severe suicidal depression for which I had no context and thus assumed had to be again related to the 1989 North London attacks. 
-- This depression, ironically, prompted me to report a more detailed history about what had happened to me in 1989 to the Metropolitan Police.
-- While I was writing [that police statement online in 2015](timeline/2011-to-2020/2015.md#statement-to-the-metropolitan-police), the criminals were relishing every word.
-- In 2023, during the gang-stalking at the conservatory, teachers, staff, students, and townsfolk repeated words, phrases, and acted-out scenes taken directly from this police statement.
-- And incidentally and ironically, suspected victim [Maria, with the swollen liver](timeline/2011-to-2020/2015.md#vipasana-maria), had signed this statement as a witness. 
+- I was sedated and raped by a multitude while believing I was a member of [the N8 band](timeline/pre-2001/1990.md#n8) between 1990-1992, and all the boyfriends I have had since then knew me for this reason and so continued the sedate-and-rape efforts.
+- It is likely that [Ray Archer's house in Queen's Avenue Muswell Hill](timeline/pre-2001/1996.md#ray-archer) was a brothel/rape-house that even my father and his mates visited.
+- And of course, not forgetting the [Polygon work's conference in Bali in May 2024](timeline/2024/may.md#bali) where I was sedated-and-raped for a whole week, multiple famous men in attendance.
+- Throughout my life, I have continually met other women who I now believe have suffered similarly.
 
 ### Police and government corruption
 
