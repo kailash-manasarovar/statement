@@ -91,7 +91,7 @@ function googleTranslateElementInit() {
 
 - Trish always sounds severely traumatized to me; in writing, in speaking.
 - What hell did she and her family go through, something she's alluding to here? And was it at all necessary?
-- My view is that without the mousse's decades-old choke-hold on the British, no.
+- My view is that without the mousse's decades-old choke-hold on the British, it would have been totally unnecessary.
 
 ## So, Janet, asks me to run an X Space about hacking
 
