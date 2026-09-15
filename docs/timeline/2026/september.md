@@ -46,6 +46,26 @@ Before we get going, me and my beautiful feet, I have two important announcement
 - So, understanding I'm part of this historical phenomena - without ever having realized I was (suspected from time to time perhaps but not really understood the fuller implications of it) - I can now look back over the years of torture I endured in Dénia and see that peppered throughout the online communications I was having with criminal gangs, there is evidence that the CIA via these programs were very much part of the torturing process.
 - They were totally disinterested in my horrific experiences, online and in person, and moreover totally disinterested in whatever is happening to British and other foreign women, and now the children and babies of Dénia and the region - we can assuredly say due to their lies.
 - This is clear, because it's still happening.
+- Anyway, here's a a list, I'll keep adding as they come up, maybe you good folk tasked with abominations can help me:
+
+#### Susan
+
+![Joy Susan](../../content/images/joy-accounts/joy-susan.png)
+
+- Remember this one?
+- It had the face of Bruno (Gloria the school receptionist's brother) all the way back in 2023.
+- They know names, faces, everything about these people and they simply do not care that they've gone totally porn mad because of the *LIE* that keeps them untouchable.
+
+#### Choral Symphony
+
+![Choral Symphony](../../content/tweets/march-2024/ludwig-van-b.png)
+
+- Taking advantage of my belief that this account was Hazel, they rampaged over my hacked browser talking endlessly to the Spanish gangs.
+- I mean, what exactly were they trying to do at that time?
+- It makes no sense apart from an inability to leave people in peace, I guess, because they are certainly not interested in law enforcement at all, we know this.
+
+## I'm so annoyed at you all
+
 - So why the frantic, panicky, constant interference in other people's lives?
 - There's two reasons, both of which include or require even the TOTAL DISINTEREST in the rampant evildoing going on in the region:
     1. The need to protect a lie so gargantuan, that if anyone found out about it, utter and complete disintegration would be inevitable.
