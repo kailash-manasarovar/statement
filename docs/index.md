@@ -189,7 +189,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 - I was repeatedly sedated, raped, and filmed in my homes in Joan Fuster between 2014-2016, Passeig Periodista Ramon Ortega between 2012-2014, and even in Cami Llavador between 2006-2009.
 - My father brought my mother to Dénia for the same reason in 2016.
 - I was sedated and raped in [Amsterdam in 2001](timeline/2001-to-2010/2001.md#amsterdam) by my boyfriend Brian and his criminal associates from North London and Dénia.
-- One of those criminal associates, a man with a severe facial disfigurement who may be related to another ex-boyfriend of mine Matthew Copeland, was set up to [repeat that event](timeline/2024/august.md#ugly) in France in 2024 when the gangs were panicking and needed someone to throw under the bus.
+- One of those criminal associates, a man with a severe facial disfigurement who may be related to another ex-boyfriend of mine Matthew Copeland, was set up to [repeat that event](timeline/2024/august.md#ugly) in France in 2024 when the porn-gangs were panicking and needed someone to throw under the bus.
 - I was sedated and raped repeatedly in August-September of 1989 in Tottenham by North London rape-gangs.
 - I was sedated and raped by a multitude while believing I was a member of [the N8 band](timeline/pre-2001/1990.md#n8) between 1990-1992, and all the boyfriends I have had since then knew me for this reason and so continued the sedate-and-rape efforts.
 - It is likely that [Ray Archer's house in Queen's Avenue Muswell Hill](timeline/pre-2001/1996.md#ray-archer) was a brothel/rape-house that even my father and his mates visited.
