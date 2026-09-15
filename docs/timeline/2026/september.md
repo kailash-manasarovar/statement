@@ -63,6 +63,7 @@ Before we get going, me and my beautiful feet, I have two important announcement
 - Taking advantage of my belief that this account was Hazel, they rampaged over my hacked browser talking endlessly to the Spanish gangs.
 - I mean, what exactly were they trying to do at that time?
 - It makes no sense apart from an inability to leave people in peace, I guess, because they are certainly not interested in law enforcement at all, we know this.
+- Oh look, Snoopy's there too! Who'd a thunk it.
 
 ## I'm so annoyed at you all
 
