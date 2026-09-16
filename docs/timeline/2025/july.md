@@ -362,6 +362,12 @@ function googleTranslateElementInit() {
 - Who knows what else they're up to.
 - Perhaps they're trying to create a master race! That's it, isn't it!
 
+#### Massive farts up the mountain
+
+- The day after surgery, I believe it must have been, I went up into the high mountains.
+- I was farting like a hippo.
+- I think the farting is to do with the CO2 in the abdomen for keyhole surgery and it wasn't the first time this happened.
+
 ## More threats
 
 - I also see threatening pics on my mobile device which remind me very much of [the violent threats I received on X in March 2024](../2024/march/13-end.md#online-stalking-and-threats-over-this-period).
