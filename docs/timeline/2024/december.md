@@ -495,6 +495,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - We have a long WhatsApp chat which I didn't keep.
 - He tells me he's in Bali.
 - It's really nice to speak to someone normal that knows me, but he's not telling me anything I need to know, and I get the feeling he does know what's going on, and it's all hush hush, so I leave it there.
+- I'm thinking, if the criminal gangs know I have a friend in the Foreign Office they might decide to leave me alone.
 - I don't hear from him again.
 
 ## A shift in the game
