@@ -26,7 +26,7 @@ Before we get going, me and my beautiful feet, I have two important announcement
 
 - *Joy* is the codename, or real name, of the spy intuitive program that US trauma therapy groups, such as Transforming Touch and Somatic Experiencing, recruit through.
 - Steve even told us this formally (or just me and maybe one or two others of that cohort) on a course sometime in 2025.
-- I was out of my mind with panic and anxiety (so probably January 2025) and Steve describes how security services like to recruit people with histories of severe trauma for a number of reasons, one being their ability to withstand hugely intense situations in ways that other people can't.
+- I was out of my mind with panic and anxiety (so probably January 2025) and Steve describes how security services like to recruit people with histories of severe trauma for a number of reasons, one being their ability to withstand hugely intense situations in ways that other people can't. So much for healing, Steve.
 - In April 2026, Joy started to reveal themselves to me more directly; for example through the [bogus email request for healing](april.md#a-first-roasting) and the consequent "roasting" I went through - confirmed online on a Facebook account (Snoopy on a spit roast).
 - I realized they had already been building up to revealing themselves through [Steve's consultations](march.md#transforming-touch-consultations), which I found so utterly unappealing I decided never to return.
 - Then in [Bali at Loka Yoga](july.md#loka-yoga), they dropped the mask completely - I believe most if not all of the class participants were "intuitives" and many of them had visible signs of extreme trauma.
