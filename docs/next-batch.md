@@ -4,8 +4,6 @@
 
 ## TODO: list
 
-
-
 ### February 2024
 
 1. Yes, the yoga class I'm referring to in this tweet about Ana was Natalia's class - Feb 2024.
