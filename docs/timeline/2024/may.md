@@ -686,6 +686,7 @@ function googleTranslateElementInit() {
 - I found it really strange.
 - No one else is grinding or behaving in a sexualized manner anywhere else.
 - Was I in a live rape show of some variety? 
+- I've been hearing it was mass-posted on TikTok. Could it be true?
 
 ### More missing time, missing mornings and nights, and remembering only two hours of a full day trip with Anthony
 

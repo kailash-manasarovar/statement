@@ -4,10 +4,6 @@
 
 ## TODO: list
 
-### February 2024
-
-1. Yes, the yoga class I'm referring to in this tweet about Ana was Natalia's class - Feb 2024.
-
 ### May 2024
 
 1. I heard Bali is all over Tiktok. And the mousses still wouldn't do anything about women sedated and mass-raped at work because of their sinister history? Letting Elon in on it, while he knew full well he'd be untouchable. It's incredible.
