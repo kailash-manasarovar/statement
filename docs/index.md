@@ -198,19 +198,21 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ### Police and government corruption
 
-- I reported hacking and gang-stalking to the Spanish police three times from March 2024; and each time I did, I emphasized my serious concerns about the safety of children studying at the conservatory of Dénia.
-- I reported hacking to the company I was working for in March 2024, [Polygon](timeline/2024/march/1-12.md#reporting-hacking-to-polygon-labs), and I told many of my colleagues there that I was being viciously gang-stalked by local criminals.
-- I had already reported gang-stalking by teachers and staff, and my serious concerns about children's safety, to the Spanish government department that runs the conservatories multiple times from October 2023.
-- It turns out, the *trumpet teacher porn-scam* is well known to the Spanish government's education board, the Generalitat, and has taken place many times before.
-- I never stopped trying to get help.
-- I must have written hundreds of letters and emails to organizations all over the world set up to, apparently, protect women and children in Spain and elsewhere.
-- My numerous complaints were, and continue to be, consistently ignored.
-- The porn-gangs of Dénia are untouchable.
-- Targets are often foreign women and children, or Spanish outsiders; those who don't know *how they do things* in the Valencian region. 
-- The conservatory is just one example of criminal porn-gang infiltration into the whole of society in the region - the most horrific bar the baby-rape industry.
-- All over Dénia, men young and old drive flashy new sports cars worth minimum $50K and upwards and this is a poor town with apparently zero industry.
-- I detail other unusual events taking place in and around the town, and often centred on the conservatory, that may point to international human trafficking.
-- I also believe that the unusual protections awarded to criminals in the town of Dénia has made the place somewhat infamous, and this infamy has attracted multiple criminal gangs to come and set up shop over the years with the understanding that they can do whatever they like, to anyone! 
+- As a once firm believer in Western civilization, that my taxes might pay for health care and the police if anything bad happened, and the unquestionable assumption that someone cares about mine and my neighbor's safety and wellbeing, I could only assume that the total lack of action from police was due to porn-gang corruption and my early stardom in pedophile porn which had somehow stripped me of all my human rights.
+- Who could imagine that America was behind it all!
+- And that they have done so much unspeakable evil to their friends over the last half century that they control nearly every country in the world.
+- I saw for myself how they can literally shutdown small towns in Koh Samui, and Bali, because of one small woman's visit, but even worse is that they have forbidden all-and-any law enforcement activities through a small region of Spain and even up to the capital Madrid if anyone keeps trying to get help!
+- What do you think might happen to such a region which has effectively become a "Free Town".. quoting Zoe BJ.. with criminal gangs flying in from all over the world to set up shop - Russia, Vietnam, France, UK, etc. - picking off the fish in a barrel; mostly British and other foreign pensioners, wealthy gays, women, children, etc.?
+- I describe what has happened to such a region in this police statement.
+- The town of Dénia went from a quiet and fairly industrious seaside town to baby-rape capital of the world in less than thirty years!
+- A town where apparently normal men annoyed with their ex-wives might ambush them in groups at their homes for torture-rape porn, lacerating their vaginas, the police disinterested, the women left debilitated with suicidal depression.
+- The porn-gangs of Dénia are untouchable and membership is now made up of nearly all men and some women in the town.
+- Furthermore, America uses the criminals of this region for any sort of unutterable evil they might be able to dream up - and they seem to have no limits - hence the Elon colleague-porn scam in Bali (which they also control).
+- What do you think happens to the minds of billions of men participating in all this on the porn networks?
+- They go back to their homes and say, hey everyone, we can do whatever we like now, we just have to tell them Dénia organized it.
+- Amiright? Of course I am.
+
+[Chris Ludwick admission pic here - where are you Chrissywissy??? let's be having you]
 
 ### The global tech-bro porn-addict community
 
