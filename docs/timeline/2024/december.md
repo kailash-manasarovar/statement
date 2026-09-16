@@ -426,6 +426,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - I expect my newly-discovered gift is mostly to do with language pattern-recognition abilities, finely-tuned by years of spiked-hallucinogen intake.
 - An important note here is that I believe the efficacy of these skills relies entirely on Principle of Miracles no. 7 from A Course in Miracles - *Miracles are everyone’s right, but purification is necessary first.* - being somewhat in place, and without that pre-requisite years of unfettered hallucinogen intake could have severe and devastating effects to the mind and is no doubt what the criminals expected to happen to me from their own plentiful historical data.
 - The criminals really shot themselves in their wee feetsies with me now though, didn't they.
+- Oh my, I was just a little bit wrong about this!!
 
 ## Detoxing in Samui, an unusual poo
 ### In the spirit of purification
@@ -486,6 +487,15 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - I decide instead I'll ask Paul if he will accompany me to the Madrid police to make a further statement about attempted murder by poison in October 2024, and to help me move my stuff back to London from Spain.
 - I haven't seen Paul since 2001 - when he, Niall, and Simon visited me and, my boyfriend at the time, Brian at our flat in Hastings one night.
 - I have no idea Paul is on the North London porn-gang payroll as well.
+
+## Richard Freed
+
+- I contact Richard Freed on WhatsApp.
+- He's unblocked me and replies - he blocked me in April when I tried to reach out to him to ask for help - probably after being stonewalled at the Foreign Office because I knew he worked there.
+- We have a long WhatsApp chat which I didn't keep.
+- He tells me he's in Bali.
+- It's really nice to speak to someone normal that knows me, but he's not telling me anything I need to know, and I get the feeling he does know what's going on, and it's all hush hush, so I leave it there.
+- I don't hear from him again.
 
 ## A shift in the game
 
