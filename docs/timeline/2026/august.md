@@ -208,7 +208,7 @@ function googleTranslateElementInit() {
 ## My last trip to the Wall
 
 - Before I leave for Dubai, I visit the Wall.
-- I go every day.
+- I've been going every day.
 - It's early, probably before 8am.
 - I'm always looking for the white dove, the one that often sits between the men and women, chases intruders off, and has a boyfriend and they preen together sometimes it's so sweet.
 - She's iconic for me.
@@ -217,6 +217,7 @@ function googleTranslateElementInit() {
 - So, I'm a bit disappointed cos I'm leaving today but I continue my prayers with God for a while and eventually it's time to leave.
 - As I'm getting up to leave, I see her!
 - She's on the top of the Wall walking around with her boyfriend, the black dove.
+- I've never ever seen her up there.
 - And I'm so delighted because these are my last moments at the Wall, for this trip, and there she is, and not only is she there but she's with her love.
 - So I'm absolutely delighted and my heart is singing.
 - And I get up to leave, and I start to walk backwards, and I've gone a few steps and I'm maybe at where the prayer books are or just before, and these two fly, together, off the top of the Wall and in the direction I'm going, side by side.
