@@ -156,6 +156,7 @@ function googleTranslateElementInit() {
 
 - We could expand the definition to all and any unconsented-to activity undertaken on a person while they're sedated.
 - A massive disregard of the Golden Rule.
+- So much for the healing, Steve.
 
 ### I see Auggie Augustus
 
