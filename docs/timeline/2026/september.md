@@ -62,6 +62,8 @@ Before we get going, me and my beautiful feet, I have two important announcement
 
 #### Ich heisse Joy
 
+- With a conservatory teacher's face in the profile pic.
+
 ![Choral Symphony](../../content/tweets/march-2024/ludwig-van-b.png)
 
 - Taking advantage of my belief that this account was managed by Hazel Smith, the Americans rampaged over my hacked browser talking endlessly to the Spanish gangs.
