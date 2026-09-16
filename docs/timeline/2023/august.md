@@ -465,7 +465,7 @@ function googleTranslateElementInit() {
 
 ## Head hunted by ex-Polygon director
 
-- Throughout August I'm looking for a new role.
+- Throughout August while I'm staying in Cauterets I'm looking for a new role.
 - I'm head hunted by a recruitment agency Spectrum Search for a crypto start-up called Torus who had a one-page website promising an upcoming release (the following week they were supposed to be going live). 
 - The website was `torus.io` which now doesn't even redirect to anything.
 - I was curious about the name, also, because on the `@jctot19` account around this time I had received messages using the word *toro* in what were probably direct threats to me, such as *and now you are going to see the world of the toros* in what I understood to mean that, because I was fighting back, online, I was going to get more attacks from them.
@@ -480,12 +480,16 @@ function googleTranslateElementInit() {
 
 - They were not able to confirm, or deny, that this person had worked for Polygon, which was even stranger.
 - I told the UK recruiter I was not interested because I believed it was a scam and I gave the background that I was being cyber-stalked and probably hacked at that time.
-- You can confirm with him: Morgan McCarthy @ Spectrum Search.
+- You can confirm with him: Morgan McCarthy @ Spectrum Search, although Morgan McCarthy no longer exists on LinkedIn!
 - The one-page release website never moved into a released stage, and I checked regularly for months afterwards. Now the URL is dead.
 - At the time, I didn't relate any of this to previous experiences that I had forgotten completely, such as [interviewing for a company where I'd be looking at genitals all day long](../2011-to-2020/2016.md#march)
-- The man that interviewed me at that time was the [third man I have remembered as being the *trumpet teacher*](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man).
+- The man that interviewed me at that time ended up being [one of the *trumpet teachers*](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man).
 - It seems like the porn-gangs have not only infiltrated the school system in Spain, but they've also brushed their processes up and are infiltrating the working world in which *any woman doing a job search* could be targeted and she wouldn't suspect a thing.
-- Here's the recruiter's [replies to me on LinkedIn](../../content/documents/emails/Torus-email-to-recruiter.pdf), a conversation we had after I'd got home in September.
+- Here's the recruiter's [replies to me on LinkedIn](../../content/documents/emails/Torus-email-to-recruiter.pdf).
+- It looks like a conversation we had after I'd got home in September but I remember having this out with him in Cauterets at my desk in my room at the Garden & City so it looks like these dates were tampered with - only the Americans have that sort of reach.
+- In September 2026, I wonder if all this was someone trying to warn me about the Elon sedated-rape porn scam already in preparation with Polygon management and the CIA?
+- Or was it part of them setting up other people to take the blame for the scam if it went tits up, as it always does?
+- You can talk to Nadim, Grace, Jordi, Steve, Heather, Rich Freed, Ryan Salzer, etc., everyone implicated in protecting the status of baby-rape capital of the world come what may!
 
 ## Eagles
 
