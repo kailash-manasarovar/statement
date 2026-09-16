@@ -142,11 +142,15 @@ function googleTranslateElementInit() {
 ### Beckett Locke
 
 - An extraordinary place.
+- They set the taxi driver to be weird with me on the way from the airport (organized through Booking.com). Take her to a different place up the road, they told him.
 - My take is hotel-cum-CIA training centre and egg-extraction lab.
 - Correct me if I'm wrong.
-- I have a very dark room on the inside with a small window.
+- On arrival, a North Ireland man is hopping around in reception, glaring at me, talking a hundred miles an hour. I'm certain he's an actor designed to make me think Belfast criminals (see Noah sedated-porn - have you found that yet?) are stalking me.
+- I have a very dark room on the inside with a small window, like a cell.
 - I'm making fists while I sleep and creating a callous in my left palm.
 - I wake up in the middle of the night with a noise that sounds like people carrying a bag of ice down the corridor.
+- On the day I leave, the (Israeli?) masseuse has followed me from the Anantara and is standing across the street watching me, trying to hide but not really.
+- I see her out of the corner of my eye and try to focus on her, and she goes behind the lamppost, and the manager comes out of reception hurriedly, ushers me inside, and locks the door a bit angrily, I thought.
 
 #### The abomination of desolation
 
