@@ -290,6 +290,7 @@ function googleTranslateElementInit() {
     - [Video of me speaking with the British Foreign Office - part 2](https://drive.google.com/file/d/1kT-BFILgBWnVTBALHepboNzpGCxBoi4f/view?usp=drive_link) and [transcript](../../content/vids/scared%20and%20stressed%202_transcript.txt).
 
 - The British FO weren't able to help me at that time.
+- How many other women have the Americans told them they have to ignore? Or do they just ignore them as a rule now there's been so many over the decades?
 - These videos are extremely upsetting for me to watch. I see myself, a normal law-abiding citizen, trying to live a good life, and paying her taxes, while something so grotesque is happening and no-one cares. In fact, they're either part of it and snicker and make it worse, or they gaslight me suggesting nothing happened while it's obvious they've very nearly destroyed me.
 - These criminals may have got no money from me, but they took everything else; a normal life, the ability to work, my sight, my kidney health, my personal safety nearly everywhere in the world, my human rights in their entirety. 
 - Having said that, however, without this horrible set of circumstances I would not have been forced to fight for my life like I have been doing, and perhaps some good will come of it.
