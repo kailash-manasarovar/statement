@@ -77,6 +77,16 @@ Before we get going, me and my beautiful feet, I have two important announcement
 
 - I thought this account was run by Domingo Lopez Cano.
 
+#### Mica from Transforming Touch in Dublin
+
+- It looks like a good proportion of the TT cohorts are actors too, and some of them are now coming out of the woodwork.
+- Here's Mica, [the man tasked with making a fumbled pass at me](../2025/september.md#dublin-transforming-touch-therapy-with-steve) in September 2025.
+
+![Mica](../../content/images/joy-accounts/actors/mica-from-tt.png)
+
+- I guess that means [Nadim Kobesi](../2023/november.md#nadim-kobesi), the [Pakistani Yorkshireman](../2024/may.md#the-pakistani-yorkshire-man), even Ben, Grace, and others from Polygon are also CIA-paid actors. 
+- And I bet those sorts of invoices aren't redacted either.
+
 #### Moving this content out to have a page all its own
 
 - In progress.
