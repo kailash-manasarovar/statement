@@ -198,16 +198,16 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ### Police and government corruption
 
-- As a once firm believer in Western civilization, that my taxes might pay for health care and the police if anything bad happened, and the unquestionable assumption that someone cares about mine and my neighbor's safety and wellbeing, I could only assume that the total lack of action from police was due to porn-gang corruption and my early stardom in pedophile porn which had somehow stripped me of all my human rights.
-- Who could imagine that America was behind it all!
-- And that they have done so much unspeakable evil to their friends over the last half century that they control nearly every country in the world.
-- I saw for myself how they can literally shutdown small towns in Koh Samui, and Bali, because of one small woman's visit, but even worse is that they have forbidden all-and-any law enforcement activities through a small region of Spain and even up to the capital Madrid if anyone keeps trying to get help!
+- As a once firm believer in Western civilization - the unquestionable assumption that someone, somewhere cares about mine and my neighbor's safety and wellbeing and will *do something* if anything bad happens - I could only assume that the total lack of action from police was due to porn-gang corruption and my early stardom in pedophile porn which had somehow stripped me of all my human rights.
+- Who could have imagined that America was behind it all!
+- And that they have done so much unspeakable evil to their friends over the last half century that they control nearly every country in the world with threats.
+- I saw for myself how they can literally shutdown small towns in Koh Samui, and Bali, because of one small woman's visit, but even worse is that they have forbidden all-and-any law enforcement activities throughout a small region of Spain and even up to the capital Madrid if anyone keeps trying to get help!
 - What do you think might happen to such a region which has effectively become a "Free Town".. quoting Zoe BJ.. with criminal gangs flying in from all over the world to set up shop - Russia, Vietnam, France, UK, etc. - picking off the fish in a barrel; mostly British and other foreign pensioners, wealthy gays, women, children, etc.?
 - I describe what has happened to such a region in this police statement.
 - The town of Dénia went from a quiet and fairly industrious seaside town to baby-rape capital of the world in less than thirty years!
 - A town where apparently normal men annoyed with their ex-wives might ambush them in groups at their homes for torture-rape porn, lacerating their vaginas, the police disinterested, the women left debilitated with suicidal depression.
 - The porn-gangs of Dénia are untouchable and membership is now made up of nearly all men and some women in the town.
-- Furthermore, America uses the criminals of this region for any sort of unutterable evil they might be able to dream up - and they seem to have no limits - hence the Elon colleague-porn scam in Bali (which they also control).
+- Furthermore, America uses the criminals of this region for any sort of unutterable evil they might be able to dream up - and they seem to have no limits - hence the Elon sedated-rape, colleague-porn scam in Bali (which they also control).
 - What do you think happens to the minds of billions of men participating in all this on the porn networks?
 - They go back to their homes and say, hey everyone, we can do whatever we like now, we just have to tell them Dénia organized it.
 - Amiright? Of course I am.
