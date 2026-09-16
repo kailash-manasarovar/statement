@@ -930,8 +930,18 @@ function googleTranslateElementInit() {
 - The mission will undoubtedly make us a little uncomfortable from time to time - there's quotes about that too.
 - I wonder who Helen was. Marta maybe?
 
+### I tell Steve what's going on, again
+
+- Steve and I walk back to our respective hotels after class - we may have even been staying in the same hotel.
+- I tell Steve what's going on with me, about how porn-gangs have set up shop in schools in Spain, the baby-rape, all of it.
+- He's mostly disinterested, like everyone else.
+- He says softly: *and no-one cares*.
+- I think he's confirming what I'm saying to him in a consolatory manner.
+- Now I wonder if this was Holy Spirit.
+
 ### Steve mentions the CIA
 
+- This was the first time he mentioned it and I think he's telling us this because of what I've told him, and how awful it all is, and he's suggesting to me in a clandestine manner that all is not lost!
 - He mentioned it pretty regularly to his classes after this.
 - He often tell us about how his sons think he works for the CIA.
 - This first mention, he explained that *he had heard* that security services like to recruit people with severe trauma histories and I guess he meant for the intuitive programs.
