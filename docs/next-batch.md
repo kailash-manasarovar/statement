@@ -4,10 +4,6 @@
 
 ## TODO: list
 
-### December 2024
-
-1. Texting Rich Freed from the Spa Samui desperate for some help. He texts me back he is in Bali.
-
 ### January 2025
 
 1. Paul's description of how he caught Diana as she fell in Camden High Street!
