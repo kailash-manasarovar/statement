@@ -490,6 +490,7 @@ function googleTranslateElementInit() {
 - In September 2026, I wonder if all this was someone trying to warn me about the Elon sedated-rape porn scam already in preparation with Polygon management and the CIA?
 - Or was it part of them setting up other people to take the blame for the scam if it went tits up, as it always does?
 - You can talk to Nadim, Grace, Jordi, Steve, Heather, Rich Freed, Ryan Salzer, etc., everyone implicated in protecting the status of baby-rape capital of the world come what may!
+- I'm certain they'll confirm.
 
 ## Eagles
 
