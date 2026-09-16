@@ -77,6 +77,10 @@ Before we get going, me and my beautiful feet, I have two important announcement
 
 - I thought this account was run by Domingo Lopez Cano.
 
+#### More
+
+- `@TaruAnn` God love her/him/etc.
+
 #### Mica from Transforming Touch in Dublin
 
 - It looks like a good proportion of the TT cohorts are actors too, and some of them are now coming out of the woodwork.

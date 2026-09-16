@@ -4,14 +4,6 @@
 
 ## TODO: list
 
-### May 2024
-
-1. I heard Bali is all over Tiktok. And the mousses still wouldn't do anything about women sedated and mass-raped at work because of their sinister history? Letting Elon in on it, while he knew full well he'd be untouchable. It's incredible.
-
-### November 2024
-
-1. Naama Levy at Citadines - added. Worth keeping at the top.
-
 ### December 2024
 
 1. Texting Rich Freed from the Spa Samui desperate for some help. He texts me back he is in Bali.
