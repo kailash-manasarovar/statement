@@ -278,6 +278,12 @@ function googleTranslateElementInit() {
 
 - I also call the British Foreign Office in Spain and speak to a lady called Lisa.
 - I attach the videos and transcripts of the call below. 
+
+!!! danger "Videos have been deleted by hackers"
+    - I'm unable to find these videos today mid-September 2026.
+    - They were part of my GoogleDrive collection of videos I'm linking out to on my `@JackChardwood` Google account.
+    - It's inexplicable - outside of the Americans wanting everyone to think the British are behind everything!
+
 - I'm obviously extremely stressed and scared. 
 
     - [Video of me speaking with the British Foreign Office - part 1](https://drive.google.com/file/d/1PbJYX7DG0pjAPE3Jh7OoyW5k9urXcDZE/view?usp=sharing) and [transcript](../../content/vids/scared%20and%20stressed%201_transcript.txt).
@@ -289,7 +295,7 @@ function googleTranslateElementInit() {
 - Having said that, however, without this horrible set of circumstances I would not have been forced to fight for my life like I have been doing, and perhaps some good will come of it.
 - In response to an email I sent to https://carbrayinternational.com/, I receive a notification that my message was blocked by the server. 
 - All the other lawyers, apart from a couple of them, say they cannot help me, or don't have someone who can deal with me in English.
-- Eventually, I find a lawyer who can help me if I'm arrested who speaks English and is registered with a British legal authority; [Roberto Rodriguez](#roberto-rodriguez-lawyer) based in Alicante.
+- Eventually, I find a lawyer who can help me if I'm arrested who speaks English and is registered with a British legal authority; [Roberto Rodriguez](#roberto-rodriguez-lawyer) based in Alicante (is Roberto also an American spy?).
 - He also says he can also help me with any translating I need done with the cyber-expert.
 - I believe now that I may have been shepherded towards this person online, as usual.
 
