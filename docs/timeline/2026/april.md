@@ -149,7 +149,7 @@ function googleTranslateElementInit() {
 - I have a very dark room on the inside with a small window, like a cell.
 - I'm making fists while I sleep and creating a callous in my left palm.
 - I wake up in the middle of the night with a noise that sounds like people carrying a bag of ice down the corridor.
-- On the day I leave, the (Israeli?) masseuse has followed me from the Anantara and is standing across the street watching me, trying to hide but not really.
+- On the day I leave, the (Israeli? or am I supposed to think it? or actually Israeli? I think actually...) masseuse has followed me from the Anantara and is standing across the street watching me, trying to hide but not really.
 - I see her out of the corner of my eye and try to focus on her, and she goes behind the lamppost, and the manager comes out of reception hurriedly, ushers me inside, and locks the door a bit angrily, I thought.
 
 #### The abomination of desolation
