@@ -97,9 +97,10 @@ function googleTranslateElementInit() {
 - In retrospect I wonder if she's checking up on me.
 - My suspicions about Sandra Rita Diaz's intentions revolve around bizarre things she has said to me over the years which seemed to be in order to gage my reaction to them.
 - One of these instances was in 2016 when we met for dinner in Paris one afternoon, and out of the blue, this shy ditzy apparently innocent and childish woman shows me a picture of a loaf of French bread moulded into the shape of a massive phallus and testicles.
-- She tells me a black priest sent it to her and wants to know what I think.
+- She tells me a black priest sent it to her and she wants to know what I think.
 - It's an extraordinary thing to communicate.
-- Things like this made my feelings that something was not right about her much stronger.
+- Her slutty profile pic on Facebook in skintight leopard skin clothes holding up a cat were even more perplexing.
+- Things like this made me feel that something was not right about her.
 - Together we meet a strange man and his landlady at the Carrefour restaurant on Friday 8th December, for lunch.
 
 ![Carrefour cafe](../../content/images/carrefour-cafe.png)
@@ -112,12 +113,13 @@ function googleTranslateElementInit() {
 - He is constantly giggling, in not a good way.
 - Another table starts to talk to us a little. Sandra Rita Diaz says something incredibly bizarre and incongruent about how much she loves animals. This makes them all roll their eyes at her and not speak to us again.
 - We stay a long time and drink wine.
-- We also take a drink from the strange man who says he works in security for the sanctuary.
+- Sandra points this out to me: *look how long we stayed here*, she says and indeed it was about four hours.
+- We took a drink from the strange man who says he works in security for the sanctuary.
 - I tell everyone about [Ana in the car with no driver](november.md#ana-in-the-blue-van).
 - I ask everyone if it means the trumpet teacher is in love with me?
 - They all say, yes, it could be.
 - I'm obsessed with this event.
-- Sandra Rita Diaz tells me she thinks she is being poisoned by someone she knows.
+- Sandra Rita Diaz tells me she thinks she is being poisoned by a woman that sings in the choir at Lourdes, Mireille.
 - I don't know how to respond.
 - This is the first time she tells me there are a lot of devil worshippers at the sanctuary.
 - I'm not clear about why she would say something like this either.
@@ -126,8 +128,8 @@ function googleTranslateElementInit() {
 
 #### The abomination of desolation in the holy place
 
-- Did Sandra set up a live sedated event in this holy place, therefore mentioned in Daniel and Matthew?
-- Makes the whole world feel physically sick.
+- Did Sandra set up a live sedated event in this holy place, with a bunch of paying clientele, therefore mentioned in Daniel and Matthew?
+- My view is that all of it will be on Lourdes CCTV in some capacity.
 
 ### Sandra and the champagne
 
@@ -610,6 +612,33 @@ function googleTranslateElementInit() {
 - Whoever it is seems to know exactly what's been going on, right back to before [I went public on Twitter](september.md#going-public-on-twitter), when, I had assumed, the gang stalking was entirely Denia-conservatory-contained.
 - Is this woman from Dénia?
 - If not, how is she connected?
+
+## New Years Eve with the British ex-pat walkers
+
+- Christine BJ has invited me to walk with everyone, out of the blue since she ghosted me for walks once the switcheroo had started in earnest at the conservatory in January.
+- There's a large group of us going. 
+- A smaller group of young British men who serve in the military are with us at the start of the trek.
+- They are carrying *massive* bags with 30 kgs weight. They asked me to try and lift one and I couldn't budge it at all.
+- They go off before us on the train, running.
+- Christine says she's going to walk with me alone on the paths, while the others take the main route.
+- She wanted to know all about the trumpet teacher, how I was in love, what had happened in Madrid, how I felt he had suggested I contact my parents in Avila in a loving way, etc. etc.
+- I guess they all knew something huge was happening and wanted information from me about it.
+- I didn't really have a lot to tell them that wasn't pure BS at the time - apart from my certainty the Lopez Cano's were the problem.
+
+### The Walmart trophy wife
+
+- Before Christine took me away from the rest of the group to walk alone with her, I was walking with another British woman I had met before on a walk probably in December 2022.
+- She is a graphic designer and spends a lot of time in the US.
+- She had designed the Walmart symbol, and so I remembered her from this and we were talking about that for a bit.
+- We discussed going into management and how it takes us away from what we love doing more.
+- I told her a little bit about what was going on for me; how I was a victim of the London rape-gangs as a child, how I was being targeted in Dénia by the Lopez Cano's and teachers at the music school online and in the town, how they had flashed porn stills of me up when I was 16 on my Twitter feed, how he had visited me in London years previously and was probably sizing up the house to see how much they would get from it if they got me in a honey-trap relationship, how I had thwarted those plans completely and how I believed that's the reason they were attacking me.
+- All this was my fumbled view of what was going on at the time.
+- The woman was DEVASTATED and spent the rest of the morning in shock and tears. 
+- Her husband (a local who I could add to the list of people in the 5, 6, 7 trumpet teacher genome category, plus Trish's husband and the man at EthCC) took her away from me and kept his arm around her. 
+- Every time I bumped into them that day she still looked devastated, and he was grinning a (not snickery) everything's fine grin nothing to worry about here, I think, but it could have been a different sort of grin. 
+- Another honey trapper? It's unclear.
+- We know some, not all - unless they don't care really - of the locals are aware of American involvement in the total moral destruction of the region.
+- I can't actually figure this out - maybe someone can help.
 
 ## Twitter
 

@@ -4,11 +4,7 @@
 
 ## TODO: list
 
-### December 2023
 
-1. CCTV at Lourdes on December 8th 2023 too. We'll like also be on Lourdes sanctuary CCTV.
-1. New Year 2023 and I was just back from Madrid... a group of expats walking with Christine Betterton Jones on the Montgo. A group of British army boys - about 5 or 6 of them - were at the start of our walk, sons of Christine's friends, on holiday apparently, with massively heavy bags - I tried to lift one, 20/30kg each bag, they got me to try to lift it - and they ran up before us! Christine took me aside to walk with me separately that day and was getting updates on the porn-gangs, what I knew then.. not a great deal tbf but they obviously knew something explosive was going down.. they were worried weren't they, but not about me! I don't care.
-1. Oh yeah.. others might care. I was walking that morning for a short while with a British expat woman who is a graphic designer and had (famously) designed the Walmart symbol! I had met her before and remembered this. She told me that she had moved into managing and mentoring direct reports rather than designing herself. I told her a little bit about what was going on for me; how I was a victim of rape-gangs as a child, how I was being targeted in Dénia by the Lopez Canos and teachers at the music school, how they had even flashed porn of me when I was 16 up online, how he had visited me in London years previously and was probably sizing up the house, how I had thwarted his plans and believed that's why they were attacking me... this was all my fumbled view of what was going on at the time.. She was DEVASTATED and spent the rest of the morning in shock and tears. Her husband (a local who I could add to the list of people in the 5, 6, 7 trumpet teacher genome category, plus Trish's husband and the man at EthCC) took her away from me and kept his arm around her. Every time I bumped into them that day she still looked devastated, and he was grinning the (not snickery) everything's fine grin nothing to worry about here, I think, but it could have been a different sort of grin. Another honey trapper? It's unclear.
 
 ### February 2024
 
