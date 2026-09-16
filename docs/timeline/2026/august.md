@@ -210,7 +210,7 @@ function googleTranslateElementInit() {
 - Before I leave for Dubai, I visit the Wall.
 - I've been going every day.
 - It's early, probably before 8am.
-- I'm always looking for the white dove, the one that often sits between the men and women, chases intruders off, and has a boyfriend and they preen together sometimes it's so sweet.
+- I'm always looking for the white dove, the one that often sits between the men and women, chases intruders off, and has a boyfriend and they preen each other sometimes it's so sweet.
 - She's iconic for me.
 - She's not there.
 - So, OK, I hang out with God for a while like I do, and occasionally I look up to see if I can see her, but she's definitely not around this morning.
