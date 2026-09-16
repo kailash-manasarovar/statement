@@ -619,11 +619,13 @@ function googleTranslateElementInit() {
 - There's a large group of us going. 
 - A smaller group of young British men who serve in the military are with us at the start of the trek.
 - They are carrying *massive* bags with 30 kgs weight. They asked me to try and lift one and I couldn't budge it at all.
-- They go off before us on the train, running.
-- Christine says she's going to walk with me alone on the paths, while the others take the main route.
-- She wanted to know all about the trumpet teacher, how I was in love, what had happened in Madrid, how I felt he had suggested I contact my parents in Avila in a loving way, etc. etc.
+- They set off before everyone else, on the trail, running.
+- Christine says she's going to walk with me alone, while the others take the main route.
+- Once we got to the top, she left me on the mountain for about an hour and a half because I wasn't feeling well, while they went to the top and back.
+- I saw the same young black-haired pale-skinned man running around the paths, a few times.
+- Christine had wanted to know all about the trumpet teacher, how I was in love, what had happened in Madrid and Avila, how I felt he had suggested I contact my parents in Avila in a loving way, etc. etc.
 - I guess they all knew something huge was happening and wanted information from me about it.
-- I didn't really have a lot to tell them that wasn't pure BS at the time - apart from my certainty the Lopez Cano's were the problem.
+- I didn't really have a lot to tell them that wasn't pure BS at the time - apart from my certainty the Lopez Cano's were the only problem.
 
 ### The Walmart trophy wife
 
