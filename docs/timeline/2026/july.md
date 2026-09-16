@@ -66,6 +66,10 @@ function googleTranslateElementInit() {
 
 #### Getting to know everyone
 
+!!! danger "Requesting constant safety-and-wellness checks for my friends"
+    - Please keep these folk alive and out of danger.
+    - Thank you.
+
 - It's a group of about twenty students, and every one of them has something for me.
 - They've all obviously been through military training; they're tough and fit and strong, most have never done yoga before and can get into extremely advanced poses right off the bat.
 - Normally on a retreat like this, you would expect a few to quit early on, especially as the sessions during the day were pretty boring (without the psychological torture taken into account)... no-one quits. It's unprecedented.
