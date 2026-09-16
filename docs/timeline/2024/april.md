@@ -302,7 +302,8 @@ function googleTranslateElementInit() {
 
 ![Roberto the lawyer](../../content/whatsapps/roberto-laywer.jpg)
 
-- Oh look! There's Richard Freed on the WhatsApp contact list. Who'd a thunk it! I'd blocked him after he blocked me rudely when I was frantic and trying to get help, I think I mentioned that somewhere else - then I unblocked him later on after messaging him about his rudeness in terms of the wild and unchecked arrogance of his Aries rising aspect.
+- Oh look! There's *Richard Freed* on the WhatsApp contact list. Who'd a thunk it! I'd blocked him after he blocked me rudely when I was frantic and trying to get help, I think I mentioned that somewhere else - then I unblocked him later on after messaging him about his rudeness in terms of the wild and unchecked arrogance of his Aries rising aspect.
+- Amazing. I guess I was wrong about him coming to tell me it's over.
 - Here's the [initial email conversation](../../content/documents/emails/roberto-rodriguez-email.pdf) I had with Roberto.
 - From this point forward, he called me or we communicated on WhatsApp.
 
