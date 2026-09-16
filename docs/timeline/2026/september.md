@@ -91,7 +91,7 @@ Before we get going, me and my beautiful feet, I have two important announcement
 
 - In progress.
 
-## I'm so annoyed at you all
+## Today, I remain amazed at the levels of evil you have been able to justify behind your mask of arrogance and faux-goodness! It's just mind-blowing.
 
 - So why the frantic, panicky, constant interference in other people's lives?
 - There's two reasons, both of which include, or require even, the TOTAL DISINTEREST in the out-of-control, sexually-psychotic evildoing going on in the region and the world:
