@@ -636,7 +636,7 @@ function googleTranslateElementInit() {
 - I told her a little bit about what was going on for me; how I was a victim of the London rape-gangs as a child, how I was being targeted in Dénia by the Lopez Cano's and teachers at the music school online and in the town, how they had flashed up porn stills of me when I was 16 on my Twitter feed, how they had stolen photos of me without my knowledge while I was half-naked through my hacked phone, how Domingo had visited me in London years previously and was probably sizing up the house to see how much they could get from it, how I had thwarted his plans completely and how I believed that's the reason they were attacking me relentlessly.
 - Incidentally, she was not the only person I told this to that day, and it would certainly have been part of my discussions with Christine.
 - All this was my understandably fumbled view of what was going on at the time.
-- The woman was DEVASTATED and spent the rest of the morning in shock and tears - a rare normal person, number three (I'd forgotten)! 
+- The woman was DEVASTATED and spent the rest of the morning in shock and tears.
 - Her husband (a local who I could add to the list of people in the [5, 6, 7 trumpet-teacher genome category](../../crimes/protagonists/vidal-sastre.md#seven-devils), along with Trish's husband and whoever turned up at EthCC) took her away from me and kept his arm around her. 
 - Every time I bumped into them again that day she still looked devastated and he was grinning; an everything's fine (not snickery) grin, nothing to worry about here... 
 - Could it have been an "up yours CIA" grin?
