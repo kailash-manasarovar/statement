@@ -50,7 +50,8 @@ function googleTranslateElementInit() {
 #### Stella
 
 - At the first session, the teachers introduce themselves.
-- One of them reminds me of the acting students on my first degree course in Performing Arts. She's performing.
+- Firstly, and importantly, Taryn tells us that she and Yann her boyfriend (a Frenchman who worked as a paramedic in Alicante - he's keen I know this) met on LinkedIn - they're keen I know this.
+- One of the other teachers reminds me of the acting students on my first degree course in Performing Arts. She's performing.
 - There's a Scottish woman teaching some classes on the course and her name is Stella.
 - Stella studied ashtanga yoga in Euston, like [Natalia had, fellow porn gang target in Dénia](../2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me), who I have written about extensively in this police statement as having had the same experience as me with the porn-gangs in Denia.
 - She had been studying there with Hamish, right up until she moved to Dénia.
