@@ -69,6 +69,16 @@ Before we get going, me and my beautiful feet, I have two important announcement
 - It makes no sense apart from an inability to leave people in peace, I guess, because they are certainly not interested in law enforcement at all, we know this.
 - Oh look, Snoopy's there too! Who'd a thunk it.
 
+#### Mary G
+
+![Mary G Lamarche](../../content/images/joy-accounts/mary-g.png)
+
+- I thought this account was run by Domingo Lopez Cano.
+
+#### Moving this content out to have a page all its own
+
+- In progress.
+
 ## I'm so annoyed at you all
 
 - So why the frantic, panicky, constant interference in other people's lives?
