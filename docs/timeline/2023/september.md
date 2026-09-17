@@ -650,6 +650,9 @@ function googleTranslateElementInit() {
 ## Elke Kopmann, enslaved by the Dénia townsfolk who understand they can commit any crime at all without repercussions
 
 - Turns out, I do have a good friend in Dénia, Elke Kopmann; one of the very few people in the world I love dearly; a woman with strong integrity and a powerful spiritual practice.
+
+![Elke](../../content/images/elke.png)
+
 - At least, that's what I used to think.
 - I wonder today (time of writing September 2026) if she had been aware I was being regularly sedated and raped, and maybe involved even somehow, and perhaps that's even how she got herself into a modern slavery role.
 - Anyway.
