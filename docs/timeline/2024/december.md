@@ -492,7 +492,8 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 - I contact Richard Freed on WhatsApp.
 - He's unblocked me and replies - he blocked me in April when I tried to reach out to him to ask for help - probably after being stonewalled at the Foreign Office because I knew he worked there.
-- We have a long WhatsApp chat which I didn't keep.
+- The first thing he says on WhatsApp is "Good God", and it sounds like an expression that is referring to what's happening.
+- We have a long chat which I didn't keep.
 - He tells me he's in Bali.
 - It's really nice to speak to someone normal that knows me, but he's not telling me anything I need to know, and I get the feeling he does know what's going on, and it's all hush hush, so I leave it there.
 - I'm thinking, if the criminal gangs know I have a friend in the Foreign Office they might decide to leave me alone.
