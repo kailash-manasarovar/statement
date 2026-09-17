@@ -582,7 +582,7 @@ function googleTranslateElementInit() {
 - La Sella is just a few kilometers up the road from Dénia. It’s where the [Scottish woman lives, close friends with Zoe BJ, the woman with chronic cystitis who runs a charity](../2011-to-2020/2016.md#the-scottish-woman).
 - Paloma tells me that once we have the timeline, we can help [Irene](august.md#irene-the-plate-lady) and the other women and children.
 - I hug her and thank her, but I don't expect to see or hear from her again.
-- As I leave, I give her, written down by hand on a piece of paper, the names of [the two little girls from Madrid that Domingo teaches](../2023/september.md#my-friend-the-german-translator) and I tell her I'm extremely concerned about their safety, and the safety of their wealthy single mother who he had persuaded to buy a Steinway. 
+- As I leave, I give her, written down by hand on a piece of paper, the names of [the two little girls from Madrid that Domingo teaches](../2023/september.md#elke-kopmann-enslaved-by-the-dénia-townsfolk-who-understand-they-can-commit-any-crime-at-all-without-repercussions) and I tell her I'm extremely concerned about their safety, and the safety of their wealthy single mother who he had persuaded to buy a Steinway. 
 - Over the next few weeks, I see fake accounts fly-by online with names like *dubious government official*, and similar.
 - They know.
 

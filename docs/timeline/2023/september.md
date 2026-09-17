@@ -647,9 +647,12 @@ function googleTranslateElementInit() {
 - I feel small stones hitting my bare legs painfully.
 - The car goes by and the young men whoop from inside.
 
-## My friend the German translator
+## Elke Kopmann, enslaved by the Dénia townsfolk who understand they can commit any crime at all without repercussions
 
 - Turns out, I do have a good friend in Dénia, Elke Kopmann; one of the very few people in the world I love dearly; a woman with strong integrity and a powerful spiritual practice.
+- At least, that's what I used to think.
+- I wonder today (time of writing September 2026) if she had been aware I was being regularly sedated and raped, and maybe involved even somehow, and perhaps that's even how she got herself into a modern slavery role.
+- Anyway.
 - I do not attempt to see her until this time for two reasons. First, I had been depressed and didn't see anyone as a rule. Second, my head was spinning with what was going on for me and it was difficult to know how to deal with anything outside of prayer, and fighting the cyber-stalkers online.
 - In 2016, I was concerned that she was interacting with [Hazel Smith](../2001-to-2010/2007.md#hazel-smith) in some manner, I can't remember how, and I warned her about Hazel.
 - I told Elke that Hazel is not a good person.
