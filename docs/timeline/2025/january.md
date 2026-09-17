@@ -391,16 +391,17 @@ function googleTranslateElementInit() {
 
 ### Paul's lies about the Royal Family, and other things
 
-- Paul tells me a lot of stories, most of them lies I expect, I hope.
+- Paul tells me a lot of stories, most of them lies I expect.
 - He mentioned repeatedly that he had met both Charles and Diana because his grandfather had been the chief librarian at the Times and they came in when he was there and they knew his grandfather by name.
-- He told another story about Diana bumping into him in Camden High Street somewhere when she was being hounded by paparazzi and he had caught her as she fell backwards, and she remembered him by name.
+- He told another story about Diana bumping into him in Camden High Street somewhere when she was being hounded by paparazzi and ***he had caught her as she fell backwards***, and she had remembered him by name.
 - *Oh Paul*, Paul said she had said!
+- Paul told this story to my dad.
 - Paul told a great deal of porkies while we were together. 
 - Some were really nasty stories about people I knew, and you could tell he was trying to "get them back" for something.
 - The story he told about Niall Higgins dressed in stockings and suspenders was a bit upsetting.
 - The stories he told about his grandfather, mostly, I really wanted to be true.
 - He told those again and again, especially to my dad for some reason.
-- He liked to tell the story about how his grandfather paid for prostitutes to come round to their house in Clovely Road and his mum would be angry.
+- He liked to tell the story about how his grandfather paid for prostitutes to come round to their house in Clovely Road and how his mum would be angry.
 - He thought it was OK for his grandfather to do that and that his mum had been out of order!
 - I started wondering if this really was the same person I had known all those years ago.. or was I simply zombified about men like everyone else due to sexual trauma at the time.
 
@@ -476,6 +477,19 @@ function googleTranslateElementInit() {
 - It said absolutely nothing, and I'm not sure what I did with it.
 - It's shame if they have a copy, shame if they've "lost" it.
 - It's a shame-total situation for the powers that be.
+
+### Inma tells me she thinks Richard Freed is an Israeli spy
+
+- The night before I leave Madrid, Inma and I are walking on Gran Via after dinner.
+- She says: *do you remember Richard Freed, from when we were at the Spa in Samui?*
+- I had been [texting with him just the week before](../2024/december.md#richard-freed) at the Spa Beach resort.
+- I say yes.
+- Inma says: *I think he's an Israeli spy*.
+- I'm a little astonished about this random declaration, but as usual I file the event away for later.
+- I tell Inma, *Richard is definitely a spy, he's my favorite spy, and he is Jewish but he's not Israeli*.
+- I wonder if Paloma had told her to say this to me, and if it was for more distracting and blaming Israel for everything that looks like it's about to go tits up.
+- In September 2026, after a curious email exchange with Inma where she still seems to think I'm unaware of what she's been doing all these years since I met her in 2005, I email to ask her if Richard Freed is Paloma's boss at the Foreign Office in the UK.
+- She does not reply.
 
 ## Paul's best friend Lucy
 

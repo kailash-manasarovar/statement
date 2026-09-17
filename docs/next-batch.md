@@ -6,7 +6,6 @@
 
 ### January 2025
 
-1. Paul's description of how he caught Diana as she fell in Camden High Street!
 1. Inma starts saying, "Do you remember Richard Freed, we met him in Thailand..." and then suggests to me that Rich Freed is an Israeli spy. I say, he's definitely a spy, he's my favorite spy. Nothing more is said about this. Did Paloma tell her to say this?
 
 ### Feb
@@ -54,6 +53,10 @@
 ### January 2026
 
 1. Interestingly, I have always had rather good feelings about the King, warm feelings, and when this happened strongly once again - in Dorset in early 2026 - I thought he actually might be coming to visit and I was quite excited about that - from May 2025.
+
+### February 2026
+
+- Dangerous driving in Italy.
 
 ### April 2026
 
