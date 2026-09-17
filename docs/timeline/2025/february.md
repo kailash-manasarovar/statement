@@ -655,37 +655,45 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ## Release the fatbergs
 
+- Poking away at it.
+- My efforts versus how much fat is coming out ratio: 1/99. 
+
 ![North London Dénia fatberg release](../../content/images/london-denia-fatberg.png)
 
 ## Michelle Gordon
 
 - I already wrote about [meeting Michelle Gordon in 2010](../2011-to-2020/2013.md#richard-recommends-hot-yoga-taryn-and-michelle-gordon-are-there), just after I returned from India where I had been starring without my knowledge in [a month-long porn special with Jitendra Das](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star).
-- We had taken a Bikram hot-yoga class together in Old Street, and I believe it was her suggestion although I spoke with Richard Freed about the experience later too.
+- We had taken a Bikram hot-yoga class together in Old Street, and I believe it was her invitation; although I spoke with Richard Freed about the experience later too.
 - Michelle Gordon is an old school friend from Christ Church North Finchley and at the time she was working for Deutsche Bank or similar.
 - We had a coffee and a chat after the class in Angel Islington.
 - I hadn't seen her since the 80s at school, and I never saw her again off Facebook until February 2025, fifteen years later.
-- Michelle had been suddenly communicating with me on Facebook at the same moment everything was kicking off in November 2024.
+- Michelle suddenly started communicating with me on Facebook at the same moment everything was kicking off in November 2024 in Thailand.
 - She was in Canada at the time visiting her sick father, she said.
+- I felt for her because of this, and I contacted her regularly for a bit to make sure she was OK.
 - In February, [we meet at Hyde Park for Let Women Speak](../2025/february.md#michelle-gordon) and then go to the Dorchester for a drink.
-- I was trying to follow the others to the pub they go to, but lost them, so we wandered for a bit and ended up in there - at Michelle's suggestion.
-- I have a [pic of that day in here](../../content/images/photos-of-me/face-10.jpg) and I tweeted about it too: https://x.com/1FRGVN/status/1893977787649696063.
+- I was trying to follow the others to the pub they go to, but lost them, so we wandered for a bit and ended up there - at Michelle's suggestion.
+
+![Me at the Dorchester with Michelle Gordon](../../content/images/me-at-the-dorchester.png)
+
+- Michelle took the photo.
 - Suella Braverman was there that afternoon having tea.
-- Whenever I met her, she was always talking about how she'd been on the phone with Karen Townsend that morning, another old school friend but possibly connected to North London's finest.
-- I told Michelle about the spy-cam porn epidemic and how it had been running from my apartment in Spain and was in schools, hotels, everywhere over there. 
+- Whenever I met Michelle, she always mentioned how she'd been on the phone with Karen Townsend, another old school friend but possibly connected to North London's finest.
+- I told Michelle about the spy-cam porn epidemic and how spy-cams had been set up in my apartment in Spain and how the porn-rot had gotten into schools, hotels, everywhere over there. 
 - She changed the subject.
 - We also spoke about Jennifer Regnet, our shared classmate and a best friend of mine from East Finchley for years - we went to primary school together.
-- Jen became a woman with *A LOT* of money, and a sexual trauma history, and seemed to always be getting into relationships with scammers. Michelle seemed to know a fair bit about the latest scammer situation on the South coast of England.
+- Jen became a woman with *A LOT* of money, and a sexual trauma history, and seemed to always be getting into relationships with scammers. Michelle seemed to know a fair bit about the latest scammer situation centred in a hotel in Brighton or Hove on the south coast of England.
 - I did wonder about Michelle. She seemed to be being gossiping about Jen and nosey about me, rather than genuinely concerned; yet another not-uncommon (for me) disinterested reaction to horror that implies involvement.
 
-#### Michelle's curious interest in Steve Terrell
+### Michelle's curious interest in Steve Terrell
 
-- Oh, one thing she did say at the Dorchester to me which was *extraordinary* was about Steve.
+- Michelle Gordon had an extraordinarily exaggerated interest in Steve Terrell.
 - I told her I was doing the trauma therapy with him and she started to say... *you know Kate, I've got a feeling about this Steve, I think he's the one, this Steeee-ve (emphasized)* and she kept on doing that at regular intervals. It was weird.
 - She went on and on like that, I said, *but what about my gypsy trumpeter*? But she didn't want to know about him (my mind was confused about it all still so I wouldn't have had a great deal to say anyway), but then off she went on about Steve again, having never met the man.
 - When I saw her again, she did the same.
 - She had always been a wind-up like that at school, so I just thought she was just being Michelle, but it was still weird nevertheless.
-- Did someone tell her to say those things about Steve? It was like she was trying to get me to decide he was romantically interesting, which I never did, although I was having foreign thoughts with that theme *all the time*!
-- I got a bit annoyed with her and eventually told her at the Dorchester bar about how he'd roared with laughter when I told him I was an unwitting porn star a month before, and then how later on he'd implied he had a large penis as if that was something interesting, and how I was totally unimpressed with him because of it.
+- Did someone tell her to say those things about Steve? It was like she was trying to get me to decide he was romantically interesting, and put me off my one true love, and it never worked, although I was having foreign thoughts with that theme *all the time*!
+- Interesting isn't it.
+- I got a bit annoyed with her and eventually told her at the Dorchester bar about how Steve had roared with laughter when I told him I was an unwitting porn star a month before, and then how later on he'd implied he had a large penis as if I'd be interested in that, and how I was totally unimpressed with him because of it.
 - It didn't deter her though, and then when I saw her the next time, she kept on about *Steeeee-ve*.
 - Who told her to go on like this at me?
 
@@ -699,3 +707,4 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Putting distance between them and her?
 - I never hear from her again.
 - Word on the street is that Michelle Gordon is *very interesting* with regards to our current efforts for justice and peace on earth :), but I've no idea how or why.
+- Michelle hasn't been farming out her white friends to the black rape-gangs has she?
