@@ -184,8 +184,8 @@ function googleTranslateElementInit() {
 - Sandra produces animal porn with her cat, and God knows what else for the porn-gangs of.. France!
 - Then, the porn-gangs will let her know who downloaded it, where they live, and what they do for a living.
 - I imagine she is never told about anyone that doesn't have a bit of money to lose.
-- Does she pay for this information?
-- So, when she told me he blushed, it's because he recognized her from animal porn... and that's her making herself known before she moves in.
+- Do women (and men) like her pay for a subscription to a regular mug-list?
+- So, when she told me he blushed, it's because he recognized her from animal porn... and that's her making herself known to him before she moves in.
 - See also [Chris and Desa Ludwick](../2025/may.md#meeting-chris-desa-before-i-fly-to-israel).
 
 ## Meeting Alessandra
