@@ -669,7 +669,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I hadn't seen her since the 80s at school, and I never saw her again off Facebook until February 2025, fifteen years later.
 - Michelle suddenly started communicating with me on Facebook at the same moment everything was kicking off in November 2024 in Thailand.
 - She was in Canada at the time visiting her sick father, she said.
-- I felt for her because of this, and I contacted her regularly for a bit to make sure she was OK.
+- I felt for her because of this - dad had just fallen and was still in hospital - and I contacted her regularly for a bit to make sure she was OK.
 - In February, [we meet at Hyde Park for Let Women Speak](../2025/february.md#michelle-gordon) and then go to the Dorchester for a drink.
 - I was trying to follow the others to the pub they go to, but lost them, so we wandered for a bit and ended up there - at Michelle's suggestion.
 
@@ -703,7 +703,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - We met another time shortly after that when I visited her at her home in Cheshunt; possibly in late March or April, maybe May, it was a beautiful Sunday and we went walking in Lee Valley.
 - She mentions Karen Townsend and Steve again.
 - She's very interested in my political activities - maybe I had just been to Runcorn - and she is extremely against everything I'm doing with Reform.
-- We have a chat and I say some things that she agrees with but she still keeps telling me *I don't think you should be standing for Reform*.
+- We have a chat and I say some things that she agrees with but she still keeps telling me, really strongly, *I don't think you should be standing for Reform*.
 - On that visit, Michelle and I were walking just after I met her and - this was when I had started to notice agents everywhere I went in the UK - a woman (American spy dress) walks past us and does the *we don't like her* frown at Michelle as we walk by.
 - Putting distance between them and her?
 - I never hear from her again.
