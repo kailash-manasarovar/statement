@@ -174,6 +174,20 @@ function googleTranslateElementInit() {
 
 - I never see it in search again.
 
+### Sandra's new love interest, the Paris singing teacher 
+
+- Sandra tells me she has a new love interest; it's the singing teacher at her singing class in Paris.
+- I had a dream about him; he and his wife were sleeping in a huge and empty school gymnasium, you know the ones with the squeaky floors.
+- Sandra told me he had blushed when he saw her.
+- I thought this was a good sign.
+- Now I think I know what her scam is.
+- Sandra produces animal porn with her cat, and God knows what else for the porn-gangs of.. France!
+- Then, the porn-gangs will let her know who downloaded it, where they live, and what they do for a living.
+- I imagine she is never told about anyone that doesn't have a bit of money to lose.
+- Does she pay for this information?
+- So, when she told me he blushed, it's because he recognized her from animal porn... and that's her making herself known before she moves in.
+- See also [Chris and Desa Ludwick](../2025/may.md#meeting-chris-desa-before-i-fly-to-israel).
+
 ## Meeting Alessandra
 
 - I'm meeting Alessandra now and then for coffee to chat. 
