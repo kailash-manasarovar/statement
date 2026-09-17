@@ -9,6 +9,10 @@
 1. Paul's description of how he caught Diana as she fell in Camden High Street!
 1. Inma starts saying, "Do you remember Richard Freed, we met him in Thailand..." and then suggests to me that Rich Freed is an Israeli spy. I say, he's definitely a spy, he's my favorite spy. Nothing more is said about this. Did Paloma tell her to say this?
 
+### Feb
+
+- Michelle stuff from 2013 in here please thank you.
+
 ### July 2025
 
 1. Hip/groin started to complain in Cauterets in August. I thought I had twinged it while trekking. Over next few months, while walking it complained a lot but I kept walking on it, something intensely, like all day just walk walk walk... never had an issue with that before. I think the botch (probably not a botch if you let the patient know they have to take A LOT OF REST for it to heal) might have happened in Cauterets, then weakened further in Bangkok, then pop!
