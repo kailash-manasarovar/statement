@@ -10,21 +10,45 @@ function googleTranslateElementInit() {
 
 ## All over me like scabies in Cauterets
 
-- wip
+- Yeah, this was intense, and I was so high.
+- They were everywhere, no question now.
+- But my mind was so hazy it was hard to figure it all out; and in fact, I didn't at all.
+- But anyway, this section is not ready for detailed editorial yet so I'm just sketching and will add anything necessary.
+
+### One of the twins shuts me down
+
+- I text one of the twins - sister of the woman who stood against Emily Thornberry.
+- I send her a link to my post about what's happening - with the reggae music I had woken up to in the middle of the night cos they like reggae these two.
+- I now believe these two work for the British government in some capacity, and had been associated with Janet (So) quite closely at one point too.
+- Anyway, she shuts me down, and says sorry while doing so.
 
 ### The thermal baths are full of Jewish people and gypsies
 
 - The woman glaring at me with the bag from Sainte Marie de la Mer, for example.
 - It was so intense.
 - A toddler getting passed around - I thought they were seeing if I'd raise the alarm but I knew it was phoney.
+- What was the purpose of it all; it was really getting silly by then, but I was so high my head was swimming.
+- Oh, that was it. Keep me from thinking straight and seeing the obvious.
 
 ### Cupcakes
 
-- Me in the bath.
+- Me in my private bubble bath.
+- My boobs look like cupcakes.
+- A woman states it when I'm next out.
+- Was she letting me know I'm watched? Thanks if so.
+- I'm now watched and monitored constantly, by the way, so I got used to it. But literally everything I do is watched.
+- You know, folks, there's no need for it. I'm pretty cool with everything.
+- Look, in fact you could actually start talking to me even. 
+- When is that going to happen? Soon?
+- I hope so, I've had enough of solitude and there's a spare room upstairs.
+- Is he safe?
 
 ### Up the mountains
 
-- Spies everywhere, always *very* Jewish looking.
+- Spies everywhere, always *very* Jewish looking. Always.
+- It worked a bit, I have to say. But it was never gonna last ... although they pushed it for a long time... 
+- I was never supposed to survive was I.
+- My guess a car crash in Italy... was the plan, no?
 
 ## A song to the mountains
 
@@ -104,6 +128,20 @@ function googleTranslateElementInit() {
 - I thought I would check with the company just to make sure my suspicions were correct.
 - They were.
 - Here's my [email to them](../../content/documents/emails/Philip-Parmour-client-server.pdf).
+
+## Steve gets really sick
+
+- Steve gets very sick around now.
+- I'm attending all and every Thursday consultation during this time.
+- He loses tons of weight.
+- I have to wonder if they tested the poisoning thing out with him and it didn't really go as planned.
+- There really is no need for that by the way. It's not a physical thing.
+- Sigh.
+- I find out in April 2026 that after his "illness" his physician tells him he has a rare disorder which is not cancer but requires weekly chemo. 
+- Are they testing his reaction to chemo?
+- What in the world *are* they doing to Steve?
+- Do they even know themselves?
+- I doubt it.
 
 ## Brittany Ferries
 
