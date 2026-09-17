@@ -90,3 +90,17 @@ function googleTranslateElementInit() {
 - Um... what? Wait..
 - WRONG!!!!
 - Aaaaaaaahhhhhhhhhhhhh.
+
+## Steve gets really sick
+
+- Steve gets very sick around now - I can't remember the date.
+- I'm attending all and every Thursday consultation during this time.
+- He loses tons of weight.
+- I have to wonder if they tested the poisoning thing out with him and it didn't really go as planned.
+- There really is no need for that by the way. It's not a physical thing.
+- Sigh.
+- I find out in April 2026 that after his "illness" his physician tells him he has a rare disorder which is not cancer but requires weekly chemo. 
+- Are they testing his reaction to chemo?
+- What in the world *are* they doing to Steve?
+- Do they even know themselves?
+- I doubt it.

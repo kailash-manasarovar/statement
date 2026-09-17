@@ -129,19 +129,15 @@ function googleTranslateElementInit() {
 - They were.
 - Here's my [email to them](../../content/documents/emails/Philip-Parmour-client-server.pdf).
 
-## Steve gets really sick
+## Steve has an episode
 
-- Steve gets very sick around now.
-- I'm attending all and every Thursday consultation during this time.
-- He loses tons of weight.
-- I have to wonder if they tested the poisoning thing out with him and it didn't really go as planned.
-- There really is no need for that by the way. It's not a physical thing.
-- Sigh.
-- I find out in April 2026 that after his "illness" his physician tells him he has a rare disorder which is not cancer but requires weekly chemo. 
-- Are they testing his reaction to chemo?
-- What in the world *are* they doing to Steve?
-- Do they even know themselves?
-- I doubt it.
+- It's with his eyes.
+- They go extremely red from time to time, it's alarming looking.
+- It happens just after I'm poisoned and I feel like I'm going blind too.
+- I tell them, via my new communication mechanism on the Samsung, that I think maybe it's possible we share symptoms.
+- I don't think that anymore, but who knows.
+- I also tell them some of my theories about how Jesus rose from the dead.
+- It's always a totally one-sided conversation, I don't know why I'm bothering other than that I have no one else to talk to.
 
 ## Brittany Ferries
 
