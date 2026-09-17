@@ -430,7 +430,7 @@ function googleTranslateElementInit() {
 - The lightning feels like a wave back; "I noticed you too". (It was a clear sky, no clouds).
 - Genuine Light episode folks.
 - What the H+*&*&*& were you all thinking?
-- Oh wait, I know. *I'm God, I'm God, I'm God...*, like that, no?
+- Oh wait, I know. *I'm God, I'm God, I'm God, forget the Bible, who's Jesus again?...*, like that, no?
 
 ## Damning updates
 
