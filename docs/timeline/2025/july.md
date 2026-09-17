@@ -34,14 +34,15 @@ function googleTranslateElementInit() {
 - She reminds me of the [white man interrogating the group of British Islamic Asian men](march.md#a-man-who-reminds-me-of-domingo) that had sat right next to us in March in another completely empty seating area.
 - They could be related; her son maybe, or younger brother?
 - They have the same manner of speaking.
-- I go and get our dinners, leaving dad alone with the woman.
+- I go and get our drinks first, then dinners, leaving dad alone with the woman twice.
+- It's possible something was added to my drink while I was away.
 - When I bring the dinners back, the waitress is taking her order.
 - She calls the woman by her first name; Claire maybe.
 - Dad seems cowed, a bit scared of her.
 - He tells me that she kept saying things to him he didn't like.
 - He says he thinks she's the boss.
 - I tell him not to worry about her, and that I won't leave him alone with her.
-- I wonder if I started feeling high again at that moment...
+- I start feeling high again at that moment...
 - As dad and I leave, we have to walk past the woman.
 - As I pass her, she makes an unnecessary hand-gesture to me; the prayer gesture that the Thai's and Indian's make to each other after speaking; a specific thing I did often at the conservatory that teachers and staff jeered at and persecuted me about.
 - I note it.
@@ -57,36 +58,17 @@ function googleTranslateElementInit() {
 
 - The Sunday before I leave on my own for Lourdes, dad and I go for a dinner at the Claddagh Ring.
 - He's very candid with me this evening.
-- He tells me he thinks his brother abused my aunt Bernadette and I've had enough of hearing about this sort of thing and get angry with him.
+- He tells me he thinks his brother abused my aunt Bernadette and I've had enough of hearing about this sort of lets-blame-Jo-for-everything and get angry with him.
 - He tells me he's a spy cop.
 - Not a spy cop exactly, a spy robber would be a better term.
-- He tells me he married my mother on request by the British government.
+- He tells me he married my mother on request by the British government after an army major gave him a lift to Belfast from Dublin when he first went to university.
 - He suggests it could have been any woman but he picked her for some reason.
 - I suspect because she's very easily manipulated.
 - I don't know why he's telling me this at this time. It's high treason. Unless he's told someone else already and he's worried about it coming out.
-- It was tense times in Belfast Northern Ireland when they met and they were both studying at Queen's University.
-- He doesn't say if he was paid or if he had to do it to avoid jail for some perversion they had him on.
-- I tell him I get it, it's what countries do to protect themselves. I can't imagine they got anything from him though and this vile act of deception destroyed us all.
-- The news is unsurprising, rather liberating in fact.
-- Suddenly, my life experiences make total sense.
-- What he doesn't say is if he told the porn gangs of Dénia stating that no-one would ever investigate anything that happened to me.
-- Is that why he's worried about it coming out now?
-- Or did [the woman in the Red Lion](#the-woman-at-the-red-lion) tell him not to go to Lourdes with me because they were going to finish me off and he was getting an enormous weight off his chest with someone he felt would never be able to tell?
-- I got the date wrong on this on the initial commit but then remembered it had to have been before I left for Lourdes.
-- Did his untouchable status make him capable of unspeakable evil?
-- Did my dad boast about this to the wrong people over the years, about how his daughter would have no humans rights if anything happened to her?
-- I wonder if they all knew they could do whatever they like to me, including murder, and no-one would lift a finger.
-- Did he very literally throw us to the wolves?
-- When I think back to 1989, it does seem we were targeted, prepped, and groomed for a few months on the run up to the production of repeated sedated rape-gang porn with groups of black men on their mothers' kitchen tables and elsewhere in London.
-- They must have made millions on the films and, like in Dénia, the massive resources spent on producing this porn and terrorizing its star(s) would have been well worth it for a criminal enterprise.
-- Did the rape-gangs of North London know it was safe to target me because of my dad's secret life?
-- Did the people at the Red Lion share the porn with him afterwards back in 1989?
-- Is that why when I was broken and suffering from PTSD as a child, and would come home at night devastated after being bullied and jeered at yet again by my friends, he would sit there, drunk, and giggle, yes that giggle again, as if he knew something about what had happened and it delighted him?
-- Is this why he and my mother blamed my black friend for everything that had happened to me?
-- Not everyone knew about this, of course, or they wouldn't have bothered trying to punish him for his various evils through targeting me.
-- It clears up why everyone is warned off me more recently, notably when [I stood for election in June 2024](../2024/june.md#election-campaign) and it was obvious I had been massively discredited and I no idea why.
-- The truth is liberating but very upsetting at times.
-- And he's not getting anything off his chest. He's telling me why I'm about to be murdered, without really telling me why. Is it a sick apology in advance.
+- Or perhaps he's telling me this because he knows they're planning on murdering me in Lourdes, and the woman at the Red Lion had told him so.
+- Is he getting it off his chest before I'm dispatched with?
+- And he's not really getting anything off his chest. He's telling me why I'm about to be murdered, without really telling me why but telling me some lame arsed excuse - which is probably a lie - about why he can't do anything about it.
+- It's a sick apology in advance.
 
 ## Lourdes
 
@@ -104,7 +86,7 @@ function googleTranslateElementInit() {
 - When I next return to Lourdes, the little Ram has gone.
 - Bonafide Catholic Church involvement in the conspiracy as the trick to keep me distracted - and [steal my eggs](../../personal/egg-theft.md) - ramps up.
 
-### Poisoning ordered by the mousses
+### Poisoning ordered by the Americans
 
 - As I check into my hotel, the Arcades, two people walk past me after speaking with reception.
 - One of those people is the woman to the left of this pic.
@@ -113,7 +95,7 @@ function googleTranslateElementInit() {
 
 [![Taya](../../content/images/domingo-target-mother-advertisement.jpg)](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano)
 
-- Later, on X, she introduces herself as Taya.
+- Later, on X, someone introduces her as Taya.
 - At the hotel, she is with a tech I suppose; a man of about 20 with black hair and very pale skin. 
 - He is dressed in black.
 - The following day, they come to the restaurant for dinner, just after I have arrived to eat.
@@ -122,11 +104,8 @@ function googleTranslateElementInit() {
 - I see the waitress sort of whirl backwards a bit as they brush past her.
 - The waitress goes off sick and doesn't return. 
 - It is now 7 days she is off sick. She had a very bad cough. This might be irrelevant.
-- I believe it is *highly* likely these two came into my room to add substances to my toiletries or whatever it is they do.
-- They must be *going equipped* at all times.
-- My eye health has deteriorated massively this week in Lourdes.
-- Having been to police and doctors all over Europe about being stalked and poisoned over the last years, my sudden-onset pre-glaucoma condition amongst other things, and literally no-one wants to help me, I have no other option but to write it down.
-- Are they trying to blind me so that I can't continue to write?
+- These two were tasked to enter my room (possibly with the black maid's help because she couldn't look me in the eye) and add poison to my toiletries.
+- My eye health deteriorates massively this week in Lourdes.
 - There is a lot of activity on X, especially after I post a response to all this.
 
 ![Taya toll](../../content/images/taya-toll.png)
@@ -141,6 +120,7 @@ function googleTranslateElementInit() {
 ![Ugly](../../content/images/a-tadge-menacing-2.png)
 
 - The message, "Ugly", I presume to be reference to being followed the previous summer in Lourdes and Cauterets, something [I already wrote about](https://fearandloathinginlasmarinas.com/timeline/2024/august/#followed-by-the-gypsy-in-france), and maybe posted about, we will see.
+- The poisoners will also add deadly substances to the food and drink I left in my car that I planned to consume in Cauterets.
 
 ### Constant confirmation I'm being watched
 
@@ -148,6 +128,7 @@ function googleTranslateElementInit() {
 - I see posts referring to my belly size which makes me think they've installed a spy-cam in my room.
 - I see posts related to how I look, what I'm wearing, things in the town, decorations at the hotel, the amount of mosquitoes in the hotel.
 - It's endless.
+- I got some videos of the poisoners at dinner.
 
 !!! tip "Videos"
     - I tried to get videos of them at dinner.
@@ -155,6 +136,15 @@ function googleTranslateElementInit() {
         - [1](https://drive.google.com/file/d/1flFEbVj4ekoadj2ptsBCY2fn8fRb1xbq/view?usp=sharing) 
         - [2](https://drive.google.com/file/d/1ZdSf9KXYfJRfW4zpJ01d7vWHOIoamtoC/view?usp=sharing)
         - [3](https://drive.google.com/file/d/1hZvMgg0z0DzZbERC9se5HlvDEzWi5AUt/view?usp=sharing)
+
+### The man with Alzheimer's
+
+- One afternoon while serving at the bath, I ask Mary to give me a sign about my love.
+- *If he exists, Mother, please tell me a little bit about what he's like. Give me a partner just like him*.
+- I am partnered with the most delightful Spanish woman and we get on famously.
+- A very sick man comes in with Alzheimer's.
+- I have my hand on his shoulder, and he calms and we both look at Mary together.
+- My partner takes the holy spring water and gently applies it to his lips.
 
 ### Saint Anne & Saint Joachim's feast day
 
@@ -211,10 +201,10 @@ function googleTranslateElementInit() {
 - On my last day of service to Mary, I have a really big headache which feels like it is going to become a migraine and is effecting my eyes and vision.
 - I have to come back to my room and skip the afternoon service.
 - Curiously, this is right after a [very bizarre meeting with a member of the British hospitalite](#more-transvestites-at-lourdes).
-- The following day, I feel a little better, but after about an hour in the car, I can feel both kidneys are screaming just like they did when I was sitting peacefully in my apartment in Dénia around lunchtimes.
+- The following day, I feel a little better, but after about an hour in the car on my way to Cauterets, I can feel both kidneys are screaming just like they did when I was sitting peacefully in my apartment in Dénia around lunchtimes.
 - The next day, my kidneys are still aching, my eyes are blurry, and my vision is extremely poor. 
 - I can hardly look at bright lights, including a clear sky.
-- And that [private symptom Ana Girbes had such fun jeering at](../2024/january.md#ana-and-ana-and-paqui) has returned.
+- And that [private symptom Ana Girbes had such fun jeering at](../2024/january.md#ana-and-ana-and-paqui) has returned - frequent urination and dribbling - actually I believe this symptom is mostly due to repeated rape.
 - They certainly got me, yet again.
 - Toiletries, toothpaste, moisturizer? Who knows.
 - Perhaps they even got into the car where I was keeping water and food.
@@ -332,8 +322,8 @@ function googleTranslateElementInit() {
 - I won't realize until August 2026, but this marks the moment that criminal gangs are *officially* replaced by security services - not even then... way earlier.
 - I do notice something has changed, but it's not clear to me in my drugged (constant invasive-surgery recovery - pain killers was it?) state exactly what or why.
 - In fact, I've been so effectively drugged during this time, I don't realize that the constant agent activity around me since July 2025 is not about law-enforcement bringing down the largest international criminal gang ever known at all.
-- No, it's all about stealing a *superhero's* eggs, and not helping me at all. They don't care if I die, and my guess is they're hoping that one of their attempts at murdering me will eventually work.
-- I won't know any of this till August 2026.
+- No, it's all about stealing a *superhero's* eggs, while planning the murder of the superhero once they feel they got enough of them.
+- I won't know any of this till August 2026, when God tells me everything at the Kotel.
 - Up until then, I am stalked relentlessly by security services that seem desperate to bite chunks out of me.
 - They make a few more attempts at murder; including [a really good try in Tibet in June](../2026/june.md#everest-base-camp-and-sickness).
 - I survive.
@@ -362,11 +352,41 @@ function googleTranslateElementInit() {
 - Who knows what else they're up to.
 - Perhaps they're trying to create a master race! That's it, isn't it!
 
-#### Massive farts up the mountain
+## Cauterets
+
+- After Lourdes I stayed in Cauterets for three weeks.
+- The whole town was rammed with agents.
+- Everywhere I went, agents.
+
+### Rescuing Antonio and taking him to Israel
+
+- I was contacted constantly about the impending "rescue" of Antonio Ruiz and how he was going to be taken to Israel and be finally safe.
+- It was relentless; days, times, when it was done.
+- And all of it was lies.
+- Instead, the UN kidnapped a whole bunch of (I'm assuming) his associates and indeed took them to Israel, but he wasn't among them.
+- Nevertheless, this lie was repeated to me endlessly for over a year, until God told me the truth at the Kotel in August 2026.
+- I couldn't understand why they would have rescued him and not me. It never made good sense. And so it was always doomed, but I expect they thought I'd be dead before I ever found out anyway.
+
+### Another surgery in Cauterets
+
+- I'm pretty sure they must have extracted an egg/eggs here.
+- This was the first time I noticed some pain in my left groin area (I had thought hip before by mistakenly associating it with a very minor inconsequential misstep in the mountains) which ended up being a (repeated?) stich that snapped at FitKoh in Samui.
+- And I was high for days, weeks even - painkillers?
+- Imagine performing surgery like that and letting the patient carry on normally which included intense treks up in the high mountains.
+- Is that why there were always agents around? Making sure I didn't fall or collapse or whatever?
+- And to distract me was this constant story, this lie about what had happened to Antonio.
+
+### The Indians are listening
+
+- So I started to communicate directly on the Samsung via email - which I continued doing right up to Loka Yoga in Bali in July 2026.
+- And one time, suddenly, the screen goes to Hindi and they're telling me, no no, you must stop talking now the Indians are listening.
+- They've set them up as *enemies*... which was utterly ridiculous and I even knew it then.
+
+### Massive farts up the mountain
 
 - The day after surgery, I believe it must have been, I went up into the high mountains.
 - I was farting like a hippo.
-- I think the farting is to do with the CO2 in the abdomen for keyhole surgery and it wasn't the first time this happened.
+- I think the farting is to do with the CO2 in the abdomen for keyhole surgery and it wasn't the first or last time this happened.
 
 ## More threats
 

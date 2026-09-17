@@ -4,15 +4,12 @@
 
 ## TODO: list
 
-### July 2025
-
-1. Hip/groin started to complain in Cauterets in August. I thought I had twinged it while trekking. Over next few months, while walking it complained a lot but I kept walking on it, something intensely, like all day just walk walk walk... never had an issue with that before. I think the botch (probably not a botch if you let the patient know they have to take A LOT OF REST for it to heal) might have happened in Cauterets, then weakened further in Bangkok, then pop!
-1. After I survive poisoning, Steve gets inexplicably sick and loses tons of weight and *his physician* tells him he has a rare disease which means he needs chemo once-a-week.
-1. Mousses set up Indians on my mobile as "enemies" and for future blaming.
 
 ### August 2025
 
 1. Squirrel brings a whole nest of vipers with him in August 2025 -> for reasons vague and unbeknownst to me at this stage. Is it the *bad but not as bad as* Domingo's lot? Have they managed to convince the UN and the mousses they're the ones in danger? Why am I still running around being stalked continuously and operated on and injured on a regular basis by the mousses if even a nest of vipers are in that much danger? And did they ship them all off to Israel so they could save face, more "switcheroo" blame passing. Indeed, it's like an unconscious twitch, isn't it. 
+1. the thermal baths
+1. After I survive poisoning, Steve gets inexplicably sick and loses tons of weight and *his physician* tells him he has a rare disease which means he needs chemo once-a-week.
 
 ### September 2025
 

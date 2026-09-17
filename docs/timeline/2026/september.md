@@ -2,7 +2,7 @@
 
 ## Cauterets
 
-- Because the mousses made such a fuss over me [in July/August 2025 when I stayed here and survived another round of poisoning by the Lopez Cano's](../2025/july.md#poisoning-ordered-by-the-mousses), it seems everyone in the village thinks I'm famous!
+- Because the mousses made such a fuss over me [in July/August 2025 when I stayed here and survived another round of poisoning by the Lopez Cano's](../2025/july.md#poisoning-ordered-by-the-americans), it seems everyone in the village thinks I'm famous!
 - I guess the *organizers* had no option but to make themselves known.. did they say they were security or something like that?
 - The town was heaving with salmon mousses that summer and they followed me everywhere I went.
 - Although there might still be remnants of [poison from Sandra](../2024/september.md#the-hairdresser), I expect. It'd be nice to clear that up. The man is a great hairdresser; what on earth did she tell them?
