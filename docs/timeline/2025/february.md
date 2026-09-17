@@ -680,6 +680,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Whenever I met Michelle, she always mentioned how she'd been on the phone with Karen Townsend, another old school friend but possibly connected to North London's finest.
 - I told Michelle about the spy-cam porn epidemic and how spy-cams had been set up in my apartment in Spain and how the porn-rot had gotten into schools, hotels, everywhere over there. 
 - She changed the subject.
+- Michelle said she did not remember our meeting from 2010 when I mentioned it, and I was really vague about it at the time too.
 - We also spoke about Jennifer Regnet, our shared classmate and a best friend of mine from East Finchley for years - we went to primary school together.
 - Jen became a woman with *A LOT* of money, and a sexual trauma history, and seemed to always be getting into relationships with scammers. Michelle seemed to know a fair bit about the latest scammer situation centred in a hotel in Brighton or Hove on the south coast of England.
 - I did wonder about Michelle. She seemed to be being gossiping about Jen and nosey about me, rather than genuinely concerned; yet another not-uncommon (for me) disinterested reaction to horror that implies involvement.
@@ -706,5 +707,3 @@ Anyway. With the best. Tell your team to come into the office pls.
 - On that visit, Michelle and I were walking just after I met her and - this was when I had started to notice agents everywhere I went in the UK - a woman (American spy dress) walks past us and does the *we don't like her* frown at Michelle as we walk by.
 - Putting distance between them and her?
 - I never hear from her again.
-- Word on the street is that Michelle Gordon is *very interesting* with regards to our current efforts for justice and peace on earth :), but I've no idea how or why.
-- Michelle hasn't been farming out her white friends to the black rape-gangs has she?
