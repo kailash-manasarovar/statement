@@ -480,7 +480,7 @@ function googleTranslateElementInit() {
 
 ### Inma tells me she thinks Richard Freed is an Israeli spy
 
-- The night before I leave Madrid, Inma and I are walking on Gran Via after dinner.
+- The night before I leave Madrid, Inma and I are out walking on Gran Via after dinner.
 - She says: *do you remember Richard Freed, from when we were at the Spa in Samui?*
 - I had been [texting with him just the week before](../2024/december.md#richard-freed) at the Spa Beach resort.
 - I say yes.
