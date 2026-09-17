@@ -656,9 +656,9 @@ function googleTranslateElementInit() {
 - I do not attempt to see her until this time for two reasons. First, I had been depressed and didn't see anyone as a rule. Second, my head was spinning with what was going on for me and it was difficult to know how to deal with anything outside of prayer, and fighting the cyber-stalkers online.
 - In 2016, I was concerned that she was interacting with [Hazel Smith](../2001-to-2010/2007.md#hazel-smith) in some manner, I can't remember how, and I warned her about Hazel.
 - I told Elke that Hazel is not a good person without mentioning she's a serial killer.
-- I hadn't seen my friend since 2016. Since then, we only chatted a few times online and I hadn't had any contact with her since 2020.
+- Since then, we only chatted a few times online and I hadn't had any contact with her since 2020.
 - Normally a German translator, she had a new job selling fruit and vegetables in the market for some years with her new boyfriend, who I hadn't met yet.
-- She also worked hard-labour in the fields growing the produce.
+- She also worked hard-labour in the fields growing the produce by hand - I saw a photo of her in a massive field bending over freshly tilled ground (planting I supposed).
 - They supply some of the best restaurants in the region, she told me.
 - A common friend of ours is [Klara Sarkadi](../../crimes/introduction-agents.md#klara-sarkadi), the Orfeo choir master who is a close associate of Domingo Lopez Cano and a porn-gang victim introduction agent and side-line shepherdess (the name they use for anyone who plays a part in choreographed events that support the porn-gang's destruction of a lone drugged target).
 - Klara may well be in porn without her knowledge too.
@@ -688,17 +688,18 @@ function googleTranslateElementInit() {
 - At that moment, I became concerned that my friend had been tricked too.
 - Could she have been honey-trapped and then enslaved to work in the fields?
 - She has no money but she is physically strong.
-- Why is she slaving away in the fields every day? She's over 60.
-- Her man, who was weird with me, is probably more than 20 years younger than her, and has delicate hands and doesn't look overworked at all.
+- Why is she slaving away in the fields every day? She's at her retirement age.
+- Her man, who was weird with me, is at least 20 years younger than her, and has delicate hands and doesn't look overworked at all.
 - Does he spend all his time with her at her home? She told me they both live there. (The litmus test for a honey-trap relationship where a man has another life.)
-- I remembered she was always going to a local psychic/match-maker in 2016 looking for a man, and knowing what I now know about this town and the monstrous lie that has turned nearly everyone into a psychopath, I shuddered.
+- I remembered she was always going to a local psychic/match-maker in 2016, obsessed with finding a man, and knowing what I now know about this town and the monstrous lie that has turned nearly everyone into a psychopath, I shuddered.
+- I remember telling her back then, as we discussed men one afternoon, that she had set herself on *learning the hard way*.
 - Another time I go for vegetables, [Thao](may.md#acupuncture-with-thao-qi) is there, the criminal acupuncturist who told me I had diabetes and I must see my GP about it. Is she waiting for me too? 
 - She says hi, and asks if I went back to classes at the conservatory after the attack.
 - I say yes I did, strongly.
-- Another time I go for vegetables, [Domingo Lopez Cano himself](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) is there, on his own, accompanying, alone, the two little girls from Madrid that he teaches, and who [I told Paloma about](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) in October 2024.
+- Another time I go for vegetables, [Domingo Lopez Cano himself](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) is there accompanying, alone, the two little girls from Madrid that he teaches, and whose names [I gave to Paloma in writing in her hand](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) in October 2024.
 - I give him a [therapy card](#praying-at-cauterets).
 - He shouts, "ooooh, touch", elongating the word *touch* in a salacious manner, and leaves with the little girls.
-- My friend says, oh you know him, and tells me that she sees him all the time with his daughters.
+- My friend says, *oh you know him*, and tells me that she sees him all the time with his daughters.
 - I tell her they are not his daughters.
 - Alarm flashes across her face.
 - The last time I see her, in April 2024, she says, oh I just saw Paqui Fornet, "isn't she a nice person?".
