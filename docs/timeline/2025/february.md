@@ -706,7 +706,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - We have a chat and I say some things that she agrees with but she still keeps telling me, really strongly, *I don't think you should be standing for Reform*.
 - She also defends corporate sexism in a manner in which one only does when one is actually working!
 - She's expecting me to swallow up everything she's saying about politics, about work, about Steve, without questioning it, and I don't.
-- They genuinely thought I was an idiot, didn't they.
+- They genuinely thought I was an idiot, didn't they, or was it the constant drugging they expected me not to be able to withstand?
 - On that visit, Michelle and I were walking just after I met her and - this was when I had started to notice agents everywhere I went in the UK - a woman (American spy dress) walks past us and does the *we don't like her* frown at Michelle as we walk by.
 - Putting distance between them and her?
 - I never hear from her again.
