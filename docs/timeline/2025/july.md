@@ -426,9 +426,11 @@ function googleTranslateElementInit() {
 
 ## Viscos
 
-- I see the Viscos peak from [my temporary chair](https://drive.google.com/file/d/1W92R2v8QAsAzDaAs1oIg99ozWLrcuqJ4/view?usp=sharing).
+- I see the Viscos peak from [my temporary chair](https://drive.google.com/file/d/1W92R2v8QAsAzDaAs1oIg99ozWLrcuqJ4/view?usp=sharing) in Cauterets.
 - The lightning feels like a wave back; "I noticed you too".
-- So nice.
+- Genuine Light episode folks.
+- What the H+*&*&*& were you all thinking?
+- Oh wait, I know. *I'm God, I'm God, I'm God...*, like that, no?
 
 ## Damning updates
 
