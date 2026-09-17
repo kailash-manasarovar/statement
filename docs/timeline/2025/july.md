@@ -361,10 +361,11 @@ function googleTranslateElementInit() {
 ### Rescuing Antonio and taking him to Israel
 
 - I was contacted constantly about the impending "rescue" of Antonio Ruiz and how he was going to be taken to Israel and be finally safe.
-- It was relentless; days, times, when it was done.
+- It was relentless; days, times, afterwards, when it was done.
 - And all of it was lies.
 - Instead, the UN kidnapped a whole bunch of (I'm assuming) his associates and indeed took them to Israel, but he wasn't among them.
-- Nevertheless, this lie was repeated to me endlessly for over a year, until God told me the truth at the Kotel in August 2026.
+- Was it on ransom that he give himself up? I bet it was.
+- The lie was repeated to me endlessly for over a year, until God told me the truth at the Kotel in August 2026.
 - I couldn't understand why they would have rescued him and not me. It never made good sense. And so it was always doomed, but I expect they thought I'd be dead before I ever found out anyway.
 
 ### Another surgery in Cauterets
