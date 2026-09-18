@@ -670,7 +670,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Michelle suddenly started communicating with me on Facebook at the same moment everything was kicking off in November 2024 in Thailand.
 - She was in Canada at the time visiting her sick father, she said.
 - I felt for her because of this - dad had just fallen and was still in hospital - and I contacted her regularly for a bit to make sure she was OK.
-- In February, [we meet at Hyde Park for Let Women Speak](../2025/february.md#michelle-gordon) and then go to the Dorchester for a drink.
+- In February, [we meet at Hyde Park for Let Women Speak](../2025/february.md#michelle-not-being-funny-but-gordon) and then go to the Dorchester for a drink.
 - I was trying to follow the others to the pub they go to, but lost them, so we wandered for a bit and ended up there - at Michelle's suggestion.
 
 ![Me at the Dorchester with Michelle Gordon](../../content/images/me-at-the-dorchester.png)

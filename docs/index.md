@@ -213,6 +213,8 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 [Chris Ludwick's admission of guilt](content/images/murderers-protecting-the-sedated-rape-epidemic.png)
 
+- It is my view, this morning, that my extreme and exaggerated experience of sedated-rape throughout my life is meant to survive a mighty purpose: resetting of the human mind, making us sane again.
+
 ### The global tech-bro porn-addict community
 
 - The audience for criminal porn is massive.
