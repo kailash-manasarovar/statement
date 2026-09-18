@@ -216,7 +216,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 - What do you think happens to the minds of billions of men participating in all this on the porn networks?
 - Well, I can tell you they say, wow, hey everyone, look at this... we can do whatever we like now, we just have to tell them Dénia organized it.
 
-[Chris Ludwick's admission of guilt](content/images/murderers-protecting-the-sedated-rape-epidemic.png)
+[![Chris Ludwick's admission of guilt](content/images/murderers-protecting-the-sedated-rape-epidemic.png)](https://x.com/ISurvivePoison/status/2099223414238015820)
 
 ### The global tech-bro porn-addict community
 
@@ -238,19 +238,6 @@ However, I am aware of growing international support for my endeavors; and a sol
 - The most interesting thing, however, is what the porn-distributors managing the live-stream sales tell these men that makes them so sure they'll never get caught!
 
 ![Planning the murder of innocents](content/images/planning-the-murder-of-innocents.png)
-
-## A well-oiled sedated-rape-porn machine 
-
-- The conservatory's [switcheroo-porn scam running in 2022-2023](crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher), me starring, was an efficient and very well-oiled machine.
-- There must be countless victims young and old; many missing, presumably murdered.
-- I intend this police statement to help every last one of those victims, dead or alive.
-- I believe that [every daily event](timeline/2001-to-2010/2001.md) I detail in the timeline of this police statement was videoed and broadcast to a porn-addict and vile misogynist online community as a kind of "show" which explains the townsfolk's total insanity and has also made criminal gangs very rich.
-- This is, essentially, why I'm so famous.
-- I believe that millions of porn-addicts around the world were, and maybe still are, betting on the outcome for me; madness, suicide, murder, more sedated-rape, etc.
-- I was/am in a kind of Truman Show, except "Truman" is a targeted individual, usually a woman but not always, probably often a child student of the conservatory, and us "Trumans" are expected to die by suicide or serious ill health from poisoning, or go quite mad from the relentless mental torture, or be outright murdered if we're made of tougher stuff, and none have never escaped. 
-- Until now.
-
-![Franz Kafka's machine](content/images/kafkas-machine.webp)
 
 ## Lorraine Blackbourn should be alive today
 
@@ -278,6 +265,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 - Maybe someone heard me farting loudly.
 - Many of the men will have seen footage of me masturbating in my bedroom or bathroom while I was drugged out of my mind on spiked hallucinogens and aphrodisiacs.
 - No doubt they will have seen the regular sedated-rape sessions broadcast live from my apartment, or even [the preliminary switcheroo sex-assaults filmed live at music classes at the conservatory](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel).
+- They're running a well-oiled sedated-rape porn-machine.
 - You could ask them if they were watching the porn specials back in 2015, 2013, or even 2008 from my other homes.
 - Why not ask them who else they're watching in similar situations; there's bound to be masses of live-action spy-cam sex-slaves everyone knows about.
 - Ask them how many of those women ended up dead, and if you like, you could ask them if they expected the same for me.
