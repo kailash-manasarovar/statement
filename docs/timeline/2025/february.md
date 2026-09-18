@@ -660,7 +660,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ![North London Dénia fatberg release](../../content/images/london-denia-fatberg.png)
 
-## Michelle (I'm not being funnny, but) Gordon
+## Michelle (I'm not being funny, but) Gordon
 
 - I already wrote about [meeting Michelle Gordon in 2010](../2011-to-2020/2013.md#richard-recommends-hot-yoga-taryn-and-michelle-gordon-are-there), just after I returned from India where I had been starring without my knowledge in [a month-long porn special with Jitendra Das](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star).
 - We had taken a Bikram hot-yoga class together in Old Street - possibly taught by [Taryn from Loka Yoga](../2026/july.md#loka-yoga) - and I believe it was her invitation; although I spoke with Richard Freed about the experience later too.
