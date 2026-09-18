@@ -34,15 +34,18 @@ function googleTranslateElementInit() {
 - They don't believe me.
 - The most marvelous irony about this is that everyone thought they owned me; but only God owns me.
 - They use the Isaiah quote related to this constantly online from that moment.
-- In July 2026 in Bali, it's intense how much they use this reference - the words popped up on the (switcheroo'ed) taxi driver's screen on the way to the course even - as I start to realize they're not Israel they're America, and they think *they themselves* own me and God doesn't exist.
+- In July 2026 in Bali, it's intense how much they use this reference - the words popped up on the (switcheroo'ed) taxi driver's screen on the way to the course even - as I start to realize they're not Israel they're America, and they think *they themselves* own me and that God doesn't matter.
 
 ### Dinner with Steve
 
 - We have dinner just outside Zion Gate near the city walls; we go twice to this restaurant the lamb was so good.
 - Of course, every time we go there are American agents sitting close by.
 - I tell Steve about how [*they got me again*](july.md#poisoning-ordered-by-the-americans) referring to the Lopez Cano's recent poisoning attempt at Lourdes.
-- Steve does not react like a normal person.
-- He starts telling me that he treated some gypsy families, and the men would sit around all day drinking: *that's all they do, Katharine*, he said.
+- Steve does not react like a normal person who is hearing information that people are trying to murder their friend.
+- He doesn't say anything at all, in fact.
+- I tell him I'm writing it all down, and I can give him the link to this police statement.
+- He says: *nooooooo*, in a mock scared tone which I find extraordinary!
+- He then starts telling me that he has treated some gypsy families in the past, and how the men sit around all day drinking: *that's all they do, Katharine*, he said.
 
 ### Elvis Presley
 
