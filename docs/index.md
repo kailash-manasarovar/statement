@@ -239,6 +239,15 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ![Planning the murder of innocents](content/images/planning-the-murder-of-innocents.png)
 
+#### A starting point for corporate investigators
+
+- It turns out, that everyone was having so much fun at my expense over the last thirty-eight years - and making so much money - of course the tech-bro porn-addicts at the companies I worked for were enjoying my prolonged horror-porn-crucifixion.
+- The porn-gangs even used regular, common, law-abiding, apparently normal, tax-paying tech-recruitment-agents to lure me into amazing jobs with great salaries in which I was immediately treated like dirt.
+- Those grotesquely upsetting moments were lived-streamed for jeering, and masturbating over when the boys popped over later on after I had gone to bed and was rendered unconscious on sedating gas.
+- For these horrible reasons, I'm uploading my CV so that if anyone cares to investigate the global tech-bro horror-porn obsessions endangering the lives of law-abiding, tax-paying, decent women and men (of which I am no doubt the tip of the iceberg), here's where you might like to start.
+
+[![My CV](content/images/cv.png)](content/documents/CV_2025_CV.pdf)
+
 ## Lorraine Blackbourn should be alive today
 
 - Lorraine Blackbourn committed suicide in July 2021; on the exact same day I returned to Dénia for a short holiday after many years!
@@ -273,18 +282,6 @@ However, I am aware of growing international support for my endeavors; and a sol
 - Or whether they saw footage of me as a child, sedated and gang raped by a group of black men, or any of the other multiple times I ended up in porn without my conscious awareness, knowledge, or consent.
 - Don't forget to ask them about the flourishing pedo-porn and baby-rape industry in the region.
 - I can imagine you could start a conversation off with one of these people and it feel normal, and funny, and they're laughing, in a jeering way - they're way better than those foreign sluts that everyone hates that they watch obsessively on the porn channels - and you mention the children, and the conservatory teachers, and they're still laughing, but there's a flutter in their voice now, and you mention the babies, and there's a splutter, and then they stop laughing, you lose eye contact with them, and maybe, just maybe, the shame can come in and they're human again.
-
-## Colleagues and employers with horror-porn subscriptions, and their mates
-
-- It turns out, that everyone was having so much fun at my expense over the last thirty-eight years - and making so much money - even the tech-bro porn-addicts at some of the companies I worked for were enjoying my prolonged horror-porn-crucifixion; and most significantly at [Polygon](timeline/2024/may.md#bali).
-- The porn-gangs even used regular, common, law-abiding, tax-paying tech-recruitment-agents to lure me into amazing jobs with great salaries in which I was immediately treated like dirt.
-- Those grotesquely upsetting moments were lived-streamed for jeering, and masturbating over when the boys popped over later on after I had gone to bed and was rendered unconscious on sedating gas.
-- For these horrible reasons, I'm uploading my CV so that if anyone cares to investigate the global tech-bro horror-porn obsessions endangering the lives of law-abiding, tax-paying, decent women and men (of which I am no doubt the tip of the iceberg), here's where you might like to start.
-
-[![My CV](content/images/cv.png)](content/documents/CV_2025_CV.pdf)
-
-- Yes yes, I know I know, why is the doctor of Computer Science who built the world's first spiritual tech working in a role that everyone believes is worthless?
-- Perhaps our story will explain that on its own, and without further effort.
 
 ## Motive
 
