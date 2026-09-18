@@ -8,6 +8,27 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Hip/groin injury starts paining me
+
+- I'm campaigning for a local election with Reform.
+- Myself and another woman who is now standing somewhere in Barnet for Reform - I'm assuming agent now as, since I survived poisoning in July, I'm not allowed anywhere without them - are going house to house in Hendon talking to people and delivering leaflets.
+- I've been walking all day - apart from a few hours when I had a hairdresser appointment scheduled.
+- I'm perhaps starting to limp a bit, or I maybe mentioned a pain coming on.
+- The woman I'm with starts to walk really, *really* slowly. 
+- There's no reason why she would do that.
+- We were racing around at the beginning of the day.
+- I'm wondering if she was told to slow down by someone who knew I had stitches in my groin region and had heard I was complaining about feeling pain.
+- This is the same stich which will snap and crunch at FitKoh in December after just a couple of paces jogging - I expect after another incision in the same place in Bangkok or Samui.
+
+### Haircut disaster on the same day
+
+- I had had a long break from walking that day when I went to the hairdresser - if you're thinking I might have tired myself out or something.
+- And don't forget I was walking full 12 hour days in the Pyrenees not long before.
+- In total that day I was probably out walking, and standing, and talking for about 6/7 hours no more and a good deal of standing.
+- The hairdresser *mullered* my hair, and I mean on purpose he gave me the worst haircut in the world.
+- It's nearly a year later (time of writing September 2026) and hair is still uneven on the sides of my head.
+- I had written about this already as an aside to [a similarly disastrous (but quite stylish) haircut in Bangkok the year before](../2024/november.md#another-inexplicably-bad-haircut-in-n10-in-2025).
+
 ## Suicide content on my `@JackChardwood` account
 
 - You may remember in [January 2024](../2024/january.md#the-jackchardwood-x-feed-changes-completely), my `@JackChardwood` X feed went from one content type to another, literally over night.
@@ -48,6 +69,7 @@ function googleTranslateElementInit() {
 - Another view of some of the less unpleasant of these changes in content is that someone was/is doing a bit of show-and-tell for my benefit.
 - Thank you, whoever you are. It has helped enormously.
 - But seriously, you should all be done for mass murder and mass attempted murder.
+- Today, time of writing, I believe the suicide manipulation content is run by the Americans too.
 
 ## BAU at the conservatory
 
@@ -81,8 +103,25 @@ function googleTranslateElementInit() {
 - I get a wound on my left groin which doesn't behave like a normal boil. In fact, if I had been pierced there, it would be problematic because that was a boil area and so I used skin-thinning cream on it.
 - This wound reopens in July 2024.
 
-## A bridge collapses
+## Google Analytics suddenly showing activity
 
+- They set it up so that I'm seeing a lot of activity on my Google Analytics for the website whenever I make updates.
+- This goes on till April 2026 when it completely stops; it's shut down.
+- It confirms my suspicions that someone (the Americans) wants me to think people are reading my content, when they're not at all.
+
+## India - a bridge collapses
+
+- At the end of the month, beginning of December, I visit Gujurat from Bangkok for jyotirlinga pilgrimage.
+- On the way back from Ahmadabad to BKK, there is a "team" waiting for me airside.
+- Quick aside: every time I fly now there are agents assigned to sit with me. However, this is a particularly unusual team. 
+- Three "very" Jewish looking American men are shepherded by a couple of Indian officials.
+- I'm sitting in the front pretty much alone (the first few rows are clear apart from me, and one Indian official woman sitting directly in front of me).
+- These three get on and they're mucking around and being quite funny, I mean they're behaving like giggly children, and they're making me laugh too, the stewardess tells them to behave. 
+- Everyone stretches out to sleep (the rest of the plane is full), they went on about the pillows endlessly.
+- When everyone's settled down, one of them sitting behind me says: *you're safe now* or things of that nature.
+- I know this is all for me and I'm expected to think it's a rescue team.
+- They do not rescue me.
+- It is events like this (yes, there are more just like it) that make me certain, as in KNOWING certainty, of how far up India's arse the mousses are.
 - What's your favorite color?
 
 ![The bridge of death](../../content/images/who-approacheth-the-bridge-of-death.gif)

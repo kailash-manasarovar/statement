@@ -6,13 +6,9 @@
 
 ### November 2025
 
-1. Campaigning with Reform, I'm paired up with an agent. I have been walking all day every day for days... fast, like usual. She starts to slow me down but doesn't say why. She starts walking really slowly. It's a bit weird because we've tons to do and not a lot of time. I wonder if someone told her to make sure I didn't walk too fast because I'd been injured during surgery and had stitches. My hip (it's groin actually, I kept saying hip cos groin doesn't make sense) was hurting a lot that day.
 1. I wonder if there was a further surgery at Napasa Samui also, please was full of agents too. And one day at the beach I had a snake episode.
-1. Add hacked GA from November 2025 to April 2026.
-1. Mousses pretending they're helping me with the investigation: Holly Hunter look alike at the Anantara. Tweeted about this. Someone replies *Liar*. The mousses are pretending to be the criminal gangs now, keeping me distracted for violation purposes.
 1. Mousses pretending they're helping me with the investigation: American woman in BKK after I left the Oriental on her phone loudly saying, *we're gonna get every last one of them*.
-1. Visiting India. On the way back from Ahmadabad to BKK, there is a "team" - quick aside: every time I fly now there are agents assigned to sit with me. However, this is a particularly unusual team. Three "very" Jewish looking American men shepherded by a couple of Indian officials. I'm sitting in the front pretty much alone (the first few rows are clear apart from me, and one Indian official woman sitting directly in front of me). These three get on and they're mucking around and quite funny, I mean they're behaving like giggly children, and they're making me laugh too, the stewardess tells them to behave. Everyone stretches out to sleep (the rest of the plane is full). One of them sitting behind me says: *you're safe now* or things of that nature. I know this is all for me and I'm expected to think it's a rescue team. They do not rescue me.
-1. It is events like this (yes, there are more) that make me certain, as in KNOWING certainty, of how far up India's arse the mousses are.
+1. Mousses pretending they're helping me with the investigation: Holly Hunter look alike at the Anantara. Tweeted about this. Someone replies *Liar*. The mousses are pretending to be the criminal gangs now, keeping me distracted for violation purposes.
 
 ### December 2025
 
