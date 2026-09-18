@@ -15,6 +15,11 @@ function googleTranslateElementInit() {
 - These people are horror-show exterminators, playing God.
 - So what's really behind such total insanity.
 
+!!! danger  "Babies with birth defects or congenital illnesses"
+    - If any offspring suffers with unusual diseases you can be certain that this is likely due to poisoning with deadly substances while extraction took place.
+    - Substance include but are not limited to digitalis, pesticides (substances my body was soaking up on a daily basis from October 2024 into early 2026), brake-fluid, methanol, cyanide and other substances including drugs (painkillers, hallucinogens).
+    - I'm assured my team has a list of them coming from hair analysis, and the dates.
+
 ## Motive, trophy
 
 1. It's a motive as far from God as you could imagine; behavior utterly devoid of God. And that's why they will not prevail.

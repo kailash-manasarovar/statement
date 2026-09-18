@@ -157,6 +157,7 @@ nav:
         - "2019": timeline/2011-to-2020/2019.md
         - "2020": timeline/2011-to-2020/2020.md
   - Crimes:
+    - Egg theft: xrimes/egg-theft.md
     - Protagonists: 
       - Vidal Sastre Sanchez Hornero: crimes/protagonists/vidal-sastre.md
       - Teachers and staff at the conservatory: crimes/protagonists/domingo-et-al.md
@@ -182,7 +183,6 @@ nav:
     - WhatsApps: evidence/whatsapps.md
     - Maybe's: evidence/maybes.md
   - Personal experience: 
-    - Egg theft: personal/egg-theft.md
     - Pictures of me: personal/pictures-of-me.md
     - Health: personal/health.md
     - Expenses: personal/expenses.md
