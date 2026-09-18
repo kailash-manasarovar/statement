@@ -459,8 +459,8 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 ### Two women dressed to remind me of Lauren Ott's profile pic
 
-- Her private number mobile profile pic with her and her mate out clubbing, dressed up to the nines.
-- There they were, a couple of rooms down.
+- Her private number mobile profile pic with [her and her mate out clubbing](../2011-to-2020/2016.md#theyve-hacked-lauren-otts-phone-and-added-her-private-number-to-my-contact-list), dressed up to the nines.
+- There they were, a couple of rooms away, or bumping into me on the stairs.
 
 ### Desa's mate from Pinder in Scarborough
 
