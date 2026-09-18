@@ -10,14 +10,28 @@ function googleTranslateElementInit() {
 
 ## Israel TT
 
+### Jonathan tells me he has the shingles virus
+
+- It's the first day and everyone's arriving, saying hi, and setting up.
+- Jonathan, Mrs Wasserman's nephew, has just arrived.
+- Out of the blue, and totally out of context, Jonathan tells me he has the shingles virus.
+- I'm not sure what to say to him, so I tell him I heard it was really painful.
+- (I get cold sores, which is the same, but I didn't mention it).
+- I'm certain at the time - and after [the constant signals in May with the same theme](may.md#fertility-and-pregnancy) that he's saying this with regards to offering himself as a sperm donor at some later date when everything's calmed down and we can all speak plainly.
+- In September 2026, I realize he probably should have known that any egg of mine could very well have been adversely affected by deadly substance I was ingesting or absorbing on a regular basis.
+- In fact, they all knew this was going on for me - they'd even ordered it themselves at Lourdes.
+- How could they all be so stupid?
+
 ### You're mine
 
-- I heard this constantly while assisting on the TT course.
+- I hear this constantly while assisting on the TT course.
 - I like it.
-- I'm not sure where it's coming from.
+- I'm not sure where it's coming from, but I sense it's a good place.
 - I tell my hacker friends I'm hearing this when I get back to my room.
 - They don't believe me.
 - The most marvelous irony about this is that everyone thought they owned me; but only God owns me.
+- They use the Isaiah quote related to this constantly online to me from that moment.
+- In July 2026 in Bali, it's intense how much they use this reference as I start to realize they're not Israel they're America, and they think *they themselves* own me.
 
 ### Dinner with Steve
 
