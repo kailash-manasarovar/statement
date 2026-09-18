@@ -62,19 +62,18 @@ function googleTranslateElementInit() {
 - He tells me he's a spy cop.
 - Not a spy cop exactly, a spy robber would be a better term.
 - He tells me he married my mother on request by the British government after an army major gave him a lift to Belfast from Dublin when he first went to university.
-- He suggests it could have been any woman but he picked her for some reason.
-- I suspect because she's very easily manipulated.
 - I don't believe him. It's a lie.
-- If it were true, it'd be high treason.
-- I think he's made this up because he knows they're planning on murdering me in Lourdes, and the woman at the Red Lion had told him so.
+- If it were true, it'd be high treason the consequences of which are worse than any sex crime.
+- I think he's made this up because he knows they're planning on murdering me in Lourdes because the woman at the Red Lion had told him so, and he's not going to help me.
 - It's an excuse.
 - And not the truth.
-- The truth is he won't help me because he's an incest-porn star; filmed running out of my bedroom when he woke me up by injuring me anally rapping me.
-- He'd hide this and let his daughter (the one he hates enough to anally rape while she's sedated so it's not so hard to imagine) go to her death.
+- The truth is he won't help me because he's an incest-porn star; filmed running out of my bedroom when I woke up out of sedation when he injured me while violently anally raping me.
+- He'd let his daughter go to her death before confessing this.
 - So he's making something up that's on a parallel to explain it, but not quite as bad as admitting he's sexually abused me while I was sedated.
-- It's a sick, fake apology, in advance.
-- He could have saved me then and there. And he didn't.
-- This is how ashamed the sedating, rape-porn addicts really are, and it will only take the tiniest poke of their gargantuan stinking fatberg for it to show.
+- It's a sick, fake apology; in advance.
+- He could have saved me then and there, told me not to go, told me I was in extreme danger.
+- And he didn't.
+- This is how ashamed the sedating, raping porn-addicts truly are, and it only takes a tiny poke of their gargantuan stinking fatberg for it to show.
 - Bast&rd. Throw the book at him.
 
 ## Lourdes
