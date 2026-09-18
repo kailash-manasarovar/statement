@@ -222,23 +222,20 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 - The audience for criminal porn is massive.
 - 1-in-3 men are paying for and regularly watching some version of rape online.
-- There are no non-deviant or consensual porn-genres.
-- Nevertheless, although normalized, addicts are still riddled with shame.
-- The gangs' ability to find willing conspirators, anywhere I am in the world, is evidence for this.
-- This police statement details just a tiny sample of the wider problem and reveals the lightning connectivity of global porn-addict networks, and the instant fervour invoked in their members when an unwitting victim is around.
-- Examples of the normalized snickery porn-rot destroying our world include tutorial students of mine still at school, a neighbor at the bottom of the road, random men in the street halfway around the world, random snickering men from England given seats next to me on a bus in Valencia, a Tibetan monk living in France, an ophthalmologist at Moorfields, the whole town of Dénia, a traffic cop in Teruel, random men in Madrid, a whole bunch of Buddhist mediators in Avila, a male flight attendant on Qatar airways, a hotel technician in Bandol, my managers and colleagues at work, boyfriends and family members, the list just goes on and on.
+- Today, there are no non-deviant nor consensual porn-genres.
+- Nevertheless, although normalized and boldly snickering, addicts are still riddled with shame.
+- The gangs' ability to find willing conspirators anywhere I am in the world, is evidence for this; and the women (and some men) who hunt down blackmail targets are a growing problem no rape-addict foresaw.
+- This police statement details just a tiny sample of the wider problem and reveals the lightning connectivity of global porn-addict distribution networks, and the instant fervour invoked in their members when an unwitting victim is around.
+- Examples of male victims caught in the normalized snickery porn-rot destroying our world include tutorial students of mine still at school, a neighbor at the bottom of the road, random men in the street halfway around the world, random snickering men from England given seats next to me on a bus in Valencia, a Tibetan monk living in France, an ophthalmologist at Moorfields, the whole town of Dénia, a traffic cop in Teruel, random men in Madrid, a whole bunch of Buddhist mediators in Avila, a male flight attendant on Qatar airways, a hotel technician in Bandol, my managers and colleagues at work, boyfriends and family members, the list just goes on and on.
 - The only country I have traveled to over the last few years where the porn-gangs left me alone is Israel.
-- So it is no surprise that at every tech company I have worked for over the last decades - where I'm often the only woman amongst hundreds of men - the porn-gangs have quickly found a male colleague who knows (or will soon know) me from my rape-porn stardom.
-- In fact, it doesn't take an Einstein to figure out that these sorts of subscribers - with ready cash, usually crypto - might pay extraordinary amounts to see a female colleague they work with and despise in varying degrees of sexual humiliation.
-- Might they be persuaded to pay to actually sedate and rape her too?
+- So it is no surprise that at every tech company I have worked at over the last decades - where I'm often the only woman among hundreds of men - the porn-gangs have quickly found a male colleague who knows me (or soon will) from my rape-porn stardom.
+- And it doesn't take an Einstein to figure out that these sorts of subscribers - with ready cash, usually crypto - might pay extraordinary amounts to see a female colleague they despise in varying degrees of sexual humiliation.
+- Might they be persuaded to pay to participate in raping her too?
 - I wonder how much a ticket for an interactive show like that might cost.
-- My horror-porn tenure at [Polygon](timeline/2023/november.md#polygon) - while I was living as an unwitting sedated-sex-slave in my spy-cam apartment at Carrer Furs - and culminating in [a week's long attack at a conference in Bali](timeline/2024/may.md#bali), soon after which I was fired, is probably the most egregious example ever known of what male tech employees will justify if they have 24-7 online access to a female colleague. 
+- My [horror-porn tenure at Polygon](timeline/2023/november.md#polygon) - while I was living as an unwitting sedated-sex-slave in my spy-cam apartment at Carrer Furs - and culminating in [a week's long attack at a conference in Bali](timeline/2024/may.md#bali), soon after which I was fired, is probably the most egregious example ever known of what male tech employees can justify.
 - And everyone knows it's not just me!
 - My view is that every time Elon posts weird things on X that annoy women, or that relate to a target's life experiences, they're getting themselves geared up for another *event*.
-- The most interesting thing, however, is what the gangs told them all that made them so sure they'd never get caught!
-- Colleagues at the job I worked prior to Polygon, [zkSync](timeline/2023/march.md#work-stress), were also obviously watching everything that was happening to me at home, and taking part as much as possible.
-- In fact, so many of my roles over the last years have felt like going into battle every day from being under constant and vicious attack from my close male colleagues, my guess is that many of my work roles were set up by the porn-gangs themselves for paid humiliation-content purposes; such as my roles at Adaptive and FetchAI.
-- Could they have sedated-and-raped me in their offices in London and Cambridge too?
+- The most interesting thing, however, is what the porn-distributors managing the live-stream sales tell these men that makes them so sure they'll never get caught!
 
 ![Planning the murder of innocents](content/images/planning-the-murder-of-innocents.png)
 
