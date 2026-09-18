@@ -8,6 +8,49 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Israel TT
+
+### You're mine
+
+- I heard this constantly while assisting on the TT course.
+- I like it.
+- I'm not sure where it's coming from.
+- I tell my hacker friends I'm hearing this when I get back to my room.
+- They don't believe me.
+- The most marvelous irony about this is that everyone thought they owned me; but only God owns me.
+
+### Dinner with Steve
+
+- We have dinner just outside Zion Gate near the city walls; we go twice to this restaurant the lamb was so good.
+- Of course, every time we go there are American agents sitting close by.
+- I tell Steve about how [*they got me again*](july.md#poisoning-ordered-by-the-americans) referring to the Lopez Cano's recent poisoning attempt at Lourdes.
+- Steve does not react like a normal person.
+- He starts telling me that he treated some gypsy families, and the men would sit around all day drinking: *that's all they do, Katharine*, he said.
+
+### Elvis Presley
+
+- As usual, I suffer from severe constipation while anywhere near the mousses and/or in their clutches.
+- Steve mentions how Elvis Presley died of a heart attack from straining due to his chronic constipation one morning, out of the blue, out of context.
+- I had been straining, a lot, that morning.
+- It made me wonder.
+
+### 13th Day of Elul, Saturday 6th September
+
+- It is the last day of my trip to Israel.
+- Steve tried to get me to leave Jerusalem with him but I declined, I like it here, I told him.
+- Later that night, I see a quote about software being God's business too; from the Rebbe, said on the very same day but years before.
+
+!!! quote "The ultimate purpose of technology"
+    Parenthetically, the ultimate purpose of technology is that it be used for holy matters, as stated: *All that the Holy One blessed be He created in this world was solely for His glory,* and *The only glory is Torah.* Thus we see that modern technology is to be used for increasing in the dissemination of Torah.
+
+    Although it is possible to utilize it for worldly matters (and even things antithetical to sanctity), this is only because man is given free choice. Indeed, when others use technology for undesirable purposes, Jews must rectify this by using it for holy purposes; and then the sanctity produced is that much greater, coming as it does from previous *darkness*.
+
+    Ref: https://www.chabad.org/therebbe/article_cdo/aid/2537558/jewish/13th-Day-of-Elul-5742-1982.htm
+    
+- This talk feels like it is describing the [forgivenet](https://1frgvn.com/).
+- When there is no reasoning with arrogance and evil, what can you do?
+- Maybe just supply the means for healing and make them available, and leave the rest to God.
+
 ## The Red Lion in High Barnet with dad
 
 - Since I got back in February, dad insisted we went regularly to the Red Lion in High Barnet for the carvery.
@@ -50,19 +93,6 @@ function googleTranslateElementInit() {
 - I'd be in the audience, watching the show and listening to the speakers, and in between each person the lights would roll around the conference hall and I literally had to cover my eyes and close them till it was finished.
 - This is another thing that sparked my further concern.
 - I was reminded of the [first time I went to the optician about this weird and inexplicable problem](../2011-to-2020/2013.md#boots-opticians-north-finchley), probably sometime in 2013.
-
-## 13th Day of Elul, Saturday 6th September
-
-!!! quote "The ultimate purpose of technology"
-    Parenthetically, the ultimate purpose of technology is that it be used for holy matters, as stated: *All that the Holy One blessed be He created in this world was solely for His glory,* and *The only glory is Torah.* Thus we see that modern technology is to be used for increasing in the dissemination of Torah.
-
-    Although it is possible to utilize it for worldly matters (and even things antithetical to sanctity), this is only because man is given free choice. Indeed, when others use technology for undesirable purposes, Jews must rectify this by using it for holy purposes; and then the sanctity produced is that much greater, coming as it does from previous *darkness*.
-
-    Ref: https://www.chabad.org/therebbe/article_cdo/aid/2537558/jewish/13th-Day-of-Elul-5742-1982.htm
-    
-- This talk feels like it is describing the [forgivenet](https://1frgvn.com/).
-- When there is no reasoning with arrogance and evil, what can you do?
-- Maybe just supply the means for healing and make them available, and leave the rest to God.
 
 ## Current health
 
@@ -164,6 +194,11 @@ function googleTranslateElementInit() {
 ### Richard at Newgrange 
 
 - The day before the course starts, on Wednesday 24th September, I take Steve in my poisoned and toxic car to visit the [Newgrange monuments](https://www.newgrange.com/); a place I love which I like to visit as much as I can when I'm in Ireland.
+- On the way, I reiterate my concerns about the pedophile porn and baby-rape epidemic in Dénia and how it means there's at least one whole generation of pre-verbal rape-trauma survivors in a small region of Spain.
+- He says something like: *I'm even getting upset now about it*, and changes the subject.
+- He tells me: *the Jews look at a lot of porn Katharine*. I tell him I'm sorry to hear it.
+- (It'll all be recorded).
+- We arrive at the site. I notice the agents everywhere.
 - As we're walking up into the Knowth site on the tour, Steve tells me that the weirdest thing has just happened; one of the women on our tour looks *exactly* like someone who practices TT in the US. 
 - Seconds after he tells me this, after we pass through the small yet significant constructions around the main mound, I see someone I recognize. 
 
