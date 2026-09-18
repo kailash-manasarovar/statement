@@ -69,7 +69,7 @@ function googleTranslateElementInit() {
 - And not the truth.
 - The truth is he won't help me because he's an incest-porn star; filmed running out of my bedroom when I woke up out of sedation when he injured me while violently anally raping me.
 - He'd let his daughter go to her death before confessing this.
-- So he's making something up that's on a parallel to explain it, but not quite as bad as admitting he's sexually abused me while I was sedated.
+- So he's making something up that's on a parallel to explain it, but not quite as bad - in his mind - as admitting he's sexually abused me while I was sedated.
 - It's a sick, fake apology; in advance.
 - He could have saved me then and there, told me not to go, told me I was in extreme danger.
 - And he didn't.
