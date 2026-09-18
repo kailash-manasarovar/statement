@@ -98,6 +98,14 @@ function googleTranslateElementInit() {
 - They even set up a squirrel lookalike at the pool, which upset me and made me hopeful at the same time.
 - At the cafe they were serving a dessert called: *I love you strawberry much.*
 
+### Holly Hunter in yoga class
+
+- A Holly Hunter lookalike turns up to yoga.
+- This is significant because I have started saying; *every last one of them* on X regarding the criminal porn gang members of Spain and the UK.
+- I tweet about it later on.
+- There's a reply back; *liar*, to make me think the criminals gangs *are* listening and are replying.
+- They're not. It's the mousses keeping the lie and the distraction going.
+
 ## Staying next to the American Embassy in Bangkok
 
 - I stay for about 10 days in a lovely hotel right beside the embassy, booked online, of course, and in advance.
@@ -106,6 +114,16 @@ function googleTranslateElementInit() {
 - On the room service menu there seems to be only pages and pages of Caesar salad on offer. Very amusing.
 - I get a wound on my left groin which doesn't behave like a normal boil. In fact, if I had been pierced there, it would be problematic because that was a boil area and so I used skin-thinning cream on it.
 - This wound reopens in July 2024.
+
+### Every last one of them
+
+- I'm walking to Terminal 21 through the walkways over the roads.
+- A woman (American spy dress) brushes past me on her mobile saying, *yes, we're gonna get every last one of them*.
+- I'd like to say that because all this was hint, never formal, never open, I struggled to accept any of it.
+- But, because I had no-one to talk to, I was totally isolated - as per design - I couldn't actually do or say anything about it either apart from ranting on X which is unactionable, as they're well aware.
+- So I had to wait.
+- Until I knew.
+- And I expect they never believed I'd get here.
 
 ## Google Analytics suddenly showing activity
 

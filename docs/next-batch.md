@@ -4,14 +4,9 @@
 
 ## TODO: list
 
-### November 2025
-
-1. I wonder if there was a further surgery at Napasa Samui also, please was full of agents too. And one day at the beach I had a snake episode.
-1. Mousses pretending they're helping me with the investigation: American woman in BKK after I left the Oriental on her phone loudly saying, *we're gonna get every last one of them*.
-1. Mousses pretending they're helping me with the investigation: Holly Hunter look alike at the Anantara. Tweeted about this. Someone replies *Liar*. The mousses are pretending to be the criminal gangs now, keeping me distracted for violation purposes.
-
 ### December 2025
 
+1. I wonder if there was a further surgery at Napasa Samui also, please was full of agents too. And one day at the beach I had a snake episode.
 1. Oliver name of medic at Fitkoh.
 1. I meet the UN woman who managed the raid and extraction at Fitkoh. She shows me her card.
 1. Just before they add an event to my Google calendar, and I pack and no-one comes, for the last few days before that on whatever comes up on my front page is messages about a intense 30 day AI course I'm going to be beginning.. the implication is once I've been rescued I can start learning AI intensely. Again, like the Calendar entry, it feels bogus but whatever.
