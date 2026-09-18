@@ -212,6 +212,8 @@ function googleTranslateElementInit() {
 - At this stage, I'm still trying to figure out what these people's end goal actually is.
 - Do they want me to be a spy? Is that it?
 - I struggle to understand why they would treat me so badly if they wanted to own me. It doesn't make sense.
+- In August 2026, God tells me everything. 
+- They were stealing my eggs and making babies with them, and then they were going to murder me.
 
 ### Richard at Newgrange 
 
