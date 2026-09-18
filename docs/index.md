@@ -222,15 +222,15 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 - The audience for criminal porn is massive.
 - 1-in-3 men are paying for and regularly watching some version of rape online.
-- Today, there are no non-deviant nor consensual porn-genres.
+- Today, there are *no* non-deviant nor consensual porn-genres.
 - Nevertheless, although normalized and boldly snickering, addicts are still riddled with shame.
-- The gangs' ability to find willing conspirators anywhere I am in the world, is evidence for this; and the women (and some men) who hunt down blackmail targets are a growing problem no rape-addict foresaw.
+- The gangs' ability to find willing conspirators anywhere I am in the world is evidence for this; and the women (and some men) who hunt down blackmail targets are a growing problem no rape-addict foresaw.
 - This police statement details just a tiny sample of the wider problem and reveals the lightning connectivity of global porn-addict distribution networks, and the instant fervour invoked in their members when an unwitting victim is around.
 - Examples of male victims caught in the normalized snickery porn-rot destroying our world include tutorial students of mine still at school, a neighbor at the bottom of the road, random men in the street halfway around the world, random snickering men from England given seats next to me on a bus in Valencia, a Tibetan monk living in France, an ophthalmologist at Moorfields, the whole town of Dénia, a traffic cop in Teruel, random men in Madrid, a whole bunch of Buddhist mediators in Avila, a male flight attendant on Qatar airways, a hotel technician in Bandol, my managers and colleagues at work, boyfriends and family members, the list just goes on and on.
 - The only country I have traveled to over the last few years where the porn-gangs left me alone is Israel.
-- So it is no surprise that at every tech company I have worked at over the last decades - where I'm often the only woman among hundreds of men - the porn-gangs have quickly found a male colleague who knows me (or soon will) from my rape-porn stardom.
+- So it is no surprise that at every tech company I have worked at over the last decades - where I'm often the only woman among hundreds of men - the porn-gangs have quickly found a male colleague who knows me (or soon will) from my sedated rape-porn stardom.
 - And it doesn't take an Einstein to figure out that these sorts of subscribers - with ready cash, usually crypto - might pay extraordinary amounts to see a female colleague they despise in varying degrees of sexual humiliation.
-- Might they be persuaded to pay to participate in raping her too?
+- Might they be persuaded to pay to participate in mass-raping her too?
 - I wonder how much a ticket for an interactive show like that might cost.
 - My [horror-porn tenure at Polygon](timeline/2023/november.md#polygon) - while I was living as an unwitting sedated-sex-slave in my spy-cam apartment at Carrer Furs - and culminating in [a week's long attack at a conference in Bali](timeline/2024/may.md#bali), soon after which I was fired, is probably the most egregious example ever known of what male tech employees can justify.
 - And everyone knows it's not just me!
@@ -238,36 +238,6 @@ However, I am aware of growing international support for my endeavors; and a sol
 - The most interesting thing, however, is what the porn-distributors managing the live-stream sales tell these men that makes them so sure they'll never get caught!
 
 ![Planning the murder of innocents](content/images/planning-the-murder-of-innocents.png)
-
-## From honey-traps to world domination
-
-- The criminality in Dénia began as honey-trapping; target a wealthy woman, trick her into thinking she's in love, film the sex, and blackmail her with it.
-- Evidence for this comes from [the Irene photos](timeline/2023/july.md#plate-lady-early-in-the-month) dating back decades.
-- If the target is from a wealthy family, they might even set up a fake marriage situation, wait till she inherits and then murder her.
-- Honey-trapping for porn and prostitution was also going on of course but, significantly, the porn being produced in the Dénia region was often of the vilest sort; bestiality, pedophilia, and murder-porn.
-- Abid Khan told us [all about it](timeline/pre-2001/1984.md#abid-khan-tells-the-class-about-the-criminal-porn-his-big-brother-shows-him) in 1984.
-- As soon as the Internet connected everyone up, the gangs transferred their manipulation techniques into software and no-one could have imagined how successful it was going to be!
-- The gangs not only mass-target victims online for filming but they deliberately worsen user's porn-addictions, "honey-trapping" them into paying to view more violence, then pedophilia, then worse.
-- The more criminal the porn, the more expensive it is to view.
-- Today, millions of children and toddlers are manipulated online into self-producing porn for the gangs directly.
-- This is how effective their manipulation tech is.
-- At some point, some bright spark amongst them must have realized that porn was just one of a million lucrative themes the manipulation tech could be used for.
-- Did they start experimenting at that time?
-- Did the criminals of Dénia eventually [sell their manipulation-tech to the caliphate](timeline/2001-to-2010/2008.md#dubai) once they had demonstrated its power by tricking [Alessandra into undergoing an unnecessary bone-marrow transplant](timeline/2001-to-2010/2009.md#alessandra-gets-sick-or-does-she), and [Lorraine's daughter into believing she's a boy](timeline/2011-to-2020/2013.md#lorraines-trans-child), and no doubt many other successful mind-control tricks we'll soon hear about.
-- From here, I believe the gangs went back-to-basics using targets like myself for blackmailing porn-obsessed tech CEOs into giving them use of their massive processing hubs in order to run the caliphate-AI social-media hypno-tech.
-- Just over ten years of this lie-spreading-software out in the wild and the world has gone totally mad.
-- We are suffering from a tidal wave of sexual perversion and hatred towards women and children and Jewish people.
-- We have children's minds scrambled by their zombified teachers; society quite happy to render them incapable of ever having an orgasm or their own children on an ideological basis alone.
-- In Spain, your child might be starring in porn, with-or-without your knowledge, while attending school.
-- Even more worrying is the mass delusional support, by apparently educated people, of barbaric Islamic groups coupled with a terrifying rise in antisemitism.
-- And every day a man is in court in the UK having downloaded thousands of baby-rape videos; the judge giving him a slap on the wrist.
-- I believe the criminality allowed to flourish and distend in Dénia - baby-rape capital of the world - is behind it all.
-- In a town accountable to no-one, where zero morals reign and obvious detrimental long-term consequences are ignored, I believe the criminal gangs and the local people have completely lost their minds.
-- Their [hypno-tech doomsday machine](crimes/hypno-tech.md) needs to be stopped, and quick.
-- I suspect some of the wiser amongst them (and hopefully at least some of the women) agree with me too.
-- In their obsessive relentless crucifying, they only ended up crucifying themselves.
-
-![Undoers of the hypno-tech](content/images/hypno-tech.png)
 
 ## A well-oiled sedated-rape-porn machine 
 
