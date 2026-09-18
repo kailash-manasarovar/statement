@@ -74,6 +74,7 @@ function googleTranslateElementInit() {
 - Actually, it's not even that. It's something else. He's saying something to someone, not me, and not the right thing.
 - I think he knows we're bugged; something happened at Costa Coffee which told him they're watching him.
 - He can't think the British have anything to do with it, or he would have made something else up.
+- Does he think it's Adams?
 - He's finding a way to save himself from the porn-truth, in advance if he needs it.
 - It's unfathomable to me.
 - You'll have to ask him.
