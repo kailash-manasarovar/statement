@@ -455,6 +455,23 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - I had no idea about squirrel's diamond nut at the time.
 - (My apologies for this section if it was a bit gross.)
 
+## Agents all over me
+
+### Two women dressed to remind me of Lauren Ott's profile pic
+
+- Her private number mobile profile pic with her and her mate out clubbing, dressed up to the nines.
+- There they were, a couple of rooms down.
+
+### Desa's mate from Pinder in Scarborough
+
+- A large, fattish, dark-haired man around her age, maybe a little younger, that apparently worked with her at Pinder.
+- He was at their wedding, as I remember.
+- Desa had been a proof reader at a printing firm called Pinder in Scarborough, she had told everyone.
+- Is there a print firm called Pinder in Scarborough that might hire proof readers?
+- He has long dark curly hair, sort of geeky looking, a big man.
+- He's in one of the next rooms.
+- I will see him again and again over the next 18 months.
+
 ## My Belgian friend says he will help me
 
 - I'm posting snippets from this police statement every day online, particularly on my Facebook account.
