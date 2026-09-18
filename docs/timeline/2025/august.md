@@ -158,6 +158,15 @@ function googleTranslateElementInit() {
 - They like it that I said that.
 - I never had braves like this before in my life.
 
+## You came back
+
+- I turn up at 31 about 10pm after driving back from Portsmouth.
+- Dad's in his usual spot as I enter the house.
+- He looks at me, and smiles.
+- *You came back*, he says.
+- I didn't notice the surprise, but it was there.
+- He repeats this a lot over the next few days.
+
 ## Israel module 3 with Steve
 
 - Mrs Wasserman is unable to attend so I am managing the sessions on my own, and calling out the timings.

@@ -71,9 +71,15 @@ function googleTranslateElementInit() {
 - He'd let his daughter go to her death before confessing this.
 - So he's making something up that's on a parallel to explain it, but not quite as bad - in his mind - as admitting he's sexually abused me while I was sedated.
 - It's a sick, fake apology; in advance.
-- He could have saved me then and there, told me not to go, told me I was in extreme danger.
+- Actually, it's not even that. It's something else. He's saying something to someone, not me, and not the right thing.
+- I think he knows we're bugged; something happened at Costa Coffee which told him they're watching him.
+- He can't think the British have anything to do with it, or he would have made something else up.
+- He's finding a way to save himself from the porn-truth, in advance if he needs it.
+- It's unfathomable to me.
+- You'll have to ask him.
+- Nonetheless, whatever he was doing, he could have saved me then and there, told me not to go, told me I was in extreme danger.
 - And he didn't.
-- This is how ashamed the sedating, raping porn-addicts truly are, and it only takes a tiny poke of their gargantuan stinking fatberg for it to show.
+- This is how ashamed the sedating, raping porn-addicts truly are; and it only takes a tiny poke of their gargantuan stinking fatberg for it to show.
 - Bast&rd. Throw the book at him.
 
 ## Lourdes
