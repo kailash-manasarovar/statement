@@ -241,8 +241,8 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 #### A starting point for corporate investigators
 
-- It turns out, that everyone was having so much fun at my expense over the last thirty-eight years - and making so much money - of course the tech-bro porn-addicts at the companies I worked for were enjoying my prolonged horror-porn-crucifixion.
-- The porn-gangs even used regular, common, law-abiding, apparently normal, tax-paying tech-recruitment-agents to lure me into amazing jobs with great salaries in which I was immediately treated like dirt.
+- It turns out, that everyone was having so much fun at my expense over the last thirty-eight years - and making so much money - of course the tech-bro porn-addicts at the companies I worked for were enjoying my prolonged horror-porn crucifixion.
+- The porn-gangs even used regular, common, law-abiding, apparently normal, tax-paying recruitment-agents to lure me into amazing jobs with great salaries in which I was immediately treated like dirt.
 - Those grotesquely upsetting moments were lived-streamed for jeering, and masturbating over when the boys popped over later on after I had gone to bed and was rendered unconscious on sedating gas.
 - For these horrible reasons, I'm uploading my CV so that if anyone cares to investigate the global tech-bro horror-porn obsessions endangering the lives of law-abiding, tax-paying, decent women and men (of which I am no doubt the tip of the iceberg), here's where you might like to start.
 
