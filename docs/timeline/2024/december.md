@@ -465,12 +465,14 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 ### Desa's mate from Pinder in Scarborough
 
 - A large, fattish, dark-haired man around her age, maybe a little younger, that apparently worked with her at Pinder.
-- He was at their wedding, as I remember.
-- Desa had been a proof reader at a printing firm called Pinder in Scarborough, she had told everyone.
-- Is there a print firm called Pinder in Scarborough that might hire proof readers?
+- He was at their wedding, as I remember, and he came out one night briefly when I went to Scarborough with them all in August 2019 for the weekend.
+- Desa had been a proof reader at a printing firm called Pinder in Scarborough, she had told everyone, and that's where they had met - her very good friend, she was tearful about him.
+- Is there a even print firm called Pinder in Scarborough that might hire proof readers?
 - He has long dark curly hair, sort of geeky looking, a big man.
 - He's in one of the next rooms.
 - I will see him again and again over the next 18 months.
+- I always thought he was familiar.
+- I wonder if he believed I'd never remember him due to brain-damage?
 
 ## My Belgian friend says he will help me
 
