@@ -72,6 +72,10 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ### My helpers are kidnapped by the UN and taken to Israel
 
+!!! danger "Update 18th September 2026"
+    - It looks like they didn't manage to kidnap Antonio Ruiz amongst the others - something they lied to me about incessantly - and he managed to hide from them.
+    - So, I guess, the motive for kidnap must have been "ransom".
+
 - My helpers were also having direct conversations online with the CIA about things the Americans definitely don't anyone to know about, and you can see these back-and-forths very clearly from the screenshots I took while I was being terrorized online in my home.
 - I was so high and out of my mind on drugs and poisons, I understood nothing of this until the last few weeks (time of writing September 2026)!
 - In July 2025, the CIA, with help from the UN, kidnapped this man and his gang and took them all to Israel in a UN helicopter.
@@ -217,27 +221,24 @@ However, I am aware of growing international support for my endeavors; and a sol
 ### The global tech-bro porn-addict community
 
 - The audience for criminal porn is massive.
-- My guess is 1-in-3 men pay for and regularly watch some version of rape online.
+- 1-in-3 men are paying for and regularly watching some version of rape online.
+- There are no non-deviant or consensual porn-genres.
+- Nevertheless, although normalized, addicts are still riddled with shame.
 - The gangs' ability to find willing conspirators, anywhere I am in the world, is evidence for this.
-- This police statement details a small sample revealing the connectivity of global porn-addict networks, and the instant fervour invoked in their members when an unwitting victim is around.
-- Examples include tutorial students of mine still at school, a neighbor at the bottom of the road, random men in the street halfway around the world, random snickering men from England given seats next to me on a bus in Valencia, a Tibetan monk living in France, an ophthalmologist at Moorfields, the whole town of Dénia, a traffic cop in Teruel, random men in Madrid, a whole bunch of Buddhist mediators in Avila, a male flight attendant on Qatar airways, a hotel technician in Bandol, it just goes on and on.
-- The only country I traveled to over the last few years where the gangs had zero reach is Israel.
-- So it is no surprise that at every tech company I have worked for over the last decades - where I'm often the only woman in amongst hundreds of men - the porn-gangs have quickly found a male colleague who knows (or will soon know) me from my rape-porn-stardom.
-- In fact, it doesn't take an Einstein to figure out that these sorts of subscribers - with ready cash, usually crypto - might pay extraordinary amounts to see a female colleague (usually despised, sometimes murdered for existing) in varying degrees of sexual humiliation.
-- Might they pay to sedate and rape her too?
-- Might they even get their female human-resource-and-conference teams to hire people for the express purpose of terrorizing her, and to organize travel and venues so that the whole company and its special guests might have a go at her too?
-- I wonder how much a ticket for an interactive show like that might cost?
-- My horror-porn tenure at [Polygon](timeline/2023/november.md#polygon) - while I was living as an unwitting sedated-sex-slave in my spy-cam apartment at Carrer Furs - and culminating in [nightly attacks at a conference in Bali](timeline/2024/may.md#bali), soon after which I was fired, is probably the most egregious example ever known of what male tech employees will justify if they have 24-7 online access to a female colleague. And everyone knows it's not just me!
+- This police statement details just a tiny sample of the wider problem and reveals the lightning connectivity of global porn-addict networks, and the instant fervour invoked in their members when an unwitting victim is around.
+- Examples of the normalized snickery porn-rot destroying our world include tutorial students of mine still at school, a neighbor at the bottom of the road, random men in the street halfway around the world, random snickering men from England given seats next to me on a bus in Valencia, a Tibetan monk living in France, an ophthalmologist at Moorfields, the whole town of Dénia, a traffic cop in Teruel, random men in Madrid, a whole bunch of Buddhist mediators in Avila, a male flight attendant on Qatar airways, a hotel technician in Bandol, my managers and colleagues at work, boyfriends and family members, the list just goes on and on.
+- The only country I have traveled to over the last few years where the porn-gangs left me alone is Israel.
+- So it is no surprise that at every tech company I have worked for over the last decades - where I'm often the only woman amongst hundreds of men - the porn-gangs have quickly found a male colleague who knows (or will soon know) me from my rape-porn stardom.
+- In fact, it doesn't take an Einstein to figure out that these sorts of subscribers - with ready cash, usually crypto - might pay extraordinary amounts to see a female colleague they work with and despise in varying degrees of sexual humiliation.
+- Might they be persuaded to pay to actually sedate and rape her too?
+- I wonder how much a ticket for an interactive show like that might cost.
+- My horror-porn tenure at [Polygon](timeline/2023/november.md#polygon) - while I was living as an unwitting sedated-sex-slave in my spy-cam apartment at Carrer Furs - and culminating in [a week's long attack at a conference in Bali](timeline/2024/may.md#bali), soon after which I was fired, is probably the most egregious example ever known of what male tech employees will justify if they have 24-7 online access to a female colleague. 
+- And everyone knows it's not just me!
+- My view is that every time Elon posts weird things on X that annoy women, or that relate to a target's life experiences, they're getting themselves geared up for another *event*.
+- The most interesting thing, however, is what the gangs told them all that made them so sure they'd never get caught!
 - Colleagues at the job I worked prior to Polygon, [zkSync](timeline/2023/march.md#work-stress), were also obviously watching everything that was happening to me at home, and taking part as much as possible.
-- In fact, so many of my roles over the last years have felt like going into battle every day from being under constant and vicious attack from my close male colleagues, my guess is that many of my work roles were set up by the porn-gangs themselves for paid humiliation-content purposes.
-- And, of course, as all criminal porn-addicts eventually find out, their due is never just an ejaculation, a hand covering a guffaw, or a subscription fee alone.
-- No.
-- The porn-gangs, while pretending it was all belly laughs and slapped backs, were hiding their true aim: taking control of massive backend data systems built to run products that will never exist - the true state of the crypto industry.
-- So what is running in those gargantuan processing hubs?
-- My guess is that the triumphant, boner-obsessed idiots were forced to run the caliphate AI systems whose sole goal is total destruction of the West, and the poor boys threatened with scandal and jail agreed.
-- Not one of them thought saving the world was more important than saving his mother's erroneous good opinion of him.
-- Who knew there wasn't a single conscience amongst the p*rn-addict community of billions of men?
-- I'm certain the caliphate knew it, and knew it very well, and have laughingly paid billions to get their own enemies to run their tech-weaponry.
+- In fact, so many of my roles over the last years have felt like going into battle every day from being under constant and vicious attack from my close male colleagues, my guess is that many of my work roles were set up by the porn-gangs themselves for paid humiliation-content purposes; such as my roles at Adaptive and FetchAI.
+- Could they have sedated-and-raped me in their offices in London and Cambridge too?
 
 ![Planning the murder of innocents](content/images/planning-the-murder-of-innocents.png)
 
