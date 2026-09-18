@@ -195,6 +195,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 - It is likely that [Ray Archer's house in Queen's Avenue Muswell Hill](timeline/pre-2001/1996.md#ray-archer) was a brothel/rape-house that even my father and his mates visited.
 - And of course, not forgetting crypto-giant [Polygon's conference in Bali in May 2024](timeline/2024/may.md#bali) where I was sedated-and-raped for a whole week, multiple famous men in attendance.
 - Throughout my life, I have continually met other women who I now believe have suffered similarly.
+- It is my view, this morning, that my extreme and exaggerated experience of sedated-rape throughout my life is meant to survive a mighty purpose: resetting the human mind, making us sane again. 
 
 ### Police and government corruption
 
@@ -212,8 +213,6 @@ However, I am aware of growing international support for my endeavors; and a sol
 - Well, I can tell you they say, wow, hey everyone, look at this... we can do whatever we like now, we just have to tell them Dénia organized it.
 
 [Chris Ludwick's admission of guilt](content/images/murderers-protecting-the-sedated-rape-epidemic.png)
-
-- It is my view, this morning, that my extreme and exaggerated experience of sedated-rape throughout my life is meant to survive a mighty purpose: resetting of the human mind, making us sane again.
 
 ### The global tech-bro porn-addict community
 
