@@ -19,6 +19,7 @@ function googleTranslateElementInit() {
     - If any offspring suffers with unusual diseases you can be certain that this is likely due to poisoning with deadly substances while extraction took place.
     - Substance include but are not limited to digitalis, pesticides (substances my body was soaking up on a daily basis from October 2024 into early 2026), brake-fluid, methanol, cyanide and other substances including drugs (painkillers, hallucinogens).
     - I'm assured my team has a list of them coming from hair analysis, and the dates.
+    - And I believe I can personally help those babies.
 
 ## Motive, trophy
 
