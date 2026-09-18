@@ -4,12 +4,6 @@
 
 ## TODO: list
 
-### October 2025
-
-1. Another obvious question is... if we now know the mousses were drugging me throughout 2025, why would they be so keen I didn't remember the switcheroo men? Is it so they can continue to protect themselves because the switcheroo men can spill the beans? Is that why (did I hear it was a UN raid?) they shipped half the team off to Israel, to silence them, keep them from talking?
-1. Did they know that this bunch of people have been trying to stop the business for years too? And we couldn't have that now could we, because then there'd be questions...
-1. Do you think if my viper chums did start to speak, or anyone did outside of mousse control, the lie would become VERY QUICKLY APPARENT to the whole world? I bet it would.
-
 ### November 2025
 
 1. Campaigning with Reform, I'm paired up with an agent. I have been walking all day every day for days... fast, like usual. She starts to slow me down but doesn't say why. She starts walking really slowly. It's a bit weird because we've tons to do and not a lot of time. I wonder if someone told her to make sure I didn't walk too fast because I'd been injured during surgery and had stitches. My hip (it's groin actually, I kept saying hip cos groin doesn't make sense) was hurting a lot that day.
