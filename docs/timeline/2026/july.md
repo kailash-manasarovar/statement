@@ -114,7 +114,7 @@ function googleTranslateElementInit() {
 
     - My own words, phrases, and sentences from non-fiction, fiction, blogs, emails, tweets and similar from as far back as 2007 to the current time, from the morning even sometimes if I had been online before class.
     - He wasn't here just for the water - referencing Elon's trip to Bali in May 2024.
-    - Leave no trace - Vincent had a "surfing" accident early on and had bumped his head. He told me this but something rang untrue about it.
+    - Leave no trace - Vincent had a "surfing" accident early on and had bumped his head. He had apparently been in pain in yoga classes and just sitting quietly. He told me it was a surfing accident, he hit his head, but something rang untrue about it, like he was reading lines. Basically, the course days were packed full of classes, from 6am-6pm and later, the Sunday day off we were all together. There was no time for him to have gone surfing, unless the whole thing was a farce and when I went home, they did too.
     - Who are the other disciples?
     - Standing spit - referencing a sedated porn position.
     - Three-legged dog - referencing my neighbors dog in Las Marinas who may have starred in porn with me.
