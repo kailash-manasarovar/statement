@@ -82,13 +82,14 @@ function googleTranslateElementInit() {
 - Agents, everywhere.
 - One sitting at the end of my row, leaving a space in the middle.
 - He's dressed like a CIA man.
-- One I meet outside the toilet when my stomach starts relaxing over India - a Brit, partner of another Brit (I'll remember his name at some point) I meet at FitKoh who tells me she works as air crew - after resigning from the Metropolitan police - and they both make a bit of extra money doing secret service shifts.
+- One I meet outside the toilet when my stomach starts relaxing over India - a Brit, Mark, partner of another Brit I meet at FitKoh who tells me she works as air crew - after resigning from the Metropolitan police - and they both make a bit of extra money doing secret service shifts.
 - Israeli agents - always bald and mean looking - I guess that's the American definition.
 - And then a criminal gang member even, just to spice things up.
 - Incredible.
-- It feels like protection, but I wonder if it was, rather, declaration of ownership.
-- Protection, for me, makes a nice change.
-- I was wrong about protection.
+- It felt like protection at the time cos I was still believing the lie about the Lopez Cano's - like the whole darned world it seems - but I wonder if it was, rather, declaration of ownership.
+- I guess that's what they wanted me to think.
+- Protection, for me, always makes a nice change.
+- I was wrong about protection though. Very wrong.
 
 ## Anantara
 
