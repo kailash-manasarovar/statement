@@ -29,7 +29,7 @@ function googleTranslateElementInit() {
 - It's nearly a year later (time of writing September 2026) and hair is still uneven on the sides of my head.
 - I had written about this already as an aside to [a similarly disastrous (but quite stylish) haircut in Bangkok the year before](../2024/november.md#another-inexplicably-bad-haircut-in-n10-in-2025).
 
-## Suicide content on my `@JackChardwood` account
+## Suicide content on my `@JackChardwood` account post finding out about my dad
 
 - You may remember in [January 2024](../2024/january.md#the-jackchardwood-x-feed-changes-completely), my `@JackChardwood` X feed went from one content type to another, literally over night.
 - This also happened with my `@1frgvn` account repeatedly, but not so starkly; the account has much more activity anyway.
@@ -81,11 +81,14 @@ function googleTranslateElementInit() {
 
 - Agents, everywhere.
 - One sitting at the end of my row, leaving a space in the middle.
-- One I meet outside the toilet when my stomach starts relaxing over India.
-- Others I cannot mistake.
+- He's dressed like a CIA man.
+- One I meet outside the toilet when my stomach starts relaxing over India - a Brit, partner of another Brit (I'll remember his name at some point) I meet at FitKoh who tells me she works as air crew - after resigning from the Metropolitan police - and they both make a bit of extra money doing secret service shifts.
+- Israeli agents - always bald and mean looking - I guess that's the American definition.
+- And then a criminal gang member even, just to spice things up.
 - Incredible.
 - It feels like protection, but I wonder if it was, rather, declaration of ownership.
 - Protection, for me, makes a nice change.
+- I was wrong about protection.
 
 ## Anantara
 
@@ -115,13 +118,13 @@ function googleTranslateElementInit() {
 - On the way back from Ahmadabad to BKK, there is a "team" waiting for me airside.
 - Quick aside: every time I fly now there are agents assigned to sit with me. However, this is a particularly unusual team. 
 - Three "very" Jewish looking American men are shepherded by a couple of Indian officials.
-- I'm sitting in the front pretty much alone (the first few rows are clear apart from me, and one Indian official woman sitting directly in front of me).
-- These three get on and they're mucking around and being quite funny, I mean they're behaving like giggly children, and they're making me laugh too, the stewardess tells them to behave. 
-- Everyone stretches out to sleep (the rest of the plane is full), they went on about the pillows endlessly.
+- I'm sitting in the front pretty much alone (the first few rows are clear apart from me, the plane is full from about row 4 back, and there is one Indian official woman sitting directly in front of me).
+- These three get on and they're mucking around and being quite funny, I mean they're behaving like giggly children, and they're making me laugh too, the stewardess tells them to behave, to stop *mucking around*. 
+- Everyone stretches out to sleep (the rest of the plane is full), and they go on about the pillows endlessly.
 - When everyone's settled down, one of them sitting behind me says: *you're safe now* or things of that nature.
 - I know this is all for me and I'm expected to think it's a rescue team.
 - They do not rescue me.
-- It is events like this (yes, there are more just like it) that make me certain, as in KNOWING certainty, of how far up India's arse the mousses are.
+- It is events like this (yes, there are more just like it) that make me certain, as in KNOWING certainty, of how far up India's arse the mousses are and how this *cannot* include the Brits either.
 - What's your favorite color?
 
 ![The bridge of death](../../content/images/who-approacheth-the-bridge-of-death.gif)
