@@ -58,17 +58,24 @@ function googleTranslateElementInit() {
 
 - The Sunday before I leave on my own for Lourdes, dad and I go for a dinner at the Claddagh Ring.
 - He's very candid with me this evening.
-- He tells me he thinks his brother abused my aunt Bernadette and I've had enough of hearing about this sort of lets-blame-Jo-for-everything and get angry with him.
+- He tells me he thinks his brother abused my aunt Bernadette and I've had enough of hearing about this sort of lets-blame-Jo-for-everything-I-did and get angry with him.
 - He tells me he's a spy cop.
 - Not a spy cop exactly, a spy robber would be a better term.
 - He tells me he married my mother on request by the British government after an army major gave him a lift to Belfast from Dublin when he first went to university.
 - He suggests it could have been any woman but he picked her for some reason.
 - I suspect because she's very easily manipulated.
-- I don't know why he's telling me this at this time. It's high treason. Unless he's told someone else already and he's worried about it coming out.
-- Or perhaps he's telling me this because he knows they're planning on murdering me in Lourdes, and the woman at the Red Lion had told him so.
-- Is he getting it off his chest before I'm dispatched with?
-- And he's not really getting anything off his chest. He's telling me why I'm about to be murdered, without really telling me why but telling me some lame arsed excuse - which is probably a lie - about why he can't do anything about it.
-- It's a sick apology in advance.
+- I don't believe him. It's a lie.
+- If it were true, it'd be high treason.
+- I think he's made this up because he knows they're planning on murdering me in Lourdes, and the woman at the Red Lion had told him so.
+- It's an excuse.
+- And not the truth.
+- The truth is he won't help me because he's an incest-porn star; filmed running out of my bedroom when he woke me up by injuring me anally rapping me.
+- He'd hide this and let his daughter (the one he hates enough to anally rape while she's sedated so it's not so hard to imagine) go to her death.
+- So he's making something up that's on a parallel to explain it, but not quite as bad as admitting he's sexually abused me while I was sedated.
+- It's a sick, fake apology, in advance.
+- He could have saved me then and there. And he didn't.
+- This is how ashamed the sedating, rape-porn addicts really are, and it will only take the tiniest poke of their gargantuan stinking fatberg for it to show.
+- Bast&rd. Throw the book at him.
 
 ## Lourdes
 
