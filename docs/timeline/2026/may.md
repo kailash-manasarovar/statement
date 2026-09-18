@@ -8,6 +8,14 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Desa's colleague in Cauterets
+
+- I'm staying a week or so in Cauterets and I have a little house a short walk down the valley from the town.
+- The whole town is empty this time of year, it's fabulous.
+- Although, I have a neighbor, two houses down.
+- It's Desa's colleague again, the big man we all met in Scarborough; the one who had been [staying next door at the Spa Resorts](../2024/december.md#desas-mate-from-pinder-in-scarborough) in December 2024 when it all kicked off.
+- I have seen him in other venues too, possibly Bangkok a few times in 2024 and 2025.
+
 ## Worm-turned
 
 - A file from the bottom of my database mysteriously "pops up" on my laptop screen.
