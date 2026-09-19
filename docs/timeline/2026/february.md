@@ -25,12 +25,16 @@ function googleTranslateElementInit() {
 - I think there's a couple of likelies on the boat too.
 - I'm sitting behind them at lunch.
 - I'm sad and depressed.
-- It's really difficult being a non-human with no rights but everyone seems to want *something* from you but will never offer a helping hand in return.
+- It's really difficult being a non-human with no rights but everyone seems to want *something* from you but won't tell you what it is and never offer a helping hand in return.
 - It's getting overwhelming.
-- The woman who is with her father, shouts, and at the same time from the corner of my eye I notice a breached dolphin going back in the water.
-- It was right beside me.
+- I'm going into a poor-me.
+- The woman who is with her father, shouts, and at the same time from the corner of my eye I notice a breached dolphin diving back into the water.
+- It happened right beside me.
 - Unprecedented.
 - A sign from God.
+- I go for a nap and get up and start writing again.
+- My words are all I have left (who could imagine they'd even take my eggs!) so I'd better make them good.
+- The man from earlier is sitting a little away from me, staring at me. He seems amazed.
 
 ## What, wait, another (fake) collapsible bridge again?
 
