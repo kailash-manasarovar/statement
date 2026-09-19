@@ -75,9 +75,10 @@ function googleTranslateElementInit() {
 - I think he knows we're bugged; something happened at Costa Coffee which told him they're watching him.
 - He can't think the British have anything to do with it, or he would have made something else up.
 - Does he think it's Adams?
-- He's finding a way to save himself from the porn-truth, in advance if he needs it.
-- It's unfathomable to me.
-- You'll have to ask him.
+- Oh wait, he went to the Irish/Americans for help didn't he.
+- Just like Auggie did, he went to the wrong side.
+- This explains the even more ridiculous story he told me after this one about how he thought he might be Jewish because his mum was maybe having an affair with the priest who came round in the afternoons and how the priest was Jewish.
+- This was comedy gold, actually, and I'm sure everyone heard it.
 - Nonetheless, whatever he was doing, he could have saved me then and there, told me not to go, told me I was in extreme danger.
 - And he didn't.
 - This is how ashamed the sedating, raping porn-addicts truly are; and it only takes a tiny poke of their gargantuan stinking fatberg for it to show.
