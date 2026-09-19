@@ -256,10 +256,10 @@ However, I am aware of growing international support for my endeavors; and a sol
 - At [Loka Yoga in Bali](timeline/2026/july.md#loka-yoga), Taryn and Yan asked me to tell them about my experiences over the last years, which I did in the garden, cameras rolling (I could feel the cameras on me and they had positioned me very specifically - they kept doing that there).
 - When I'm done, Taryn tells me she had a friend who was tricked by her husband - something about pretending he wasn't interested in her anymore during lock down, and then setting up another friend of his to make advances which she accepted.
 - When she visited her husband's friend, four of them were waiting for her inside the house - the husband too - and they tied her up and tortured her sexually for hours, and she ended up having to have surgery on her vagina.
-- A day or two later, after intense psychological battering from the Americans in Bali, I realize Taryn is talking about Lorraine and what happened to her.
-- A day or two after that, they AI a Snoopy video to demonstrate the position Lorraine had been tied up in from the films uploaded to the porn networks.
-- Lorraine's unnecessary death is what happens when people who have been given the power to do whatever they like to each other have become hopelessly addicted to porn.
-- [I dedicate this police statement to Lorraine](dedication.md).
+- A day or two later, after an intense psychological battering by the Americans in Bali, I realize Taryn is talking about Lorraine and what happened to her.
+- A day or two after that, they AI a Snoopy video to demonstrate the position Lorraine had been tied up in from the films of her they had seen that were uploaded to the porn networks.
+- Lorraine's unnecessary death is an example of what happens when people who have been given the power to do whatever they like to each other are hopelessly addicted to porn.
+- [I dedicate this police statement to Lorraine](dedication.md) and blame America for everything in it.
 
 ![Remembering Lorraine](content/images/remembering-lorraine.jpg)
 
