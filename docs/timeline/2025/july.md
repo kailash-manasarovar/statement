@@ -59,13 +59,13 @@ function googleTranslateElementInit() {
 - The Sunday before I leave on my own for Lourdes, dad and I go for a dinner at the Claddagh Ring.
 - We've never been here before for dinner; he insisted.
 - He's very candid with me this evening.
-- He tells me he thinks his brother abused my aunt Bernadette and I've had enough of hearing about this sort of lets-blame-Jo-for-everything-I-did and get angry with him.
+- He tells me he thinks his brother abused my aunt Bernadette and I've had enough of hearing about this sort of *lets-blame-Jo-for-everything-I-did* and get angry with him.
 - He tells me he's a spy cop.
 - Not a spy cop exactly, a spy robber would be a better term.
 - He tells me he married my mother on request by the British government after an army major gave him a lift to Belfast from Dublin when he first went to university.
 - I don't believe him. It's a lie.
 - If it were true, it'd be high treason the consequences of which are worse than any sex crime.
-- I think he's made this up because he knows they're planning on murdering me in Lourdes because the woman at the Red Lion had told him so, and he's not going to help me.
+- I think he made this up because he knows they're planning on murdering me in Lourdes because the woman at the Red Lion had told him so, and he's not going to help me.
 - It's an excuse.
 - And not the truth.
 - The truth is he won't help me because he's an incest-porn star; filmed running out of my bedroom when I woke up out of sedation when he injured me while violently anally raping me.
@@ -80,7 +80,7 @@ function googleTranslateElementInit() {
 - Just like Auggie did, he went to the wrong side.
 - This explains the even more ridiculous story he told me after this one about how he thought he might be Jewish because his mum was maybe having an affair with the priest who came round in the afternoons and how the priest was Jewish.
 - This was comedy gold, actually, and I'm sure everyone heard it.
-- No, wait, that was after I got back from Lourdes and he was so surprised.
+- No, wait, that was after I got back from Lourdes and he was so surprised I had.
 - He must have thought Israel saved me because of the "lifts" thing which he also kept going on about.. another time.
 - He definitely thought it was Adams.
 - Whatever he was doing, he could have saved me then and there, told me not to go, told me I was in extreme danger.
