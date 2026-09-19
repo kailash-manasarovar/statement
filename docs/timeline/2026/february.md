@@ -104,12 +104,15 @@ function googleTranslateElementInit() {
 
 ![Sainte Baume](../../content/images/sainte-baume.jpg)
 
-- They never expected me to survive them.
+- They never expected me to survive.
 - They never dreamed I would not only survive them, but end up telling everyone about them, and so much more.
 - Do they think the world will not be disgusted and appalled with them, devastated and mourning?
 - Should they have just let me play the piano in peace?
 - Have they sent their operative(s) out to Sainte Baume again to check up on me (or worse)?
 - Seems I can rely on God to deal with them.
+- Correct me if I'm wrong but French military students were sent to guard me while I was there, as was a British spy (amazing woman, just adore her, red hair, can't remember her name, brother went to the pedo-Catholic school in Yorkshire), and a couple of Americans as usual, and a pornographer! Why not just throw in the pornographer while you're at it, ay?
+- [Isabel was there too](../2022/february.md#isabel-pilgrim), sitting with the military students. 
+- I think there was something going on re "investigation", she was so angry with me.
 
 ## Dangerous driving in Italy
 
