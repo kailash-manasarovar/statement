@@ -260,7 +260,8 @@ However, I am aware of growing international support for my endeavors; and a sol
 - They tied her up with ropes and tortured her sexually, filming all the while, and she ended up having to have surgery on her vagina.
 - A day or two later, after an intense psychological battering by the Americans in Bali, I realize Taryn is telling me what happened to Lorraine.
 - A day or two after that, they AI a Snoopy video that demonstrates the position Lorraine had been tied up in.
-- Lorraine's unnecessary death is an example of what happens when people that have been given the power to do whatever they like to each other are hopelessly addicted to porn.
+- Lorraine's unnecessary death is what happens to people that have been given the power to do whatever they like to each other, and are hopelessly addicted to porn.
+- An example of what the whole world will look like if rape-addicts lose their shame.
 - [I dedicate this police statement to Lorraine](dedication.md) and blame porn-sick America for every evil I describe in it.
 
 ![Remembering Lorraine](content/images/remembering-lorraine.jpg)
