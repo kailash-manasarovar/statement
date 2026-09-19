@@ -8,6 +8,12 @@ function googleTranslateElementInit() {
 }
 </script>
 
+!!! danger  "Editorial efforts end here"
+    - I have not yet had the time to do an in-depth editorial of the following sections in the timeline.
+    - Everything from here is rough-sketch at best.
+    - Please be patient while I work on polishing up these sections.
+    - I will publish an update in due course.
+
 ## Detox
 
 - Spies everywhere: woman bullied at work, over-chatty woman, etc.
