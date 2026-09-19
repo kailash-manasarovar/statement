@@ -250,15 +250,15 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ## Lorraine Blackbourn should be alive today
 
-- Lorraine Blackbourn committed suicide in July 2021; on the exact same day I returned to Dénia for a short holiday after many years!
-- Her funeral was a few days later; the very day I went to the beach and saw Caroline England crying at the Rani Palace restaurant.
-- I believe Lorraine was manipulated online into suicide by [the gang's hypno-tech](crimes/hypno-tech.md).
-- I believe Hazel Smith invited Caroline England - devastated by Lorraine's death - [to lunch at the Rani Palace where we saw each other](timeline/2021/july.md#lorraine-blackbourn-commits-suicide).
-- Did Hazel do this to demonstrate the power of the hypno-tech to Caroline; explaining that Lorraine was, in fact, driven to suicide and the same fate is planned for me?
-- I believe Lorraine had found out her British friends were being sedated and raped by their husbands and the rest of the town's menfolk, and likely worse.
-- Did she find out about the baby-rape-porn industry flourishing in the region?
-- I believe she complained to the authorities, as did I, and was ignored, as was I.
-- I believe that the overwhelm of horror, and the devastating knowledge that no-one is going to do anything to protect innocent women and children - coupled with years of mental/emotional torture as her daughter went through the trans-child-abuse-machine - tipped her over the edge, and she was unable to withstand the hypno-tech's suggestions and demands.
+- Lorraine Blackbourn committed suicide in July 2021; just before I returned to Dénia for a short holiday from Lourdes.
+- Her funeral took place the very day I went to the beach and saw [Caroline England crying at the Rani Palace restaurant](timeline/2021/july.md#lorraine-blackbourn-commits-suicide).
+- I always knew Lorraine's death was key to this story, but it took me a long time to figure out exactly how.
+- At [Loka Yoga in Bali](timeline/2026/july.md#loka-yoga), Taryn and Yan asked me to tell them about my experiences over the last years, which I did in the garden, cameras rolling (I could feel the cameras on me and they had positioned me very specifically - they kept doing that there).
+- When I'm done, Taryn tells me she had a friend who was tricked by her husband - something about pretending he wasn't interested in her anymore during lock down, and then setting up another friend of his to make advances which she accepted.
+- When she visited her husband's friend, four of them were waiting for her inside the house - the husband too - and they tied her up and tortured her sexually for hours, and she ended up having to have surgery on her vagina.
+- A day or two later, after intense psychological battering from the Americans in Bali, I realize Taryn is talking about Lorraine and what happened to her.
+- A day or two after that, they AI a Snoopy video to demonstrate the position Lorraine had been tied up in from the films uploaded to the porn networks.
+- Lorraine's unnecessary death is what happens when people who have been given the power to do whatever they like to each other have become hopelessly addicted to porn.
 - [I dedicate this police statement to Lorraine](dedication.md).
 
 ![Remembering Lorraine](content/images/remembering-lorraine.jpg)
