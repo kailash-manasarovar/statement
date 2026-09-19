@@ -259,7 +259,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 - A day or two later, after an intense psychological battering by the Americans in Bali, I realize Taryn is talking about Lorraine and what happened to her.
 - A day or two after that, they AI a Snoopy video to demonstrate the position Lorraine had been tied up in from the films of her they had seen that were uploaded to the porn networks.
 - Lorraine's unnecessary death is an example of what happens when people who have been given the power to do whatever they like to each other are hopelessly addicted to porn.
-- [I dedicate this police statement to Lorraine](dedication.md) and blame America for everything in it.
+- [I dedicate this police statement to Lorraine](dedication.md) and blame porn-sick America for everything in it.
 
 ![Remembering Lorraine](content/images/remembering-lorraine.jpg)
 
