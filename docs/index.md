@@ -285,69 +285,9 @@ However, I am aware of growing international support for my endeavors; and a sol
 - Don't forget to ask them about the flourishing pedo-porn and baby-rape industry in the region.
 - I can imagine you could start a conversation off with one of these people and it feel normal, and funny, and they're laughing, in a jeering way - they're way better than those foreign sluts that everyone hates that they watch obsessively on the porn channels - and you mention the children, and the conservatory teachers, and they're still laughing, but there's a flutter in their voice now, and you mention the babies, and there's a splutter, and then they stop laughing, you lose eye contact with them, and maybe, just maybe, the shame can come in and they're human again.
 
-## Motive
-
-### Figuring it out
-
-- Trying to figure out what the hell was going on in Dénia - never mind why - was a slow process.
-- It was obvious to me something *very bad* was happening, but I failed to assess the seriousness of it for a long time, by design.
-- Initially, I thought that just a few idiot men with pre-pubescent mental ages couldn't stop themselves terrorizing women and girls to the extent I was terrorized at the conservatory between November 2022 and June 2023.
-- It upset me that they were able to involve so many women and children, but Spain is a macho-state after all.
-- Once the online stalking and phone hacking became obvious in the summer of 2023, I started to shift my view on what was going on, but again it was a slow process and marred by constant spiked-hallucinogen intake coupled with the relentless emotional hypno-hacks embedded into all my devices by that time.
-- The idea that I had been stalked by criminal gangs since 1989 when North London rape-gangs filmed me during multiple sex attacks and distributed those films to a "global porn-addict audience" - which, it turns out, could include any man we know, and for sure a great proportion of the men we do know - was preposterous.
-- But it was this, and eventually my wealth, that made me the target of endless sedating/porn gangs in the UK, France, India, and Spain - some of which even included friends, boyfriends, and family members.
-- Of course such a well-known target like myself is going to be lured to the horror-porn spy-cam studios of Las Marinas where no-one will ever come to help.
-
-### Corruption to blame
-
-- Spanish corruption ensures the criminal pornographers of Dénia are untouchable and, due to this, I believe the whole town slipped into a murderous mass-psychosis brought on by unfettered porn-addictions in the men, and men-worshipping in the women.
-- Perhaps some good people tried to stop it, and were dealt with in ways that ensured no-one else would do the same.
-- From here, it's easy to see how a small population might go totally mad: if you can't beat em, join em, right? 
-- At least three decades ago, wealthy local and foreign women were commonly targeted for sexual exploitation and blackmail by porn-gangs using already advanced spy-cam technology; as we saw with the evidence of [Irene's honey-trapped love affair](timeline/2023/july.md#plate-lady-early-in-the-month) which probably occurred in the 80s.
-- My guess is that the gangs insisted on payment from victims or they would distribute the films - then distributed them anyway to the mostly male porn-addict networks who never tell.
-- The porn arm of the criminal enterprise would have become even more lucrative as the Internet took off.
-- It must have been a seamless evolution into installing spy-cam networks in holiday-lets, hotels, rental apartments, houses for sale, school classrooms, public toilets, hospital wards, and police stations, and making a lot more money by doing so.
-- The next obvious step was setting up unwitting sedated sex-slaves; women and families on holiday, or lured to the area to rent or buy houses which are not only set up with 24-7 spy-cam networks but also sedating tech through the air-conditioning systems, and drugging and poisoning through tampered-with water mains or blatant trespass while the inhabitants are out.
-- It is one thing drugging a woman while on a date, or even in the street with distraction techniques; it is quite another setting up whole apartments with sedating-gas technology for live-streaming sexual assaults onto porn-networks.
-
-### The Dénia Doomsday Manipulation-Machine
-
-- Of course, paying porn-addicts get bored easily (porn is *UTTERLY* boring after all) and no porn-businessman will lose a paying customer if he doesn't have to.
-- And, thus, the manipulation-tech became a doomsday machine, tricking men into paying to see more and more deprivation, more rape, more murder and injury, younger and younger victims, old women in nappies, pregnant women and babies, there's no end to the depravity of the porn-addict and his relentless search for the next worst thing.
-- To supply the demand, the criminals moved into schools; indeed anywhere that women, children, the vulnerable, and babies are available for grooming, drugging, sedating, and filming.
-- The fact that no-one cares about these very obvious mass-crimes against the innocent is nearly inconceivable to me.
-- My understanding is that the people of Dénia became so insane, they even broadcast sedated-rape events on the local TV channel, [Dénia TV](timeline/2001-to-2010/2008.md#denia-tv), and have been since at least 2007 (2007 is a watershed moment it seems...), and this is why everyone knows who the victims are.
-- My guess is there are thousands of victims, many murdered for *snuff* porn.
-- This statement publishes the photos of a small portion of these women.
-- And working alongside the horror-porn-enterprise, you have people like Hazel and Sandra Smith, known British serial killers, operating freely amongst hundreds of their default target-types: British ex-pat pensioners with money and property.
-- My guess is these two were brought in by the gangs via their solid North London connections to work solely with the massive ex-pat community in the region, and I suspect they are probably slaves to the gangs themselves.
-- Even so, these two are formally criminally insane, and my guess is that they repurposed the honey-trap sexual-arousal manipulation-tech for suicide and murder - just for fun initially - and even that started to pay off.
-- You could even ask them about school shootings which since the late 90s have all the hallmarks of hypno-tech involvement: zero respect for human life particularly minors and the vulnerable (easy targets), victims using mind-altering substances (often prescription) required for intense online manipulation (see Mike Wenham), and curiously the phenomena only affecting certain gun-carrying communities (i.e. it's often blamed on guns alone but other gun-carrying countries never experience it) that perhaps they're squabbling with, etc.
-- My guess is these two alone have murdered hundreds (a low estimate) in the last twenty-plus years since they arrived in Spain; and we can only guess at how many the Lopez Cano's have dispatched with.
-- They literally enjoy it!
-- A similarly worrying trend is the evidence suggesting that online manipulation techniques, coupled with clandestine drugging, can persuade women to marry if they're rich, and/or get pregnant quickly for more *product* supply (see Natalia who had a child in the midst of a switcheroo-porn scam with Bruno, one of the trumpet teachers, and Catalina who had a child with Roberto from Alicante).
-- I believe that the hundreds-of-thousands of Category A child-and-baby rape-porn we hear about on the news every week in the UK is produced in Dénia by the same gangs that so easily infiltrated the government school system. 
-- They just stomped straight into public classrooms; and all the teachers, staff, and government administrators tipped their hats.
-- And let's never forget the long-established teachers and staff already on the porn-gang payroll.
-- The criminals know very well how valuable their product is to Western porn-addicts, and how international judicial systems will do nothing to stop them.
-- Perhaps whenever we've tried to stop them, they manufactured a school shooting, or something equally horrible (Madeline?).
-- And of course everyone knows what happens to *very unwise* people who have unlimited power over others: the power of life and death by clandestine poisoning, the power of being able to manipulate a person into doing anything at all -> into experiencing strong emotions that induce belief in lies including suicidal and homicidal feelings, or that they are sufficiently sick to justify life-threatening surgery (see Alessandra), or that they were born in the wrong body and should therefore chop bits off the perfect one they have (see the state of our beautiful world), the power of knowing what a person is doing and where they are 24-hours a day, the power of listening to all their conversations, reading all their correspondence...
-- This is a self-destructing and totally insane one-way street to more and more excessive and appalling criminal psychoses acted out.
-- Do the criminals play games amongst themselves and the wider porn-addict community about who is going to kill themselves, who will undergo surgery, who would they like to see murdered or running around naked in a field after a horse?
-- It makes statements I heard from apparent "friends", such as ["Why does someone always have to die?"](timeline/2023/december.md#piano-concert), chilling to the bone.
-- Unsurprisingly, the suicide statistics in Dénia are off the scale. 
-- The Dénia Doomsday Manipulation-Machine started life as a methodology for tricking women by cowardly petty-crook misogynists, and was left to spiral into its current monstrous form simply because no-one considered porn-driven decades of serious sex crimes against women and children worth stopping, or rather, everyone bent over backwards to keep the criminal porn production running.
-- We only have ourselves to blame.
-
 ![The Dénia Doomsday Manipulation-Machine](content/images/denia-doomsday-machine.png)
 
-<!-- Wouldn't it be just horrific if all this was true (it is) and God had abandoned us to it. Well, that's an impossibility but we could if we were totally insane choose to ignore Him. Why aren't we focused on releasing a fix for the hypno-tech globally again... oh wait. That's the goal. Thank you Father for your tender care and our renewed sanity. -->
-
-- My view is send the army in, asap.
-- Again, my view is that once everyone feels safe, the mass, country-wide corroboration can begin.
-- It's all about safety.
-
-### What happens to those who complain
+## What happens to those who complain
 
 - Lorraine Blackbourn stumbled across something the gangs were doing that she literally couldn't live with - she was tricked by male friends and family members on the Spanish side in Dénia into *starring* in violent horror-gang-rape-porn that left her needing surgery to her genitals.
 - Like the immense volume of porn evidence I refer to in this statement - especially that starring Dr. Murphy - it was pretty easy to find copies of films of this egregiously violent sex crime that was broadcast on multiple porn networks; a crime which eventually resulted in Lorraine's death.
@@ -375,13 +315,6 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 - Is this why no-one has stopped them?
 
-### Motive summary
-
-- So, to summarize: the petty crook, honey-trap, spy-cam porn operations of the 80s evolved in parallel with Internet technology and the horror-porn town of Dénia, Alicante, Spain - unimaginable outside of fiction - emerged as a mundane reality.
-- We should not be surprised either; it was inevitable.
-- The motive is, as [Paqui Fornet Pastor](crimes/protagonists/domingo-et-al.md#paqui-fornet-pastor) told me one evening at piano class in March 2024, *it's what they do*, and no-one's been able to do a thing to stop them.
-- Until now.
-
 ## Why was I in Dénia?
 
 - I love Dénia. 
@@ -406,29 +339,6 @@ However, I am aware of growing international support for my endeavors; and a sol
 - I had no notion of the ugly underbelly of this place; about how unsafe women and children are, even at government learning establishments.
 - It was inconceivable to me that the professional, well-educated, well-spoken, friendly, apparently normal Spanish people I interacted with on a daily basis were happily sacrificing women and children and babies to their never-satiated gods of porn.
 - Is it possible God had another reason for me to be there, a good one?
-
-## Police statement structure
-
-This police statement is set out into different sections.
-
-1. **Timeline** of significant events:
-    1. The largest section and in continuous evolution (all other sections at the time of writing are in an early draft state).
-    1. There are at least three Netflix-seasons in here:
-        1. The sedated-sex-slave, conservatory switcheroo-porn terror; prepped in Lourdes from January 2021, arriving in Las Marinas in February 2022, and let's say until surviving poisoning once again in October 2024.
-        1. Our heroine struggles to save her own life; from November 2024 to this day.
-        1. Background and history of significant and related events from our heroine's life; from 1980-2021, and this section could be split further:
-            1. Childhood signs and symbols.
-            1. Growing up and silencing: rape-gangs of North London and the effects of sedated sexual assault on a victim and on the obsessive and secretive porn-addict community close to her.
-            1. A woman's career in tech and what happens when colleagues and recruiters find out she starred in sedated child-rape porn (a horror-porn Netflix miniseries special all it's own).
-1. **Crimes** and protagonists -> information still coming in on the major porn-gang players of Las Marinas and North London.
-1. **Evidence** -> at a very draft stage and in continuous development.
-    1. My belief is that bulk of the evidence/proof will come from the tidal-wave of corroboration when people realize it's safe to speak, after which the mass of porn-evidence will likely emerge.
-1. The **Personal experience** section is an early attempt to catalogue the costs to my health and finances but I'm beginning to realize the futility of this because:
-    1. Apart from some brain-damage symptoms I'm not sure I care about (they do wonders for my meditations) and the long-term detox symptoms from pesticide/brake-fluid poisoning which look to be finally disappearing, I'm well.
-    1. Continuous drugging with hallucinogens for years has also had no discernable bad effects (but is, of course, not recommended and I suspect I'm an unusual case).
-    1. The costs to me financially, however, are incalculable and my attempts at itemizing them started in April 2024 when I still had no idea about the extent and reach of the evil, and what was still planned for me on the solid assurance - from multiple past-victim experiences - that I would be murdered and forgotten.
-1. A **Conclusion** in editorial which I'm dreaming about updating as soon as the babies and children are safe.
-1. **The novel** is a section I use to store book cover designs.
 
 ## The Ark Project Trilogy
 
