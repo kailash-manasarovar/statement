@@ -16,7 +16,7 @@ function googleTranslateElementInit() {
 
 ![Pillow chair](../../content/images/pillow-chair.png)
 
-- My guess is that agents in the business a long time will recognize this sort of thing immediately, and likely confirm that whoever is stalking me relentless, who has the power to get nearly everyone in the world to do what they say, their intention for me is inevitably murder.
+- My guess is that agents in the business a long time will recognize this sort of thing immediately, and likely confirm that whoever is stalking me relentlessly - clearly those who have the power to get nearly everyone in the world to do what they say - their intention for me is inevitably murder.
 
 ## What, wait, another (fake) collapsible bridge again?
 
