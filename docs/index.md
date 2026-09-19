@@ -286,7 +286,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ## What happens to those who complain
 
-- If you complain about what's going on in Dénia you're put to death, or maimed for life, or terrorized relentlessly, or worse.
+- If you complain about what's going on in Dénia you're put to death, or maimed for life, or your children are kidnapped, or you're terrorized relentlessly, or worse.
 - I recall [a British woman telling me she'd refused to do porn](timeline/2011-to-2020/2013.md#the-british-woman-who-refused-to-do-porn) with her *much-younger-Spanish-boyfriend* and that he'd become enraged.
 - When I saw her again, fifteen years later, she was crippled; my guess is due to regular pesticide-dousing of clothes and belongings.
 - Then there was unusually irascible Maria, living alone, her liver swollen to three times its size; all her doctors and even the hospital in Valencia telling her it was nothing!
@@ -295,8 +295,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 - Were some of those people who laughed at me in the street or at the conservatory laughing with joy, with hopefulness that someone finally managed to stand up to the Lopez Cano's after all these years?
 - How many have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
 - How many parents have lost their daughters to the porn-gangs?
-- Are all victims of horror-porn, even the unwitting ones, summarily maimed or killed? Staying alive and well is always a strong motive.
-- Are people's children threatened?
+- Are all victims of horror-porn, even the unwitting ones, summarily maimed or killed? 
 - My online helper told me repeatedly that the gang will kidnap your kids if you go against them.
 - Did they kidnap his children on American orders?
 - Was the Madeline McCann kidnap an attempt to take back some control by those mistaken about who was really controlling the Lopez Cano's?
