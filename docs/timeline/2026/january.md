@@ -364,4 +364,7 @@ function googleTranslateElementInit() {
 - Someone on X pretending to be Antonio says: *you're a CIA intuitive*.
 - I say: *yes, yes I am*, in the way that one is irreverent on social media without really thinking about what's being said.
 - It was the first time I heard this officially, however, and from then on the idea started to take shape, even though I denied it a few days later, because it was in fact news to me, i.e. no one had informed me if I was, but it seems half the world knew already! And for decades too!
-
+- The hint about a helicopter coming to rescue me is very strong here.
+- It looks like the front field is where it's going to come down, and most mornings Andrew is out there checking the ground's level, this sort of thing.
+- It's relentless.
+- And no-one comes to rescue me.
