@@ -17,8 +17,8 @@ function googleTranslateElementInit() {
 - I probably should have got it seen to, but I know mousse agents are all over everything I do, so I don't.
 - I explain it to myself as a hip injury, and ChatGPT tells me it's a pulled muscle.
 - It isn't.
-- It's a surgical stich popping open - I guess this incision was repeated a few times on the left side, probably through a weird area I have still today on my inner groin which didn't behave like a normal boil or spot.
-- I suspect this injury is why they moved over to the going in via the right side in 2026.
+- It's a surgical stich popping open - I guess this incision was repeated a few times on the left side, probably through a weird wounded-area I have still today on my inner groin which didn't behave like a normal boil or spot.
+- I suspect this injury is why they started going in via the right side in 2026, although in January/February in Dorset, I believe they went in again on the left side because my left ovary ached.
 
 ## A man tests me for the effects of poisoning
 
@@ -45,6 +45,7 @@ function googleTranslateElementInit() {
 - I think one of his colleagues must have elaborated a little for him later on because the next time I see him, he is looking at me with tears in his eyes and he looks angry enough to murder someone.
 - I'm so brain-damaged, this is all a little out-of-context so I don't recognize him at the time, and only realize it was him later.
 - Fake X accounts confirm it.
+- I forgot his name but he'll remember me.
 
 ## Snakes at Napasai
 
