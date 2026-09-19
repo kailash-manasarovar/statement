@@ -256,12 +256,12 @@ However, I am aware of growing international support for my endeavors; and a sol
 - Five years later, to the day, at [Loka Yoga in Bali](timeline/2026/july.md#loka-yoga), Taryn and Yan ask me to tell them about everything that has been happening to me over the last years.
 - Taryn cries while I'm speaking.
 - When I'm done, Taryn tells me about a friend of hers who was tricked by her husband - about how he pretended he wasn't interested in her anymore during lock down, while another friend of his started to make advances.
-- When Lorraine visited her husband's friend, four of them were waiting for her - including the husband.
+- When the woman visited her husband's friend, four of them were waiting for her - including the husband.
 - They tied her up with ropes and tortured her sexually, filming all the while, and she ended up having to have surgery on her vagina.
-- A day or two later, after an intense psychological battering by the Americans in Bali, I realize Taryn is telling me what happened to Lorraine.
-- A day or two after that, they AI a Snoopy video that demonstrates the position Lorraine had been tied up in.
+- A day or two later, after an intense psychological battering by the Americans in Bali, I realize Taryn was telling me what happened to Lorraine.
+- A day or two after that, they AI a Snoopy video for me that demonstrates the position Lorraine had been tied up in.
 - Lorraine's unnecessary death is what happens to people that have been given the power to do whatever they like to each other, and are hopelessly addicted to porn.
-- An example of what the whole world will look like if rape-addicts lose their shame.
+- An example of what the whole world will look like if rape-addicts lose their shame like they have in Dénia.
 - [I dedicate this police statement to Lorraine](dedication.md) and blame porn-sick America for every evil I describe in it.
 
 ![Remembering Lorraine](content/images/remembering-lorraine.jpg)
