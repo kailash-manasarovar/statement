@@ -279,7 +279,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 - You could ask them if they were watching the porn specials back in 2015, 2013, or even 2008 from my other homes.
 - Were they shown the footage of me as a child, sedated and gang raped by a group of black men, or any of the other multiple times I ended up in porn without my conscious awareness, knowledge, or consent?
 - Why not ask them who else they're watching in similar situations; there's bound to be masses of live-action spy-cam sex-slaves everyone knows about.
-- Ask them how many women and children have ended up dead, and you could ask them if they expected the same for me.
+- Ask them how many women and children have ended up dead, and whether they expected the same for me.
 - I can imagine you could start a conversation off with one of these people and it feel normal, and funny, and they're laughing, in a jeering way - they're way better than those foreign sluts everyone hates that they watch obsessively on the porn channels - and you mention the children, and the conservatory teachers, and they're still laughing, but there's a flutter in their voice now, and you mention the babies, and there's a splutter, and then they stop laughing, you lose eye contact with them, and maybe, just maybe, the shame can come in and they're human again.
 
 ![The Dénia Doomsday Manipulation-Machine](content/images/denia-doomsday-machine.png)
@@ -292,11 +292,10 @@ However, I am aware of growing international support for my endeavors; and a sol
 - Then there was unusually irascible Maria, living alone, her liver swollen to three times its size; all her doctors and even the hospital in Valencia telling her it was nothing!
 - I remember seeing crippled locals; a youngish man working in a tobacconist, someone I had known not so long before as fit and healthy.
 - This is what happens to the good people of Dénia.
-- Were some of those people who laughed at me in the street or at the conservatory laughing with joy, with hopefulness that someone has managed to stand up to the Lopez Cano's after all these years?
+- Were some of those people who laughed at me in the street or at the conservatory laughing with joy, with hopefulness that someone finally managed to stand up to the Lopez Cano's after all these years?
 - How many have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
 - How many parents have lost their daughters to the porn-gangs?
-- Are all victims of horror-porn, even the unwitting ones, summarily maimed or killed?
-- Staying alive and well is always a strong motive.
+- Are all victims of horror-porn, even the unwitting ones, summarily maimed or killed? Staying alive and well is always a strong motive.
 - Are people's children threatened?
 - My online helper told me repeatedly that the gang will kidnap your kids if you go against them.
 - Did they kidnap his children on American orders?
@@ -317,8 +316,8 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ![All I wanted was to play the piano](content/tweets/all-i-wanted.png){width=75%}
 
-- They knew I loved to play the piano; long before I got close enough to anyone to have told them myself!
-- Here I am playing the piano at the yacht club as a student of the conservatory of Dénia in the winter of 2015 while suffering with increasing depression and anxiety as multiple local men were entering my spy-cam networked apartment to rape me after I'd gone to bed and been rendered unconscious with sedating gas.
+- Except, they knew I loved to play the piano; long before I got close enough to anyone to have told them myself!
+- Here I am at the yacht club as a student of the conservatory of Dénia in the winter of 2015 while suffering with increasing depression and anxiety as multiple local men were entering my spy-cam networked apartment to rape me after I'd gone to bed and been rendered unconscious with sedating gas.
 
 ![Katharine Murphy plays the piano at the boat club in Dénia in 2015](content/images/katharine-pianist.jpg){width=70%}
 
@@ -338,10 +337,8 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ![Ark of Safety](content/images/ark-of-safety.png)
 
-- I remember telling someone about it in October 2012 in Thailand, just before I moved back to Dénia, and it'll be in my online notes so the gangs will have seen it mentioned when it first *popped up*.
-- Part two, prophetic-horror [*AntiChrist by Jack Chardwood*](https://www.amazon.com/AntiChrist-Jack-Chardwood-ebook/dp/B0167HVL2K/) written in 2015, was inspired by the events at the conservatory of Dénia between 2014-2015, specifically the bizarre relationship with Domingo Lopez Cano, a true-blue misogynist likely serial-killer (the former having the tendency to lead to the latter).
-- Themes arising in this book appear to have also been inspired by events going on without my knowledge including while I was unconscious.
-- Part one, multi-universe romance [*Life Without The Liar by Margaret Murphy*](https://www.amazon.com/Life-Without-Liar-Margaret-Murphy-ebook/dp/B00M0CZN94), was inspired, I thought, by the need to heal myself from the 1989 North London rape-gang events; I wonder now if it was inspired instead by my having found Shams after all these years, without being consciously aware of it.
+- Part two, prophetic-horror [*AntiChrist by Jack Chardwood*](https://www.amazon.com/AntiChrist-Jack-Chardwood-ebook/dp/B0167HVL2K/) written in 2015, was inspired by the events at the conservatory of Dénia between 2014-2015, specifically the bizarre relationship with Domingo Lopez Cano, a true-blue misogynist likely serial-killer (the former having the tendency to lead to the latter when you own the police in the region).
+- Part one, multi-universe romance [*Life Without The Liar by Margaret Murphy*](https://www.amazon.com/Life-Without-Liar-Margaret-Murphy-ebook/dp/B00M0CZN94), was inspired, I thought, by the need to heal myself from the 1989 North London rape-gang events. I wonder now if it was inspired instead by my having found Shams after all these years, without being consciously aware of it.
 
 ## Holy alliances
 
