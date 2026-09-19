@@ -367,6 +367,6 @@ function googleTranslateElementInit() {
 - The hint about a helicopter coming to rescue me is very strong here.
 - It looks like the front field is where it's going to come down, and most mornings Andrew is out there checking the ground's level, this sort of thing.
 - He's a military man, air force.
+- Actual military helicopters fly over from Yeovil every hour.
 - It's relentless.
-- No-one comes to rescue me.
-
+- No-one comes.
