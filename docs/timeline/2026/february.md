@@ -18,7 +18,7 @@ function googleTranslateElementInit() {
 
 - My guess is that agents in the business a long time will recognize this sort of thing immediately, and likely confirm that whoever is stalking me relentlessly - clearly those who have the power to get nearly everyone in the world to do what they say - their intention for me is inevitably murder.
 - I leave the UK on the understanding that I have zero human rights in the country.
-- On my fast drive to the boat at Portsmouth, I'm chased by fast sports cars with "significant" registrations down the M3.
+- On my drive to the boat at Portsmouth, I'm chased by fast sports cars with "significant" registrations down the M3.
 
 ### Dolphin
 
@@ -82,6 +82,11 @@ function googleTranslateElementInit() {
 ![True husband](../../content/images/husband.png)
 
 - We suspect they'll get very cross, again.
+- One of the most miraculous Great Ray type things is how the Bible supported my beliefs, even when I was believing the American and UN lie that my love was in Israel.
+- Don't you think that's just spectacular?
+- I can tell you, we've not even got started my love, and when we do, it's gonna be the good stuff, none of this wading around armpit deep in everyone else's muck, no.
+- Something I don't yet have words for.
+- Will you come with me?
 
 ### Dinner with the Sisters of Nevers
 
