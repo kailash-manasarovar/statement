@@ -439,8 +439,9 @@ function googleTranslateElementInit() {
 !!! tip "A curious moment"
     - This woman had asked Steve for some extra help about not being able to get pregnant.
     - She stayed back one evening after everyone had gone and for over an hour Steve gave her a personal session, with Mrs Wasserman standing by.
-    - Mrs Wasserman shut me out of the house while it was going on, and I was upset by that.
-    - And then I heard Steve say, *is that Katharine?*, to Mrs Wasserman while I was standing at the door wondering what to do, and then, *of course KATHARINE (emphasized) can be here*.
+    - Mrs Wasserman shut me out of the house while it was going on - as in I was standing at the front door and she shut it on me. 
+    - I was upset by that.
+    - And then I heard Steve say from inside, *is that Katharine?*, to Mrs Wasserman while I was standing at the door wondering what to do, and then, *of course KATHARINE (emphasized) can be here*.
 
 - As well as all this, I was picking up strong signals about pregnancy from Mrs Wasserman particularly - but also from Steve and Mrs Wasserman's nephew Jonathan.
 - Steve kept telling me how Jonathan has eight children; *eight Katharine, eight!*.
