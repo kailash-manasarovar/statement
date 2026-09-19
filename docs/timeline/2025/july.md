@@ -57,6 +57,7 @@ function googleTranslateElementInit() {
 ## Dad tells me he's a spy cop
 
 - The Sunday before I leave on my own for Lourdes, dad and I go for a dinner at the Claddagh Ring.
+- We've never been here before for dinner; he insisted.
 - He's very candid with me this evening.
 - He tells me he thinks his brother abused my aunt Bernadette and I've had enough of hearing about this sort of lets-blame-Jo-for-everything-I-did and get angry with him.
 - He tells me he's a spy cop.
@@ -72,7 +73,7 @@ function googleTranslateElementInit() {
 - So he's making something up that's on a parallel to explain it, but not quite as bad - in his mind - as admitting he's sexually abused me while I was sedated.
 - It's a sick, fake apology; in advance.
 - Actually, it's not even that. It's something else. He's saying something to someone, not me, and not the right thing.
-- I think he knows we're bugged; something happened at Costa Coffee which told him they're watching him.
+- He knows we're bugged; something happened at Costa Coffee which told him they're watching him.
 - He can't think the British have anything to do with it, or he would have made something else up.
 - Does he think it's Adams?
 - Oh wait, he went to the Irish/Americans for help didn't he.
@@ -80,7 +81,7 @@ function googleTranslateElementInit() {
 - This explains the even more ridiculous story he told me after this one about how he thought he might be Jewish because his mum was maybe having an affair with the priest who came round in the afternoons and how the priest was Jewish.
 - This was comedy gold, actually, and I'm sure everyone heard it.
 - No, wait, that was after I got back from Lourdes and he was so surprised.
-- He must have thought Israel saved me because of the "lifts" thing which he kept going on about.. another time.
+- He must have thought Israel saved me because of the "lifts" thing which he also kept going on about.. another time.
 - He definitely thought it was Adams.
 - Whatever he was doing, he could have saved me then and there, told me not to go, told me I was in extreme danger.
 - And he didn't.
