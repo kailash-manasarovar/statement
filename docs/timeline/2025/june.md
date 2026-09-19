@@ -13,6 +13,7 @@ function googleTranslateElementInit() {
     - Everything from here is rough-sketch at best.
     - Please be patient while I work on polishing up these sections.
     - I will publish an update in due course.
+    - If they ask you to pay for the update, contact me with confirmation you bought the book and I'll send you one for free.
 
 ## Detox
 
