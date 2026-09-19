@@ -136,7 +136,7 @@ function googleTranslateElementInit() {
 - It says: Leaving at 2am.
 - I feel like this is a trick, but I'm not sure, how could I be sure about anything at that time, so reluctantly I pack, and wait, and no-one comes, and I'm not surprised.
 - I think the Americans are f*cking with me, or continually blocking me from getting safe. I think that's what I'm supposed to believe maybe, or maybe they preferred I thought Israel was f&cking around with me. Whatever. I knew.
-- I started to think about the Philip Seymour Hoffman film around this time due to this sort of thing, and felt like they wanted to "guantanimo" me, and that's why I canceled my attendance at TT in January 2026 in Dublin.
+- I started to think about the Philip Seymour Hoffman film, *A Most Wanted Man*, around this time due to this sort of thing, and felt like they wanted to "guantanimo" me, and that's why I canceled my attendance at TT in January 2026 in Dublin.
 - I'm unsure why I signed up for it again in April 2026. What happened to change my mind?
 - I think it was probably because they started to communicate with me directly, pretending they were friends, but they had also tried to bully me in Thailand - stopping payments via my phone app, this sort of thing.
 - I'm uncertain how I managed to change my mind... perhaps I couldn't believe that Steve would have been wittingly involved in all this.. it's unclear.
