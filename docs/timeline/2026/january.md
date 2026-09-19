@@ -368,5 +368,6 @@ function googleTranslateElementInit() {
 - It looks like the front field is where it's going to come down, and most mornings Andrew is out there checking the ground's level, this sort of thing.
 - He's a military man, air force.
 - Actual military helicopters fly over from Yeovil every hour.
+- I had tried to find accommodation in Glastonbury for this short period; but everything was booked up!
 - It's relentless.
 - No-one comes.

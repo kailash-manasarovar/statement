@@ -17,6 +17,20 @@ function googleTranslateElementInit() {
 ![Pillow chair](../../content/images/pillow-chair.png)
 
 - My guess is that agents in the business a long time will recognize this sort of thing immediately, and likely confirm that whoever is stalking me relentlessly - clearly those who have the power to get nearly everyone in the world to do what they say - their intention for me is inevitably murder.
+- I leave the UK on the understanding that I have zero human rights in the country.
+- On my fast drive to the boat at Portsmouth, I'm chased by fast sports cars with "significant" registrations down the M3.
+
+### Dolphin
+
+- I think there's a couple of likelies on the boat too.
+- I'm sitting behind them at lunch.
+- I'm sad and depressed.
+- It's really difficult being a non-human with no rights but everyone seems to want *something* from you but will never offer a helping hand in return.
+- It's getting overwhelming.
+- The woman who is with her father, shouts, and at the same time from the corner of my eye I notice a breached dolphin going back in the water.
+- It was right beside me.
+- Unprecedented.
+- A sign from God.
 
 ## What, wait, another (fake) collapsible bridge again?
 
