@@ -250,17 +250,17 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ## Lorraine Blackbourn should be alive today
 
-- Lorraine Blackbourn committed suicide in July 2021; just before I returned to Dénia for a short holiday.
+- Lorraine Blackbourn committed suicide in July 2021; just before I was lured back to Dénia for a short holiday.
 - Her funeral took place the very day I went to the beach and saw [Caroline England crying at the Rani Palace restaurant](timeline/2021/july.md#lorraine-blackbourn-commits-suicide).
 - I always knew Lorraine's death was key to this story, but it took me a long time to figure out exactly how.
-- Five years later, at [Loka Yoga in Bali](timeline/2026/july.md#loka-yoga), Taryn and Yan asked me to tell them about everything that had happened to me over the last years.
+- Five years later, to the day, at [Loka Yoga in Bali](timeline/2026/july.md#loka-yoga), Taryn and Yan ask me to tell them about everything that has been happening to me over the last years.
 - Taryn cries while I'm speaking.
-- When I'm done, Taryn tells me about a friend of hers who was tricked by her husband - something about how he pretended he wasn't interested in her anymore during lock down, while another friend of his started to make advances.
-- When she visited her husband's friend, four of them were waiting for her inside the house - including the husband.
-- They tied her up with ropes and tortured her sexually for hours, filming all the while, and she ended up having to have surgery on her vagina.
-- A day or two later, after an intense psychological battering by the Americans in Bali, I realize Taryn is talking about Lorraine and what happened to her.
-- A day or two after that, they AI a Snoopy video that demonstrates the position Lorraine had been tied up in from the films uploaded to the porn networks.
-- Lorraine's unnecessary death is an example of what happens when people with the power to do whatever they like to each other are hopelessly addicted to porn.
+- When I'm done, Taryn tells me about a friend of hers who was tricked by her husband - about how he pretended he wasn't interested in her anymore during lock down, while another friend of his started to make advances.
+- When Lorraine visited her husband's friend, four of them were waiting for her - including the husband.
+- They tied her up with ropes and tortured her sexually, filming all the while, and she ended up having to have surgery on her vagina.
+- A day or two later, after an intense psychological battering by the Americans in Bali, I realize Taryn is telling me what happened to Lorraine.
+- A day or two after that, they AI a Snoopy video that demonstrates the position Lorraine had been tied up in.
+- Lorraine's unnecessary death is an example of what happens when people that have been given the power to do whatever they like to each other are hopelessly addicted to porn.
 - [I dedicate this police statement to Lorraine](dedication.md) and blame porn-sick America for every evil I describe in it.
 
 ![Remembering Lorraine](content/images/remembering-lorraine.jpg)
