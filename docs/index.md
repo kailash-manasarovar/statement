@@ -271,62 +271,55 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 - If you travel to Dénia and talk to a few people, ask them if they know me. 
 - They will say yes.
-- A [Spanish government official confirmed it](timeline/2024/october.md#visiting-inma-again-in-madrid); everyone in Denia knows who I am.
+- A [Spanish government official confirmed it](timeline/2024/october.md#visiting-inma-again-in-madrid); everyone in Dénia knows who I am.
 - If you ask them why the whole town persecuted and terrorized me for three years, I expect the answers will be quite interesting.
 - Perhaps you'll find someone who saw me going to the toilet, or showering, or doing yoga in my sitting room, or taking an enema.
 - Maybe someone heard me farting loudly.
 - Many of the men will have seen footage of me masturbating in my bedroom or bathroom while I was drugged out of my mind on spiked hallucinogens and aphrodisiacs.
 - No doubt they will have seen the regular sedated-rape sessions broadcast live from my apartment, or even [the preliminary switcheroo sex-assaults filmed live at music classes at the conservatory](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel).
-- They're running a well-oiled sedated-rape porn-machine.
 - You could ask them if they were watching the porn specials back in 2015, 2013, or even 2008 from my other homes.
 - Why not ask them who else they're watching in similar situations; there's bound to be masses of live-action spy-cam sex-slaves everyone knows about.
 - Ask them how many of those women ended up dead, and if you like, you could ask them if they expected the same for me.
-- You could ask them if they got access to private conversations I may have had with colleagues about things I had to sign NDAs about.
-- Or whether they saw footage of me as a child, sedated and gang raped by a group of black men, or any of the other multiple times I ended up in porn without my conscious awareness, knowledge, or consent.
+- Were they shown the footage of me as a child, sedated and gang raped by a group of black men, or any of the other multiple times I ended up in porn without my conscious awareness, knowledge, or consent.
 - Don't forget to ask them about the flourishing pedo-porn and baby-rape industry in the region.
-- I can imagine you could start a conversation off with one of these people and it feel normal, and funny, and they're laughing, in a jeering way - they're way better than those foreign sluts that everyone hates that they watch obsessively on the porn channels - and you mention the children, and the conservatory teachers, and they're still laughing, but there's a flutter in their voice now, and you mention the babies, and there's a splutter, and then they stop laughing, you lose eye contact with them, and maybe, just maybe, the shame can come in and they're human again.
+- I can imagine you could start a conversation off with one of these people and it feel normal, and funny, and they're laughing, in a jeering way - they're way better than those foreign sluts everyone hates that they watch obsessively on the porn channels - and you mention the children, and the conservatory teachers, and they're still laughing, but there's a flutter in their voice now, and you mention the babies, and there's a splutter, and then they stop laughing, you lose eye contact with them, and maybe, just maybe, the shame can come in and they're human again.
 
 ![The Dénia Doomsday Manipulation-Machine](content/images/denia-doomsday-machine.png)
 
 ## What happens to those who complain
 
-- Lorraine Blackbourn stumbled across something the gangs were doing that she literally couldn't live with - she was tricked by male friends and family members on the Spanish side in Dénia into *starring* in violent horror-gang-rape-porn that left her needing surgery to her genitals.
-- Like the immense volume of porn evidence I refer to in this statement - especially that starring Dr. Murphy - it was pretty easy to find copies of films of this egregiously violent sex crime that was broadcast on multiple porn networks; a crime which eventually resulted in Lorraine's death.
-- I believe she tried to get help, like I did, and was totally ignored, like I was/am.
-- I believe this tipped her over the edge and she was unable to withstand the online suicide suggestions which I can tell you from first-hand experience are extremely powerful, albeit fake.
+- If you complain about what's going on in Dénia you're put to death, or maimed for life, or terrorized relentlessly, or worse.
 - I recall [a British woman telling me she'd refused to do porn](timeline/2011-to-2020/2013.md#the-british-woman-who-refused-to-do-porn) with her *much-younger-Spanish-boyfriend* and that he'd become enraged.
-- When I saw her again, fifteen years later, she was crippled; my guess is due to regular pesticide-dousing of clothes and belongings, like they do.
+- When I saw her again, fifteen years later, she was crippled; my guess is due to regular pesticide-dousing of clothes and belongings.
 - Then there was unusually irascible Maria, living alone, her liver swollen to three times its size; all her doctors and even the hospital in Valencia telling her it was nothing!
 - I remember seeing crippled locals; a youngish man working in a tobacconist, someone I had known not so long before as fit and healthy.
-- Is this what happens to the good people of Dénia? 
-- Are some of the people who laughed at me in the street or at the conservatory laughing with joy, with hopefulness after all this time?
-- Are the people of Dénia prisoners in their own homes or forced to get involved against their will?
-- Will they be killed or maimed if they complain, countless examples available?
+- This is what happens to the good people of Dénia.
+- Were some of those people who laughed at me in the street or at the conservatory laughing with joy, with hopefulness that someone has managed to stand up to the Lopez Cano's after all these years?
 - How many have refused to do porn, or tried to stop some evil, and ended up crippled by pesticides or murdered?
 - How many parents have lost their daughters to the porn-gangs?
 - Are all victims of horror-porn, even the unwitting ones, summarily maimed or killed?
 - Staying alive and well is always a strong motive.
 - Are people's children threatened?
-- My online helper - [the repentant trumpet teacher who I have forgiven](#a-friend-on-the-inside-and-his-gang) - told me repeatedly that the gang will kidnap your kids if you go against them.
-- It seems likely that a criminal porn-enterprise with expertise in sedating, surveillance, manipulation, and spy-cam tech, with members all over Europe and the UK - including Portugal as I found out on my trip to Fatima in October 2024 - would be behind the Madeline McCann kidnap.
-- Did they target Madeline to teach someone a lesson, like they do?
-- Tweets like this one made me wonder if they kept her alive as a bargaining chip.
+- My online helper told me repeatedly that the gang will kidnap your kids if you go against them.
+- Did they kidnap his children on American orders?
+- Was the Madeline McCann kidnap an attempt to take back some control by those mistaken about who was really controlling the Lopez Cano's?
+- Is she still alive? That'd be amazing.
+- Am I very naive?
 
 ![Procrastination is the ultimate killer](content/images/procrastination-is-the-ultimate-killer.png)
-
-- Is this why no-one has stopped them?
 
 ## Why was I in Dénia?
 
 - I love Dénia. 
 - I thought I had many friends there.
-- I had no idea that - apart from my first visit in 1997 - I'd been lured there by online manipulation as a prime target for horror-porn specials that require careful poisoning over many years to administer stroke-like, brain-damage symptoms.
+- I had no idea that - apart from my first visit in 1997 - I'd been lured there by online manipulation as a prime target for horror-porn specials that require careful poisoning over many years to administer stroke-like, brain-damage symptoms, and that multiple security services were aware of it.
 - I sang in the Orfeó de Dénia choir, led by Klara Sarkadi.
 - It was while singing with Klara's choir that I met the characters who made sure I applied to the [conservatory of Dénia](https://portal.edu.gva.es/conservatoridenia/) to study the piano.
 - "Find out what she wants", is their subtle and not-so subtle honey-trap game, and they supplied.
 
 ![All I wanted was to play the piano](content/tweets/all-i-wanted.png){width=75%}
 
+- They knew I loved to play the piano; long before I got close enough to anyone to have told them myself!
 - Here I am playing the piano at the yacht club as a student of the conservatory of Dénia in the winter of 2015 while suffering with increasing depression and anxiety as multiple local men were entering my spy-cam networked apartment to rape me after I'd gone to bed and been rendered unconscious with sedating gas.
 
 ![Katharine Murphy plays the piano at the boat club in Dénia in 2015](content/images/katharine-pianist.jpg){width=70%}
@@ -348,16 +341,15 @@ However, I am aware of growing international support for my endeavors; and a sol
 ![Ark of Safety](content/images/ark-of-safety.png)
 
 - I remember telling someone about it in October 2012 in Thailand, just before I moved back to Dénia, and it'll be in my online notes so the gangs will have seen it mentioned when it first *popped up*.
-- Part two, prophetic-horror [*AntiChrist by Jack Chardwood*](https://www.amazon.com/AntiChrist-Jack-Chardwood-ebook/dp/B0167HVL2K/) written in 2015, was inspired by the events at the conservatory of Dénia between 2014-2015, specifically the bizarre relationship with Domingo Lopez Cano, a true-blue misogynist possibly murderer (one having the tendency to lead to the other).
+- Part two, prophetic-horror [*AntiChrist by Jack Chardwood*](https://www.amazon.com/AntiChrist-Jack-Chardwood-ebook/dp/B0167HVL2K/) written in 2015, was inspired by the events at the conservatory of Dénia between 2014-2015, specifically the bizarre relationship with Domingo Lopez Cano, a true-blue misogynist likely serial-killer (the former having the tendency to lead to the latter).
 - Themes arising in this book appear to have also been inspired by events going on without my knowledge including while I was unconscious.
-- Part one, multi-universe romance [*Life Without The Liar by Margaret Murphy*](https://www.amazon.com/Life-Without-Liar-Margaret-Murphy-ebook/dp/B00M0CZN94), was inspired, I thought, by the need to heal myself from the 1989 North London rape-gang events.
-- However, again, themes and characters arising in this novel perhaps more closely reflect the sex crimes going on Dénia without my knowledge over many years and, without that context, I related everything to what I did know.
+- Part one, multi-universe romance [*Life Without The Liar by Margaret Murphy*](https://www.amazon.com/Life-Without-Liar-Margaret-Murphy-ebook/dp/B00M0CZN94), was inspired, I thought, by the need to heal myself from the 1989 North London rape-gang events; I wonder now if it was inspired instead by my having found Shams after all these years, without being consciously aware of it.
 
-### Holy alliances
+## Holy alliances
 
 - And now begin the mostly holy alliances which lead to the end of hell on earth.
 
-### Contact me
+## Contact me
 
 - Contact me for any further information you may require on the-chief-of-police@fearandloathinginlasmarinas.com.
 - Agent and publisher details coming soon.
