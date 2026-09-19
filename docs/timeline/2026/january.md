@@ -166,6 +166,7 @@ function googleTranslateElementInit() {
 - This is utterly inexplicable to me.
 - The only reason I can fathom for blocking access to this account is an attempt to hide the many letters and emails I wrote to hundreds of organizations asking for help such as [Aqualia, the water board in Valencia](../2022/february.md#aqualia) to inform them the water connection to my house was being tampered with by poisoners.
 - My `DrKatharineMurphy` Facebook account I created when I was running for office at the UK general election in 2024, with over a thousand connections, suffers the same fate in just a few months time, and again this happens while I'm logged on in North London.
+- In September 2026, I'd put money on this being the Americans throwing their British friends in it, like they do.
 
 ## During, after, now
 
@@ -197,7 +198,8 @@ function googleTranslateElementInit() {
     - For example, my eyesight suffered and I was diagnosed with a pre-glaucoma condition in Thailand.
     - On returning to the UK, I requested the same investigation at [Moorfields in Brent Cross](../2025/march.md#moorfields-eye-hospital). 
     - The men there snickered at me and told me there was no issue.
-    - It turns out I was brain-damaged by poison and this did affect my eyesight, but in a neurological manner (I cannot distinguish between objects out of context - a brain injury that made it possible for the gangs to manipulate me into believing four very different men were the same one man).
+    - It turns out I was brain-damaged by poison (although I'm wondering if in fact some of my brain-damage symptoms are from lack of oxygen to the brain during [a murderous attack by conservatory teachers and their friends while I was sedated in my bed on 13th March 2024](../2024/march/13-end.md#the-pillow-game)).
+    - Poisons do affect my eyesight, but in a neurological manner (I cannot distinguish between objects out of context - a brain injury that made it possible for the gangs to manipulate me into believing four very different men were the same one man). I think this symptom came from a long term application with deadly herbs.
     - Is that why the men at Moorfields were so sure I had no vision issue they could help me with; they know what the gangs do to women and it's amusing to them?
     - I have [told my GP](../2025/september.md#rutland-house-surgery-muswell-hill) the full extent of the poisoning and they did a blood test, and that's it.
     - If I insist on full neurological analysis, will the technician be snickering at me?
@@ -241,6 +243,7 @@ function googleTranslateElementInit() {
 - She said, *yes, but one miracle's not probably going to be enough*.
 - And I said, *well, if miracles exist, and given I'm an example of one of them they do, then God's hardly gonna just give us one each... if they exist, they must be unlimited*.
 - Any maybe that fact will save us.
+- It's hard to see how Steve and Co could have possibly had any benevolent intentions towards me. I mean, I'm finding it hard so the rest of the world won't have any difficulty with the obvious.
 
 ## The Hollywood connection
 
@@ -277,6 +280,7 @@ function googleTranslateElementInit() {
 - Incidentally, this is where I met Garth Jennings and Nick Goldsmith who were running their film company, Hammer & Tongs, from the same offices.
 - Garth is now a famous Hollywood director and I believe I saw him just a few weeks ago in Bangkok.
 - Garth Jennings witnessed me go into PTSD freeze one morning in a meeting in 1995; he couldn't understand it. Neither could I. I was just holding onto life as best I could those days, for 35 years actually, and sometimes things would trigger me which I had no resources to manage and I went into a freeze state.
+- (Did I mention they sent a Garth Jennings lookalike to the BKK airport hotel I was staying in the night before I flew back to London in January 2026 and a bunch of religious Jewish people were around me at reception - it's been relentless.)
 - I believe I added that information to my [2015 police statement](../2011-to-2020/2015.md#statement-to-the-metropolitan-police) that Hazel Smith and the Denia porn-gangs were reading as I typed.
 - Anyway, it was my first job after graduating.
 - I had been given a responsible role leading a film shoot for a band in Soho.
@@ -342,12 +346,12 @@ function googleTranslateElementInit() {
 - The bathroom is full of X memes I've been using these last years.
 - They have a `@jctot19` diver mannequin upside down in the garden, his head in the ground.
 - I'm wondering if they're trying to make me think he's dead, or if they killed him.
-- I start to wonder about two pictures in the house.
+- I start to wonder about two pictures in the house - see the squirrel, strawberries, mushrooms, the ram, relentless triggering (they can't have expected me to survive all this and tell everyone, can they?)
 
 ![Squirrel strawberries and magic mushrooms](../../content/images/squirrel-strawberries-magic-mushrooms.jpeg)
 ![RAM RAM](../../content/images/ram-ram.jpeg)
 
-- The owner Andrew - who looks like a royal by the way - is a photographer and is taking pictures of the house from outside on the Sunday, and a rainbow goes over the house making a perfect photo.
+- The owner Andrew - who looks like a royal by the way - is a photographer and is taking pictures of the house from outside on the Sunday, and a perfect rainbow covers the house making a perfect photo.
 - Andrew is probably why I started thinking about the King so much - although no doubt Joy was doing their relentless "thing" also.
 - I have always had rather good feelings about the King, warm feelings, just like I had in [Dublin in May](../2025/may.md#god-save-the-king).
 - It was like that, these thoughts about the King again.
