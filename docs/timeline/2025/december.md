@@ -98,7 +98,7 @@ function googleTranslateElementInit() {
 - Just like the [Jitendra Das](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star) lookalike did with his napkin at dinner one night at the [Polygon conference in Bali](../2024/may.md#the-pakistani-yorkshire-man).
 - It feels too distressing to witness.
 - I ask for guidance.
-- I start thinking about [Winston May & Nicky](../../crimes/protagonists/winston-may-and-nicky.md) and remember that in 1989 he had told me they'd both recently traveled to Spain.
+- I start thinking about [Winston May & Nicky](../../crimes/protagonists/winston-may-and-nicky.md) and remember that in 1989 Winston had told me they'd both recently traveled to Spain.
 - I get up and write about it.
 - I lose my sense of peace for a good few hours.
 - Something tells me that what I saw was related to events on [13th March 2024](../2024/march/13-end.md#wednesday-13th-march) when I woke up certain I was going to be murdered and texted everyone I knew (Chris BJ, Alessandra, Brenda, Sandra, maybe others) to that effect.
@@ -107,6 +107,7 @@ function googleTranslateElementInit() {
     - I think this probably did happen, but not on 13th March 2024.
     - That event was a bunch of teachers and perverts [suffocating me with my pillows and duvet in my bedroom while I was sedated](../2024/march/13-end.md#the-pillow-game) to make sure I left my studies at the conservatory.
     - It worked too; I quit the next day.
+    - It also gave me brain-damage from the lack of oxygen.
     - I guess I was holding up the next session of switcheroo porn for one of the minor girls...
     - Probably [the British girl](../2024/february.md#the-britishrussian-girl-at-the-conservatory) given we Brits seem to be the main source of feed for these animals; the feed that *no-one* will do anything to help.
     - Must have been really annoying for them, all that delay.
@@ -124,7 +125,7 @@ function googleTranslateElementInit() {
 - Are they still doing the *who goes to prison* deals?
 - I guess so.
 - I see the man a few days later, and he looks *completely* different and appears to be with a bunch of other Americans and his accent is nothing at all like Gabriel's, but he is definitely the same size, shape, and hair-color, the way they do.
-- In September 2026, I'm glad to see evidence of how they were messing with my head back then, and I also think Gabriel Silva is a CIA spy sent to Polygon knowing fully well what was intended for me in Bali.
+- In September 2026, I'm glad to see evidence of how they were messing with my head back then about an ongoing investigation, and I also think Gabriel Silva is a CIA spy sent to Polygon knowing fully well what was intended for me in [Bali](../2024/may.md#bali).
 
 ## Someone tells me to pack and puts a date and time in my Google calendar
 
