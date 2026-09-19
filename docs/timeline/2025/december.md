@@ -8,43 +8,64 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## A (fake) bridge collapses
+## A stich pops at Fitkoh
 
-- All of it, mousse distraction; they literally took over the whole island with thousands of operatives, putting small business out of regular income.
-- All the criminals cowering.
-- Getting the local constabulary and locals to pretend to me I was in constant danger.
-- Theatrical house-arrest total!
-- What is your quest?
-
-![The bridge of death](../../content/images/bridge-of-death.jpg)
-
-- Um, quest? Well.. I'm so sorry for farting, I've had some problems with my digestive system recently...
-- WRONG!!!!
-- Aaaaaaaahhhhhhhhhhhhh.
+- I attend a Thai boxing course at Fitkoh.
+- On the first morning, while warming up, after having taken two or three paces jogging with everyone around the fitness space, I feel a crunch in my left groin/hip area and massive pain.
+- I cannot run another step.
+- I'm so disappointed about this, and honestly I don't really understand what could have happened.
+- I probably should have got it seen to, but I know mousse agents are all over everything I do, so I don't.
+- I explain it to myself as a hip injury, and ChatGPT tells me it's a pulled muscle.
+- It isn't.
+- It's a surgical stich popping open - I guess this incision was repeated a few times on the left side, probably through a weird area I have still today on my inner groin which didn't behave like a normal boil or spot.
+- I suspect this injury is why they moved over to the going in via the right side in 2026.
 
 ## A man tests me for the effects of poisoning
 
 - At Fitkoh, a man starts chatting with me.
+- His name is Oliver.
+- He's British, lives in Dubai, and has a Romanian mobile number.
+- He's with his wife and small boy. 
+- The wife is speaking Spanish to the boy.
 - I'm struggling with the co-ordination of the boxing moves we're practicing.
 - I tell him I was poisoned and have some brain-damage.
-- He's a physio of some sort and works with stroke victims.
+- He says he's a physio of some sort and works with stroke victims.
 - He does some tests, like coordination tests.
 - I fail spectacularly.
 - I ask if he can help me.
-- He's an agent though, so he doesn't speak to me again.
+- He's an agent though, so he doesn't speak to me again and makes sure no-one with him does either.
+- His wife barely looks at me whenever I see her.
 
 ## A man is devastated on hearing what happened to me
 
-- I meet another man, cabin crew.
-- Seems like a lot of cabin crew double as kind of law-enforcement...
+- I meet another man, cabin crew, at FitKoh.
+- Seems like a lot of cabin crew double as kind of law-enforcement... anyway.
 - We get on really well, spa a little when we're doing the boxing moves bit, and have a chat afterwards.
 - I tell him I was poisoned and that's why my coordination is all over the place.
 - I think one of his colleagues must have elaborated a little for him later on because the next time I see him, he is looking at me with tears in his eyes and he looks angry enough to murder someone.
 - I'm so brain-damaged, this is all a little out-of-context so I don't recognize him at the time, and only realize it was him later.
 - Fake X accounts confirm it.
 
+## Snakes at Napasai
+
+- The first time I go to Fitkoh - just after the stich snaps in my groin - I was staying at a hotel called Napasai.
+- It's a short bike ride to Fitkoh, like 5 minutes.
+- I just remember being so utterly exhausted I could hardly get it up the hill, but I guess surgery in Bangkok can explain that.
+- I was pushing myself because there was no explanation for it.
+- Anyway, as before, there are agents all over me at the hotel, many of them very Jewish looking.
+- I'm at the beach one day, and I see a snake, quite a big one coming down the tree into the sand.
+- I point to it and the beach man goes over - nice man, can't remember his name, I made a lot of hotel-staff friends over the last years, they're the only people who spoke semi-normally to me - and it bites him as he picks it up to leave it in the forest area.
+- At the same time, I see a baby snake coming down the tree after the big one, and for some reason I know it's going to be coming in my direction.
+- It does.
+- The Asian-American beside me at the beach is surprised I knew that.
+- I think there were probably three surgeries: one at the Anantara, one at the Bangkok Residences, and one at Napasai too.
+- And I think they all went in via the same incision, weakening it every time, and causing me total and inexplicable exhaustion which was normal but I should have been told to bed rest, except they were sedating me to perform surgery.
+- So not knowing what's going on I start Thai Boxing and I'm injured in the very first seconds.
+- Absolute b*&*&*tards.
+
 ## Thailand fasting and detox clarity
 
+- After Napasai, I go to Lamai to fast and detox as normal.
 - It's day seven of the fast and detox program.
 - I'm peaceful.
 - I'm feeling well too; free of a lot of the year's poison and toxins.
@@ -102,6 +123,7 @@ function googleTranslateElementInit() {
 - Are they still doing the *who goes to prison* deals?
 - I guess so.
 - I see the man a few days later, and he looks *completely* different and appears to be with a bunch of other Americans and his accent is nothing at all like Gabriel's, but he is definitely the same size, shape, and hair-color, the way they do.
+- In September 2026, I'm glad to see evidence of how they were messing with my head back then, and I also think Gabriel Silva is a CIA spy sent to Polygon knowing fully well what was intended for me in Bali.
 
 ## Someone tells me to pack and puts a date and time in my Google calendar
 
@@ -111,25 +133,27 @@ function googleTranslateElementInit() {
 - I get back to my room and someone has ADDED a calendar entry to my Google calendar.
 - It says: Leaving at 2am.
 - I feel like this is a trick, but I'm not sure, how could I be sure about anything at that time, so reluctantly I pack, and wait, and no-one comes, and I'm not surprised.
-- I think the Americans are f*cking with me, or continually blocking me from getting safe.
-- I started to think about the Philip Seymour Hoffman film around this time due to this sort of thing, and felt like they wanted to "guantanimo" me, and that's why I canceled TT in January 2026 in Dublin.
-- I'm unsure why I signed up for it again in April 2026. What happened to change my mind.
+- I think the Americans are f*cking with me, or continually blocking me from getting safe. I think that's what I'm supposed to believe maybe, or maybe they preferred I thought Israel was f&cking around with me. Whatever. I knew.
+- I started to think about the Philip Seymour Hoffman film around this time due to this sort of thing, and felt like they wanted to "guantanimo" me, and that's why I canceled my attendance at TT in January 2026 in Dublin.
+- I'm unsure why I signed up for it again in April 2026. What happened to change my mind?
 - I think it was probably because they started to communicate with me directly, pretending they were friends, but they had also tried to bully me in Thailand - stopping payments via my phone app, this sort of thing.
 - I'm uncertain how I managed to change my mind... perhaps I couldn't believe that Steve would have been wittingly involved in all this.. it's unclear.
-- I think I was under overwhelming stress, and my options had dwindled to zero by January 2026.
-- There was also a story to uncover.
+- I think I was under overwhelming stress, was suffering from injuries and exhaustion after multiple surgeries, and my future's options had dwindled to zero by January 2026.
+- Just before they did this, on the run up to it, I see messages, posts, and adverts about a intense 30 day AI course I'm going to be beginning.. the implication is once I've been rescued I'll be learning AI intensely.
+- After the date debacle, these references stop completely.
 
 ## The cockney geezer with the emotionless young women
 
 - A cockney geezer is hanging out on Lamai beach every day.
 - He's about 60, black hair probably dyed, geezer.
-- He has two young women with him who don't speak (are they policewomen?).
+- He has two young women with him who don't speak (are they policewomen?, no, spies).
 - He speaks.
 - A lot.
 - He's always shouting on his phone.
 - One day, I walk past him, and he says: *you mean all the way from twenty years ago*.
 - Seems like he's referring to me.
 - I think: *twenty-five*.
+- Someone flashes a name for him up on X later on after I post this section but I don't remember it.
 
 ## I'm having a detrimental effect on the local economy
 
@@ -144,16 +168,21 @@ function googleTranslateElementInit() {
 - They're calling me *khun-khun* too, which I think is a little derogatory.
 - If I'm so famous everywhere, why hasn't anyone been nicked yet?
 - I guess we had to get *every last one of them*, innit.
+- The last statement being confirmation of [things I had been hearing](november.md#every-last-one-of-them) from agents in Thailand.
 
 ## Another (fake) bridge collapses
 
 - What's the capital of Assyria?
 
-![The bridge of death](../../content/images/fake-bridge-of-death.jpg)
+![The bridge of death](../../content/images/bridge-of-death.jpg)
 
 - Wait, I have it in my calendar here...
 - WRONG!!!!
 - Aaaaaaaahhhhhhhhhhhhh.
+- All of it, mousse distraction; they literally took over the whole island with thousands of operatives, putting small business out of regular income.
+- All the criminals cowering.
+- Getting the local constabulary and locals to pretend to me I was in constant danger.
+- Theatrical house-arrest total!
 
 ## No hole in the knit
 
@@ -162,3 +191,6 @@ function googleTranslateElementInit() {
 - Perhaps the greatest of them all, so far.
 
 ![The Knit](../../content/images/the-knit.png)
+
+- Amazing.
+- [Dennis Moore](../2026/september.md#two-announcements) may have topped it.

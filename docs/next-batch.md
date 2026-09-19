@@ -4,15 +4,11 @@
 
 ## TODO: list
 
-### December 2025
-
-1. I wonder if there was a further surgery at Napasa Samui also, please was full of agents too. And one day at the beach I had a snake episode.
-1. Oliver name of medic at Fitkoh.
-1. I meet the UN woman who managed the raid and extraction at Fitkoh. She shows me her card.
-1. Just before they add an event to my Google calendar, and I pack and no-one comes, for the last few days before that on whatever comes up on my front page is messages about a intense 30 day AI course I'm going to be beginning.. the implication is once I've been rescued I can start learning AI intensely. Again, like the Calendar entry, it feels bogus but whatever.
-
 ### January 2026
 
+1. The UN woman at Fitkoh.
+1. Trip to the waterfall.
+1. Byron lookalike.
 1. Interestingly, I have always had rather good feelings about the King, warm feelings, and when this happened strongly once again - in Dorset in early 2026 - I thought he actually might be coming to visit and I was quite excited about that - from May 2025.
 
 ### February 2026
