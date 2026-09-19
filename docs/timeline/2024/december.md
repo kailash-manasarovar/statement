@@ -473,6 +473,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - I will see him again and again over the next 18 months.
 - I always thought he was familiar.
 - I wonder if he believed I'd never remember him due to brain-damage?
+- This guy, now, was he also the same man who said he was an "opera singer" who was at Anita and Matthew Diamond's house with his wife (the statistician) [that time they mentioned the "petrol money"](../2001-to-2010/2006.md#dave-porter-on-guardian-soulmates)?
 
 ## My Belgian friend says he will help me
 
