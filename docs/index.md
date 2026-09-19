@@ -267,21 +267,19 @@ However, I am aware of growing international support for my endeavors; and a sol
 ![Remembering Lorraine](content/images/remembering-lorraine.jpg)
 
 ## Everyone in *baby-rape-capital-of-the-world* knows who I am 
-### Maybe everyone in the whole of Spain too
 
 - If you travel to Dénia and talk to a few people, ask them if they know me. 
 - They will say yes.
-- A [Spanish government official confirmed it](timeline/2024/october.md#visiting-inma-again-in-madrid); everyone in Dénia knows who I am.
+- A [Spanish government official, Paloma, confirmed it](timeline/2024/october.md#visiting-inma-again-in-madrid); everyone in Dénia knows who I am.
 - If you ask them why the whole town persecuted and terrorized me for three years, I expect the answers will be quite interesting.
 - Perhaps you'll find someone who saw me going to the toilet, or showering, or doing yoga in my sitting room, or taking an enema.
 - Maybe someone heard me farting loudly.
 - Many of the men will have seen footage of me masturbating in my bedroom or bathroom while I was drugged out of my mind on spiked hallucinogens and aphrodisiacs.
 - No doubt they will have seen the regular sedated-rape sessions broadcast live from my apartment, or even [the preliminary switcheroo sex-assaults filmed live at music classes at the conservatory](crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel).
 - You could ask them if they were watching the porn specials back in 2015, 2013, or even 2008 from my other homes.
+- Were they shown the footage of me as a child, sedated and gang raped by a group of black men, or any of the other multiple times I ended up in porn without my conscious awareness, knowledge, or consent?
 - Why not ask them who else they're watching in similar situations; there's bound to be masses of live-action spy-cam sex-slaves everyone knows about.
-- Ask them how many of those women ended up dead, and if you like, you could ask them if they expected the same for me.
-- Were they shown the footage of me as a child, sedated and gang raped by a group of black men, or any of the other multiple times I ended up in porn without my conscious awareness, knowledge, or consent.
-- Don't forget to ask them about the flourishing pedo-porn and baby-rape industry in the region.
+- Ask them how many women and children have ended up dead, and you could ask them if they expected the same for me.
 - I can imagine you could start a conversation off with one of these people and it feel normal, and funny, and they're laughing, in a jeering way - they're way better than those foreign sluts everyone hates that they watch obsessively on the porn channels - and you mention the children, and the conservatory teachers, and they're still laughing, but there's a flutter in their voice now, and you mention the babies, and there's a splutter, and then they stop laughing, you lose eye contact with them, and maybe, just maybe, the shame can come in and they're human again.
 
 ![The Dénia Doomsday Manipulation-Machine](content/images/denia-doomsday-machine.png)
