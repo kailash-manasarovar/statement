@@ -87,6 +87,7 @@ function googleTranslateElementInit() {
 - Suddenly the one at the end would lurch out into my lane, without indicating, and THEN put his indicator on.
 - It was terrifying; a bunch of near misses.
 - Could that have been intentional, or is it really normal over there?
+- It was not just that stretch of road, or on the one day only.
 
 ## The Name of the Rose
 
