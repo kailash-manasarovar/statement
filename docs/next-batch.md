@@ -4,13 +4,6 @@
 
 ## TODO: list
 
-### January 2026
-
-1. The UN woman at Fitkoh.
-1. Trip to the waterfall.
-1. Byron lookalike.
-1. Interestingly, I have always had rather good feelings about the King, warm feelings, and when this happened strongly once again - in Dorset in early 2026 - I thought he actually might be coming to visit and I was quite excited about that - from May 2025.
-
 ### February 2026
 
 - Dangerous driving in Italy.

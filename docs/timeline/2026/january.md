@@ -10,8 +10,9 @@ function googleTranslateElementInit() {
 
 ## A "date" in Barcelona
 
-- Word on the street is I had a "date" in Barcelona (mousses pretending they care again!): meaning yet another sedated rape event I'm only now aware of having occurred.
-- I'm wondering when that could have been.
+- They got one of the Fitkoh staff, a Northern Irishman, to tell me - by shouting it from the bar with his back to me when I was sitting behind him - "you had a "date" in Barcelona".
+- I guess it meant yet another sedated rape event I'm only now aware of having occurred, except there were probably hundreds!
+- At the time, I was wondering when they meant.
 - I was up and down to Barcelona so many times between 2005-2016 when I lived in Dénia and Madrid.
 - Let's list those visits here - as much as possible - and see which of them are the most likely.
 - I'll add any more I remember as we go along.
@@ -30,6 +31,40 @@ function googleTranslateElementInit() {
         - The gangs would have been aware I was going on these retreats, and aware that Iboga often surfaces hidden events from the past. Many attendees are curing hard-drug addictions this way.
         - I wonder if they felt it imperative to attempt to undermine any healing I might have had from attending the Iboga retreat.
         - In retrospect, the criminal-element I oftentimes met on some of these shamanic retreats I was going on to try to access hidden memories - and the numerous odd experiences I had with these people - could well have been part of the distract-and-discredit criminal protocol for child rape-gang survivors, don't you think.
+
+## Byron lookalike 
+
+- Everywhere I go around the Fitkoh gym I'm seeing the same man.
+- He's dressed up to remind me of Byron, particularly his hair which gives credence to [those two Brits at Sinai being agents in 1997](../pre-2001/1997.md#agents).
+- I can think of no reason they would do this.
+
+## UN woman
+
+- A woman on the same course befriends me a little and we chat and have meals together.
+- She's Dutch but has an American accent.
+- She tells me about when she worked for the UN in Africa for years and always rode in the helicopter.
+- As she's leaving, she shows me an AI business card she's made on her phone where she's in bulletproof UN gear and beside the two-propeller UN helicopter.
+- I have no idea what they're trying to do with all this.
+- I told a good joke at dinner about swimming pools and children, but they did set it up for me.
+- I don't know why, but I heard her saying *she knows she's a star*, and I can't imagine why she'd say that if she did.
+- I wonder how many of them know what the Americans were really up to.
+- My guess is very few because it is so utterly appalling.
+
+## Military folk all over me
+
+- Everywhere I go, agents.
+- I think the waterfall trip had no non-agents attending.
+- Now it's ex-military, or people with military parents or husbands.
+- I just don't get it. 
+- What in the world are they playing at?
+- It's a total mystery to me.
+- I've no idea they've been making babies from my eggs all this time and are probably now raffling off more of them to the highest bidder.
+- Correct me if I'm wrong.
+- It'd be great if all of the baby-stealers are folk the whole world wants to have an intense shame episode.
+- That'd be helpful.
+- The way they do things; one can only imagine what they've really been up to.
+- Do you think they're the instigators of the sedated-rape plague, making sure that women do all their dirty work for them?
+- It wouldn't surprise me.
 
 ## A bridge collapses again
 
@@ -294,3 +329,35 @@ function googleTranslateElementInit() {
 - Just before I left for good.
 - Is that why my brother was shouting very loudly that he was going to shoot himself in the garden?
 - (The male ego having infinitely more value than a female human life.)
+
+## Dorset, another CIA hang out
+
+- I think surgery must have taken place here.
+- I felt unusual and thought I was being scanned in the night.
+- There seemed to be something set up in the room below which they didn't want me to know about - and I thought they must be scanning me while I was unconscious.
+- I felt unwell, high - painkillers again?
+- One night I had a deep ache in my left ovary and thought that it was because I was being reminded about Antonio every where I looked.
+- I tweeted about it too: *even the thought of squirrel makes me ovulate*, I had said online.
+- There's "squirrel" triggers everywhere.
+- The bathroom is full of X memes I've been using these last years.
+- They have a `@jctot19` diver mannequin upside down in the garden, his head in the ground.
+- I'm wondering if they're trying to make me think he's dead, or if they killed him.
+- I start to wonder about two pictures in the house.
+
+![Squirrel strawberries and magic mushrooms](../../content/images/squirrel-strawberries-magic-mushrooms.jpeg)
+![RAM RAM](../../content/images/ram-ram.jpeg)
+
+- The owner Andrew - who looks like a royal by the way - is a photographer and is taking pictures of the house from outside on the Sunday, and a rainbow goes over the house making a perfect photo.
+- Andrew is probably why I started thinking about the King so much - although no doubt Joy was doing their relentless "thing" also.
+- I have always had rather good feelings about the King, warm feelings, just like I had in [Dublin in May](../2025/may.md#god-save-the-king).
+- It was like that, these thoughts about the King again.
+- I genuinely thought he actually might be coming to visit me and I was quite excited about that.
+- I take a photo of the full moon. 
+
+![Full celtic moon](../../content/images/full-moon.jpeg)
+
+- I continue writing up my book.
+- Someone on X pretending to be Antonio says: *you're a CIA intuitive*.
+- I say: *yes, yes I am*, in the way that one is irreverent on social media without really thinking about what's being said.
+- It was the first time I heard this officially, however, and from then on the idea started to take shape, even though I denied it a few days later, because it was in fact news to me, i.e. no one had informed me if I was, but it seems half the world knew already! And for decades too!
+
