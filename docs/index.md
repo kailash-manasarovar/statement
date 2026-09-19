@@ -308,14 +308,14 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 - I love Dénia. 
 - I thought I had many friends there.
-- I had no idea that - apart from my first visit in 1997 - I'd been lured there by online manipulation as a prime target for horror-porn specials that require careful poisoning over many years to administer stroke-like, brain-damage symptoms, and that multiple security services were aware of it.
+- I had no idea that - apart from my first visit in 1997 - I'd been lured there by online manipulation as a prime target for horror-porn specials that require careful poisoning over many years to administer stroke-like, brain-damage symptoms, and that multiple, international security services were aware of it.
 - I sang in the Orfeó de Dénia choir, led by Klara Sarkadi.
 - It was while singing with Klara's choir that I met the characters who made sure I applied to the [conservatory of Dénia](https://portal.edu.gva.es/conservatoridenia/) to study the piano.
 - "Find out what she wants", is their subtle and not-so subtle honey-trap game, and they supplied.
 
 ![All I wanted was to play the piano](content/tweets/all-i-wanted.png){width=75%}
 
-- Except, they knew I loved to play the piano; long before I got close enough to anyone to have told them myself!
+- Except, they knew I loved to play the piano long before I got close enough to anyone to have told them myself!
 - Here I am at the yacht club as a student of the conservatory of Dénia in the winter of 2015 while suffering with increasing depression and anxiety as multiple local men were entering my spy-cam networked apartment to rape me after I'd gone to bed and been rendered unconscious with sedating gas.
 
 ![Katharine Murphy plays the piano at the boat club in Dénia in 2015](content/images/katharine-pianist.jpg){width=70%}
