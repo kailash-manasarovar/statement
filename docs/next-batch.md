@@ -4,10 +4,6 @@
 
 ## TODO: list
 
-### February 2026
-
-- Dangerous driving in Italy.
-
 ### April 2026
 
 1. TT in April 2026, Steve is bullying Gerardine and Yvonne.

@@ -78,6 +78,16 @@ function googleTranslateElementInit() {
 - Have they sent their operative(s) out to Sainte Baume again to check up on me (or worse)?
 - Seems I can rely on God to deal with them.
 
+## Dangerous driving in Italy
+
+- I don't know if this is common in Italy - it seemed to be from my experience.
+- I'd be driving along the motorways feeling quite anxious actually. 
+- I felt especially unsafe driving from Padova to Milan and I think what I'm about to say happened three or four times on that specific trip.
+- There'd be a line of lorries in the next lane I was about to overtake.
+- Suddenly the one at the end would lurch out into my lane, without indicating, and THEN put his indicator on.
+- It was terrifying; a bunch of near misses.
+- Could that have been intentional, or is it really normal over there?
+
 ## The Name of the Rose
 
 - The monastery at Sacra di San Michele near Turin was the inspiration for the novel *The Name of the Rose* which became a film starring Sean Connery and Christian Slater.
