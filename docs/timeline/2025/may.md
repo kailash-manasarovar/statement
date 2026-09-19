@@ -456,6 +456,9 @@ function googleTranslateElementInit() {
 - Had they already got a viable pregnancy going from one of my eggs they extracted in Dublin at the Anantara?
 - Did Mrs Wasserman's people find out about it and want in?
 - Had Steve already fathered a baby of mine?
+- Incidentally, when I got back to London I spoke often to my parents about wanting a child because of all this, and how in Israel you can do it on the national health right up until you're 58 - they told me this, another reason the very last thing I could possibly imagine was thievery.
+- Dad said: *yes, you should get a pup*!
+- Nice man.
 
 ### Feeling sick on my return
 
