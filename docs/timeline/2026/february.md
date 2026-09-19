@@ -8,6 +8,16 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Threats with close proximity, however, continue
+
+- I have everything I own in my car.
+- In the boot, I have a fold up yoga chair and on top of that I put my Ikea pillow.
+- While in Dorset, a way too close-proximity threatening fake account pops up.
+
+![Pillow chair](../../content/images/pillow-chair.png)
+
+- My guess is that agents in the business a long time will recognize this sort of thing immediately, and likely confirm that whoever is stalking me relentless, who has the power to get nearly everyone in the world to do what they say, their intention for me is inevitably murder.
+
 ## What, wait, another (fake) collapsible bridge again?
 
 - Ask me the questions, bridge-keeper. I am not afraid.
