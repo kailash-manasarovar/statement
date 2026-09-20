@@ -21,6 +21,7 @@ function googleTranslateElementInit() {
 - This is the same stich which will snap and crunch at FitKoh in December after just a couple of paces jogging - I expect after another incision in the same place in Bangkok or Samui.
 - She also wanted to know what had been going on with me, and I told her, and she did not react normally - no shock or upset that I have suffered so many attacks and nobody has done a thing about it - so I'm pretty sure she's an agent.
 - Was this a kind of... *oh well, if you've experienced all that you're not fit to be the mother of your own children, but we'll definitely need to steal your eggs anyway*... it's even worse than the rape, do they realize that?
+- Although, I do wonder if it was more to do with trying to find out why the Americans were so interested in me, having not been told, and how that might have anything to with my health.
 
 ### Haircut disaster on the same day
 
