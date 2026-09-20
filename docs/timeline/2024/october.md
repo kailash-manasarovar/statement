@@ -1089,6 +1089,13 @@ function googleTranslateElementInit() {
 - I added the [Sylvia meme information](../../evidence/memes-and-triggers.md#sylvia) to the evidence section.
 - I guess we'll be finding out what they really mean by *Silvia* very soon.
 
+## Scaly skin around my vagina
+
+- This was perhaps the only thing I ever noticed which pointed to sexual activity happening without my knowledge.
+- The skin around my vagina - at the bottom mainly - had become taught and scaly.
+- It felt unusual and a little unpleasant and I did not understand it.
+- In September 2026, I realize I *still* need a medical examination of the whole area.
+
 ## Suspected targets
 
 - I saw a lot of minors on fake X accounts this month, many more than previously. 
