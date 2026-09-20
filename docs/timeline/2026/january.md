@@ -337,7 +337,7 @@ function googleTranslateElementInit() {
 ## Dorset, another CIA hang out
 
 - I think surgery must have taken place here.
-- I wonder if Andrew and his wife were told exactly the nature of it, i.e. what the Americans were doing, their full intentions, or whether they were just told some random lie about health checkup.
+- I wonder if Andrew and his wife were told exactly the nature of it, i.e. what the Americans were doing, their full intentions, their Mengele business, or whether they were just told some random lie about health checkup.
 - I felt unusual, and I thought I was being scanned medically in the night.
 - There seemed to be something set up in the room below which they didn't want me to know about - and I thought they must be scanning me while I was unconscious.
 - I felt unwell, high - painkillers again?
