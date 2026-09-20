@@ -11,6 +11,7 @@ function googleTranslateElementInit() {
 ## A "date" in Barcelona
 
 - They got one of the Fitkoh staff, a Northern Irishman, to tell me - by shouting it from the bar with his back to me when I was sitting behind him - "you had a "date" in Barcelona".
+- Earlier, he'd told me, without context, *you're a dark horse*.
 - I guess it meant yet another sedated rape event I'm only now aware of having occurred, except there were probably hundreds!
 - At the time, I was wondering when they meant.
 - I was up and down to Barcelona so many times between 2005-2016 when I lived in Dénia and Madrid.
