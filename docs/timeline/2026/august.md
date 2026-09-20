@@ -132,6 +132,24 @@ function googleTranslateElementInit() {
 - How could Topheth expand to all four corners of the earth?
 - Answer: when Caesar normalizes sacrificing children, the unwise amongst his subjects will follow suit.
 
+## *Where are my friends, Father?*
+
+- I was devastated about the children. I still am. 
+- This was the day I bumped into Mrs Wasserman's sister in the lift - she certainly looked like her - at the YMCA and the whole place was heaving.
+- And then Paul Gebheim from Polygon had been at the YMCA that day too! Which I didn't connect to the children at all. I can't imagine why they wheeled him out.
+- Anyway, it felt like I was not going to be able to carry all this. It was too much now.
+- Everything else that's happened to me feels like nothing compared to this.
+- I felt utterly friendless.
+- I had already lost everything and everyone, and the tiniest faith I had in people was just ripped away in an instant.
+- I was devastated, and in bed, it was early, and I cried out to God from my heart, *where are my friends, Father?*.
+- And something happened.
+- It was like a warm tingling glow inside me, and I could practically see the Light of it.
+- It was love, and kindness, and I knew it was God.
+- It went on a while actually, just tingling all inside and a little bit in my arms, legs, and neck but mostly inside my torso, and then I fell asleep.
+- God woke me up again at about 3.30am with an invitation to visit him, so I went that night.
+- And I cried again, and I felt loved and cared for, and that everything is going to be well.
+- It may have been 10th Elul, but I'm not sure, I can't do everything.
+
 ## Call social security
 
 - I recommend that all offspring are located and brought by respective social security organizations to a safe environment as soon as is reasonably possible.
@@ -186,13 +204,8 @@ function googleTranslateElementInit() {
 ## Dear gypsy friends and devotees
 
 - Do you remember that book you promoted about 15 years ago which made millions of stupid women in the West believe sexual violence was a good thing?
-- Yeah, that one.
-- Well, it's time to make amends.
-- <3
-- I love you.
-- Wait till I get the updates into Amazon.. they're blocking me a little now... and then we're good to go. 
-- Feel free to send out the website to the world too.
-- Together, we can DO THIS!
+- I'm so sorry, I bet this was the Americans again wasn't it. Can you forgive my naivety?
+- Deleting the rest of this section - please see commit history for the original.
 
 ## A new project
 
