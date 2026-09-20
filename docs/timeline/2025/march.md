@@ -284,6 +284,14 @@ function googleTranslateElementInit() {
 - Did my brother insist she throw it away?
 - Was he getting conflicting instructions which he was unable to not follow?
 
+### Egg extraction at the Theatron
+
+- I have to be open to the possibility that this happened here, although I don't have any proof of it apart from it had *already* happened in Bali the year before, and was going to become a free for all by 2026.
+- I did see the man from the Theatron the same day I saw Paul Gebheim at the YMCA in August 2026 just as I was realizing the extent of the seemingly limitless evil I have been surrounded by for so long.
+- But I never know what these things mean, cos I'm no spy, so whether it was confirmation that *yes, this happened*, or *no, this didn't happen*, I'm not sure about now and initially thought no, it couldn't have.
+- I don't think it matters. I'm certain I have friends now.
+- Did Esther get one?
+
 ### Bach's Christmas Oratorio
 
 - The Jerusalem Baroque Orchestra played at the YMCA in Jerusalem the week I was there.

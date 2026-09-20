@@ -167,10 +167,44 @@ function googleTranslateElementInit() {
 - I didn't notice the surprise, but it was there.
 - He repeats this a lot over the next few days.
 
+## Luton Airport
+
+- I'm flying to Israel.
+- A man meets me in the queue to check in.
+- He's obviously a bit *IDF* and I'm not surprised to see him given that Antonio has just gone been rescued and taken to Israel - at least, this is what I thought at the time you see because that is what they were telling me.
+- So we had a chat in the queue, and then when I got through security he was waiting for me on the other side.
+- He says let's go for a coffee.
+- So we do, in Pret, air side.
+- The man gets the coffees and there's (magically) two seats empty in the seating area - place was heaving.
+- We sit opposite each other.
+- I notice the agent sitting to my right immediately and decide he's American - the way he looks and is dressed.
+- The man starts telling me about this "friend" of his who he's been talking to, and a book he had recommended to him.
+- He pulls this book out of his bag; it's in Hebrew; I thumb through and can't read anything and don't really know why he's shown me this. So I give it to him back.
+- He then says that the friend was doing LSD, or something, and kept going on about a woman.
+- And I realize he's talking about Antonio, and me, and I get scared.
+- Because, this is still when I don't know that there were 8 men I had mistaken for one man - I still think there's only one man.
+- So the one man who is my friend is always mixed up in my mind with the seven men who brutalized me regularly in my home.
+- So I'm getting scared.
+- And the man can see I'm getting a bit disassociated and I'm thinking.
+- I have this feeling of panic rising.
+- And I think, no, this is no good, stop this, and so I start to pray in my mind.
+- And I pray my lesson of the week: *I call upon God's name and on my own*.
+- And I calm down, immediately, and come to senses.
+- And I'm back to normal and I ask the man his name.
+- He's called Solomon, and I liked him very much.
+- And I have zero idea what any of this means!
+- It makes a lot of sense in September 2026 time of writing because they were lying to me about everything, but Solomon didn't lie.
+
 ## Israel module 3 with Steve
 
 - Mrs Wasserman is unable to attend so I am managing the sessions on my own, and calling out the timings.
 - It went well, and the attendees were very kind and said lovely things to me, and I even got a thank you card <3
+
+### Steve is concerned about my trip over
+
+- I tell Steve I met some really cool people on my trip over from London without going into details.
+- I'd got on with the people sat next to me too.
+- He gets concerned and starts saying: *who were they, what did they want*, but actually he's not really interested because he doesn't wait for me to answer him :)!
 
 ### My timings are like ATC
 

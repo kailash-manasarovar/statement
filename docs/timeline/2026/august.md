@@ -98,20 +98,19 @@ function googleTranslateElementInit() {
 
 ![A lion and her cubs](../../content/images/a-lion-and-her-cubs.png)
 
-## On the plus side, my love
+## On the plus side, my love - getting it wrong again
 
 - Given the mousses' utter horror with what God sent; us detestable, loathsome, bothersome people...
 - Me with the multiple and ever growing examples of their scheming, muck-raking, and shamefulness that I have detailed in this police statement.
 - And you with your one, giant, cataclysmic, tipping-the-earth-on-its-axis example.
 - They decided they would cancel God Himself.
-- The mousses brought you here, didn't they; probably in one of those UN helicopters with the two propellers they're so obsessed with.
-- And the mousses took sperm from you too, didn't they.
 - Because they do whatever they like while walking over everyone's backs like we're roads.
-- But, of course, all this means is that we have children, already!
+- But, of course, all this means is that we have children, already! 
+- I'm kinda sad we don't, except I still believe we have time for this.
 - And I believe it's three, just like my dreams and our prayers over my tortured mourning.
-- And yes, today I break forth into joyful shouting and cry aloud!
+- And yes, today I break forth into joyful shouting and cry aloud! No, just weeping actually.
 
-### And as for your heart, my love
+### And as for your heart, my love - this is true
 
 - Know that you and I agreed to all of this a long, long time ago, for someone we loved dearly, and for God.
 - So don't worry about the recent past *chipshop*.
@@ -149,6 +148,16 @@ function googleTranslateElementInit() {
 - God woke me up again at about 3.30am with an invitation to visit him, so I went that night.
 - And I cried again, and I felt loved and cared for, and that everything is going to be well.
 - It may have been 10th Elul, but I'm not sure, I can't do everything.
+
+## The tunnel
+
+- It's curious how many tunnels feature in this police statement.
+- There's one on the way back from the Kotel I walk through if I'm stopping at David's Tomb which I often do.
+- Well, there was quite some frantic activity in there after I started to write about egg-extraction.
+- Mrs Wasserman's nephew Alex walked by giving me those looks.
+- I smiled at him at the last minute and he seemed relieved.
+- And Esther (or an Esther lookalike) walked through and as she passed me she seemed to have something wrong with her head, it started shaking.
+- If she did get an egg in March 2025, it would have been soaked with pesticides so I am very concerned about any children arising from that time.
 
 ## Call social security
 
