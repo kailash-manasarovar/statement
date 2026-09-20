@@ -140,6 +140,13 @@ function googleTranslateElementInit() {
 - The message, "Ugly", I presume to be reference to being followed the previous summer in Lourdes and Cauterets, something [I already wrote about](https://fearandloathinginlasmarinas.com/timeline/2024/august/#followed-by-the-gypsy-in-france), and maybe posted about, we will see.
 - The poisoners will also add deadly substances to the food and drink I left in my car that I planned to consume in Cauterets.
 
+#### A baby already?
+
+- Is it possible a baby was nearly full term at this stage from eggs stolen the November previous?
+- Do they say to themselves: *let's try and kill her now we've got a child, and if she survives we'll take some more from her*?
+- Is that the cycle I was in?
+- Could they be stupid enough to poison and extract eggs at the same time and not expect any problems with the health of children coming from such an environment?
+
 ### Constant confirmation I'm being watched
 
 - Over these 10 days in Lourdes I see posts and account messages confirming I'm being watched, and very closely too.

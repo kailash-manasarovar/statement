@@ -19,6 +19,7 @@ function googleTranslateElementInit() {
 - We were racing around at the beginning of the day.
 - I'm wondering if she was told to slow down by someone who knew I had stitches in my groin region and had heard I was complaining about feeling pain.
 - This is the same stich which will snap and crunch at FitKoh in December after just a couple of paces jogging - I expect after another incision in the same place in Bangkok or Samui.
+- She also wanted to know what had been going on with me, and I told her, and she did not react normally - no shock or upset that I have suffered so many attacks and nobody has done a thing about it - so I'm pretty sure she's an agent.
 
 ### Haircut disaster on the same day
 
