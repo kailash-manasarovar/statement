@@ -1094,7 +1094,7 @@ function googleTranslateElementInit() {
 - Apart from [the bolus of faeces in my knickers](../2023/may.md#teb-with-robin) in May 2023, this was perhaps the only other obvious thing I ever noticed which pointed to sexual activity happening without my knowledge.
 - The skin around my vagina - at the bottom mainly - had become taught and scaly.
 - It felt unusual and a little unpleasant, itchy, and I did not understand it.
-- In September 2026, I realize I *still* need a medical examination of the whole area inside and out.
+- In September 2026, I realize I *still* need a medical examination of the whole area inside and out but given the block on healthcare I've been experiencing, this remains tricky.
 
 ## Suspected targets
 
