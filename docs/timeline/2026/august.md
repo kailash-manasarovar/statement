@@ -136,6 +136,7 @@ function googleTranslateElementInit() {
 - I was devastated about the children. I still am. 
 - This was the day I bumped into Mrs Wasserman's sister in the lift - she certainly looked like her - at the YMCA and the whole place was heaving.
 - And then Paul Gebheim from Polygon had been at the YMCA that day too! Which I didn't connect to the children at all. I can't imagine why they wheeled him out.
+- The place was heaving, and then once God really got going they all disappeared!
 - Anyway, it felt like I was not going to be able to carry all this. It was too much now.
 - Everything else that's happened to me feels like nothing compared to this.
 - I felt utterly friendless.
