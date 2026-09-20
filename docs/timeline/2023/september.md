@@ -993,6 +993,9 @@ function googleTranslateElementInit() {
 - In December, she *meaningfully* gives me her mobile phone number.
 - [I write to her about everything](../2024/january.md#january-18th-correspondence-to-katia) in January.
 - She does not reply apart from making a weird comment to me the next time I see her at class; *oh you're very good*, she says.
+- I have to assume from comments like these that everyone at the conservatory and in the town had been told I was aware I was a CIA spy, and I was not.
+- Another curious thing is when she said *Romeo and Juliet* with regards to my situation and I had no idea what she was talking about. To drop myself in it even further, however, I started singing and playing *America* from the musical and they all frowned at me. I couldn't understand it!
+- Amazing!
 
 ### Nacho tries to terrorize me
 
