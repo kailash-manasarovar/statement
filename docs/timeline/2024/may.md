@@ -759,7 +759,7 @@ function googleTranslateElementInit() {
 - It's the Project Manager Paul Gebheim.
 - We chat about work.
 - I will see Paul Gebheim in Jerusalem outside the YMCA where I was staying in August 2026 just as God is telling me everything at the Kotel every day.
-- This is the day the whole place is heaving with people, some of who look like Mrs Wasserman - I'm sure I bumped into Mrs Wasserman in the lift that day.
+- This is the day the whole place is heaving with people, some of who look like Mrs Wasserman - I'm sure I bumped into Mrs Wasserman's sister in the lift that day.
 - I'm not keeping detailed notes on what happened when, but the place just rammed up with them after I started realizing I'd been sedated for surgery too.
 
 ### People telling me they're leaving, some promotions
