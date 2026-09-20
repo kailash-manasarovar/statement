@@ -1091,10 +1091,10 @@ function googleTranslateElementInit() {
 
 ## Scaly skin around my vagina
 
-- This was perhaps the only thing I ever noticed which pointed to sexual activity happening without my knowledge.
+- Apart from [the bolus of faeces in my knickers](../2023/may.md#teb-with-robin) in May 2023, this was perhaps the only other obvious thing I ever noticed which pointed to sexual activity happening without my knowledge.
 - The skin around my vagina - at the bottom mainly - had become taught and scaly.
-- It felt unusual and a little unpleasant and I did not understand it.
-- In September 2026, I realize I *still* need a medical examination of the whole area.
+- It felt unusual and a little unpleasant, itchy, and I did not understand it.
+- In September 2026, I realize I *still* need a medical examination of the whole area inside and out.
 
 ## Suspected targets
 
