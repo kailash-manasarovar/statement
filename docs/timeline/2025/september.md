@@ -72,6 +72,15 @@ function googleTranslateElementInit() {
 - When there is no reasoning with arrogance and evil, what can you do?
 - Maybe just supply the means for healing and make them available, and leave the rest to God.
 
+### Morya wants me to hold Ruth
+
+- She's very keen I hold Ruth, I'm delighted to, I love babies.
+- Except, my feelings aren't normal as I hold her.
+- I feel emptiness, desolation.
+- It's strange. I note it.
+- Morya says: *she likes you*.
+- I think Ruth came from one of my eggs they stole in Bali while I was being mass raped.
+
 ## The Red Lion in High Barnet with dad
 
 - Since I got back in February, dad insisted we went regularly to the Red Lion in High Barnet for the carvery.

@@ -462,6 +462,19 @@ function googleTranslateElementInit() {
 - Dad said: *yes, you should get a pup*!
 - Nice man.
 
+### Ruth
+
+- I believe today (20th September 2026) that the baby Ruth came from my egg.
+- This means, I was suffering egg-extractions way longer than I had considered.
+- In fact, this means, in my view, that at the same time I was being sedated and raped by my colleagues and managers and Elon Musk and his mates in Bali, they were also performing clandestine surgeries on me to extract eggs.
+- Ruth was a very quiet baby; *too quiet*, Steve said.
+- He even went as far as to suggest mental retardation due to her quietness.
+- It is my view, that any tissue removed from my person while I was sedated for a week would have remnants, if not a lot of sedating drugs in it.
+- It is my view, all the babies created from my eggs while I was being poisoned will suffer some adverse affects.
+- One of them, born from an egg extracted while I was being poisoned with digitalis, has a heart condition and his "parents" (from Alaska) insisted the surrogate (from Alaska) abort him. She didn't.
+- So not only am I concerned that any offspring of mine will necessarily be treated badly - as if they're non-human objects, trophies - I suspect they're all sick too.
+- Correct me if I'm wrong.
+
 ### Feeling sick on my return
 
 - I was unwell in Jerusalem for this trip; very constipated (I now know that's a mousse-technique to weaken people) and I was feeling nauseated a lot.
