@@ -755,6 +755,12 @@ function googleTranslateElementInit() {
 - It reminds me of another occasion at my apartment, back in 2001, when we'd had a bunch of "mates" around for drinks.. but this was just a couple of months [after Ugly in Amsterdam](../2001-to-2010/2001.md#amsterdam).
 - The next morning, when I woke up everyone had left before I got up, which in retrospect is very weird and implies guilt.
 - I wonder if you got some footage of that "date" too Ugly?
+- One man stays behind to talk to me, the restaurant is empty now.
+- It's the Project Manager Paul Gebheim.
+- We chat about work.
+- I will see Paul Gebheim in Jerusalem outside the YMCA where I was staying in August 2026 just as God is telling me everything at the Kotel every day.
+- This is the day the whole place is heaving with people, some of who look like Mrs Wasserman - I'm sure I bumped into Mrs Wasserman in the lift that day.
+- I'm not keeping detailed notes on what happened when, but the place just rammed up with them after I started realizing I'd been sedated for surgery too.
 
 ### People telling me they're leaving, some promotions
 
