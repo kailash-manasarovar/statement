@@ -32,6 +32,7 @@ function googleTranslateElementInit() {
     - Thank you.
 
 - My trip to Kailash is attended by agents, as usual, and me.
+- At least one of these agents will be a surgeon, and one will be a nurse; for egg-extraction on my freshly dead body if they do manage to murder me which they don't.
 - They've got what they want from me now, and think they can replicate God through cells (which is utterly insane, let's hope they don't get the chance to find out to their detriment - *Miracles are everyone's right, but purification is necessary first.* remember?), and so they're going to give the poisoning a really good go this time.
 - That statement was written as the Truth was coming out and I realized there had been at least one sedated surgery in April 2026 in Dublin - hence the phrase about let's hope.. so far off the mark, but closing in.
 - They're not hiding much either; although they've all got their stories off pat, they're just too confident, too arrogant, too purposeful, and not like a normal group of random humans in any way at all.
