@@ -491,7 +491,8 @@ function googleTranslateElementInit() {
 ## Milan recommends fertility herbs
 
 - My brother's friend Milan, a Jain, is on the phone recommending fertility herbs. 
-- I think my brother asked me if Milan could talk to me, and I agreed and let him give Milan my number.
+- I haven't spoken with Milan since the 90s.
+- I think my brother said Milan wants to talk to me, and so I agreed and let him give Milan my number.
 - Milan was always a bit starstruck by me, and not a little bit weird with it, but he's also an analyst so I was keen to see if he'd like to help out with the forgivenet.
 - We chat on WhatsApp for a while and he very quickly launches into recommending a fertility product.
 - I'm immediately interested and I buy it online - CoQ10 (Coenzyme Q10) - because I'm being prepped, prodded, and signalled on pregnancy and fertility.
