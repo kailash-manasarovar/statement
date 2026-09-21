@@ -139,6 +139,17 @@ function googleTranslateElementInit() {
 - The taxi driver calls to tell me where to go to meet him, and it's not here.
 - The mousses are flirting with me, buttering me up.
 
+### Steve mentions the King
+
+- Steve, Robin, and I are having dinner at the hotel near the Avila centre.
+- I think Robin is probably one of the main intuitives; can you say *managing* intuitives? It's all so weird, anyway.
+- It's probably just a couple of days before the first course begins and maybe the first time I see them.
+- Steve announces that the King is visiting Trump next week and at that time he will step down, move to the Caribbean, and his son will become king in his place. 
+- I ask Steve where he heard this (nonsense, I don't say nonsense but my face and grin is saying it)? 
+- Steve seems a little surprised I haven't just accepted everything he just told me.
+- He mumbles AOL.. I know he's being fed BS online, but I'm a little curious as to how they trigger him to say it to me, is this a "formal" instruction, or manipulated?
+- How involved is Steve, I wonder. He sees and notices - see Kathleen Love's disappearance - but is he involved in the decision making or do they just control him like they clearly wanted to control me?
+
 ### Beckett Locke
 
 - An extraordinary place.
@@ -291,6 +302,17 @@ function googleTranslateElementInit() {
 
 - Then decided not to due to incoming attacks.
 
+### I want to murder Trump
+
+- I'm sitting with a group of them at tea on Friday 24th April.
+- One of them, Dennis, reminds me that [the very first man I ever met at Steve's things back in 2020 was called Dennis](../2011-to-2020/2020.md#transforming-touch).
+- A woman is speaking about Trump.
+- She says, forcefully, that she wants to murder him. And she means it too, it sounds like.
+- I was thinking, that's a bit strong.. I was shocked actually.. even more so because no-one else at the table disagreed with her and they're all supposed to be healers.
+- So I said something like, *wow, people are really divided contentiously aren't they* and went for a walk.
+- Then, the very next day, someone actually did try to kill him!
+- Do you think "assassins" might be part of the intuitive program too?
+
 ### A waitress keeps interrupting us
 
 - Steve and I go for a drink one evening; I think it's the evening before the last night of the first week's course.
@@ -306,11 +328,9 @@ function googleTranslateElementInit() {
 - I've had a couple of glasses of wine when I leave Steve.
 - He actually tells me to stop following him around as he walks away, which is a bit strange, but I think he's cross with me for wondering out loud if he and Yvonne aren't a little bit in love.
 - Although, now I realize Yvonne is probably an agent sent to annoy and frustrate him, to keep him on his toes.
-- In fact, she's probably working for [the ONLY Spymaster there is](august.md#god-is-the-spymaster) to make sure that nothing can really f**k things up, no matter how hard they try.
-- She is, after all, somehow related to my dad's mother's side of the family: *Margaret Murphy*.
-- She does something to him that makes him reveal to everyone a very ugly and oppressive side of himself; something I bore the brunt of in Israel one time too.
-- And then trying to get us together! Amazing. Someone's asleep at the wheel.
-- Anyway.
+- He'd been bullying Yvonne and Gerardine quite a lot already. I don't think Gerardine's a spy. You never know though.
+- Yvonne brings out an ugly and oppressive side of Steve, and so did Gerardine this course, something I too bore the brunt of in Israel in May 2025.
+- Perhaps women do it.
 - I walk back to CIA HQ, and it's about an hour's walk, and I feel like I have got my sense of direction back totally!
 - Since the poisoning in Dénia for brain-damaged porn-star requirements, I have had no sense of direction at all, I'm more clumsy than I've ever been, ... in fact I have a list of brain-damage symptoms which, as I was mentioning, if anyone gave the tiniest sh*t about - in law-enforcement terms for evidence and because being brain-damaged is no fun - would have got me analysed in detail and organized some healthcare, don't you think?
 - Instead, a random man at the beach does an impromptu test and never speaks to me again.
