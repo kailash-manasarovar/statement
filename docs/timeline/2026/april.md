@@ -159,8 +159,8 @@ function googleTranslateElementInit() {
 
 ### They're playing Ray of Light while I wait for the taxi
 
-- I'm waiting for the taxi at a cafe I've been told to wait at by Booking which has been tailoring everywhere I stay for some time.
-- They're playing Madonna's Ray of Light as I stand there; bonafide #GreatRay.
+- I'm waiting for the taxi at a cafe I've been told to wait at by Booking.com; a site which the mousses have been using to tailor everywhere I stay for some time, probably decades.
+- They're playing Madonna's *Ray of Light* as I stand there; a bonafide #GreatRay.
 - The taxi driver calls to tell me where to go to meet him, and it's not here.
 - The mousses are flirting with me, buttering me up.
 
