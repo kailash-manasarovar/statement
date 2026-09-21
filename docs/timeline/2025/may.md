@@ -453,6 +453,7 @@ function googleTranslateElementInit() {
 - She stops, then adds quickly that his wife is very nice too.
 - I say I'm sure she is.
 - And Mrs Wasserman weeps. 
+- I wonder if Mrs Wasserman realizes they've not been given the whole story by the CIA, or is it guilt when she realizes I'd be more than amenable to having whatever conversation about my eggs they've been implying all day every day.
 - I read all this as "when the criminal investigation is over", and everyone can speak plainly, I might consider having babies and perhaps Jonathan could be a sperm donor, and I was not at all against the idea.
 - All of this was hints and suggestions, and was surprising enough that I really didn't fully understand it, so I just watched.
 - Had they already got a viable pregnancy going from one of my eggs they extracted in Dublin at the Anantara?
