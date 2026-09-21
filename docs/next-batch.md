@@ -1,11 +1,5 @@
 # Next Batch
 
-### June 2026
-
-1. I notice multiple little scratches on the skin around the area of my left kidney, as if a little gnat had been biting away at me, but only there and nowhere else.
-
-
-
 ### July 2026
 
 1. Suggestion I was flirting with the monk!! omg. really. big eye roll there..
