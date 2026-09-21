@@ -481,7 +481,7 @@ function googleTranslateElementInit() {
 
 ## Feeling sick on my return
 
-- I was unwell in Jerusalem for this trip; very constipated (I now know that's a mousse-technique to weaken people) and I was feeling nauseated a lot.
+- I was unwell in Jerusalem for this trip; very constipated (I now know that's a mousse-technique to weaken people and my team has the laxative herbs sprayed with Immodium in July 2026 to prove it) and I was feeling nauseated a lot.
 - Fortunately, I discovered the juice bar.
 - Steve was unwell too and had bad diarrhea one night.
 - When I get home, I'm still feeling unwell and I throw up in the street in Muswell Hill one morning.
