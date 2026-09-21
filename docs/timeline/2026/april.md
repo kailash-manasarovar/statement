@@ -209,11 +209,12 @@ function googleTranslateElementInit() {
 
 ### I see an IRA man
 
-- One morning on my way to the Avila centre, there's a big crowd of Americans in front of me and they're all going on about how they have a meeting with *Ira* and I'm thinking, what now..
+- On a peaceful walk one morning on my way to the Avila centre, not many people around, there's suddenly a big crowd of Americans in front of me and they're all going on about how they have a meeting with *Ira* and I'm thinking, what now..
 - A little later, I see an agent I'm familiar with and he's standing a bit away from a man with extremely shiny shoes who has his back to me initially but then turns around to look as I walk past him.
 - I'm so amazed at how shiny this man's shoes are, I don't see the man's face but I saw his grey, longish, curly-coiffed hair.
 - I've no idea what this is all about.
 - I only get the Ira name connection a good deal later.
+- I still have no idea why they would do such a thing; a more exaggerated distraction after sedated surgery due to the inherent guilt they must have been suffering without realizing it?
 
 ### Steve is having chemo, but doesn't have cancer
 
@@ -226,26 +227,24 @@ function googleTranslateElementInit() {
 
 ### Un oeuf est un oeuf
 
-- My little *oeuf*.
-- It's a girl.
+- My little *oeufs*.
 - This was a sort of meme that second week, or maybe both weeks.
 - Steve kept saying "enough is enough" in class, and I remembered the joke about only one egg for breakfast in France.
-- When I told him, while at the same time thinking about pregnancy, he looked so alarmed.
+- When I told him the joke, while at the same time thinking about pregnancy, he looked so alarmed.
 - He frowned and went silent for a long time.
-- He had looked similarly alarmed when he suggested I come live with him in Texas in the first week of the course, that I could have the room at the top of the stairs and I said, *is it the attic room*, as a joke (you know, mad woman lives in the attic, never comes down, controlled...) and he looked so alarmed that I had clearly declined.
+- He had looked similarly alarmed when he suggested I come live with him in Texas on the first day or the first course, that I could have the room at the top of the stairs and I said, *is it the attic room*, as a joke (you know, mad woman lives in the attic, never comes down, controlled...) and he looked so alarmed that I had clearly declined.
 - Is that why they decided to stop playing nice with me in the second week?
-- Is he the similarly unconsenting father?
-- Or is he 100% aware of the theft of my eggs and has in fact approved it and has been fielding requests from women who want to be mothers of my children?
+- Is he a consenting or unconsenting father?
+- Is he 100% aware of the theft of my eggs and has in fact approved it and has been fielding requests from women who want to be surrogate mothers of my children?
 - Is this why they put [hundreds of thousands into trying to get me and Steve together](../2025/september.md#weddings-at-the-church)?
 - They seemed to have some desire that I experience motherhood of my own children, but only one of them!
-- When a relationship was Steve was obviously not going to work for them, they kept on trying to set up new men sith whom I might be a parent for one of my "adopted" children. 
-- Is my little oeuf destined for a life as a lab rat?
+- When a relationship was Steve was obviously not going to work for them, they kept on trying to set up me up with men with whom I might be a parent for one of my "adopted" children (see Marc at Lourdes, Mani and Randy in Tibet, and others). 
+- Are my little oeufs destined for life as lab rats?
 - I'm going to pray it's not so but look at how they treat Steve!
 - This is so hard.
 - Thousands may have raped me but this, if true, is infinitely more violating.
-- I notice another possible entry point for pinhole surgery, and that appeared back in November in Bangkok.
-- Is this the real reason behind the endless distraction and lies, just letting me wander around, maybe crash the car, zero concern for my health and safety and wellbeing, just to keep me busy while they get what they want?
-- And then I can be discarded.
+- I notice another possible entry point for pinhole surgery that appeared back in November in Bangkok on my left groin region.
+- Is this the real reason behind the endless distraction and lies, just letting me wander around, maybe crash the car - they can steal *all* the eggs from a body about to die, see [Italian roads in February](february.md#dangerous-driving-in-italy) - zero concern for my health and safety and wellbeing, just to keep me busy while they get what they want?
 
 ### She reminds me of my mother
 
@@ -255,6 +254,7 @@ function googleTranslateElementInit() {
 - He answered that the seagull had been following him around in Dublin in a park, and the bird had reminded him of his mother.
 - I was amazed to remember this, and thought about [the tears from March 2023](../2023/march.md#dreaming-of-the-trumpet-teacher) and wondered if I'd channeled the man's mother at that moment...
 - And then later, I remembered my mother always told me she wants to be a seagull when she comes back, and I always had this feeling she'd be at the window ledge at my house looking for food, and following me around, and pooing everywhere. It was a bit of a joke between us.
+- And in September 2026, I realize that all the thoughts and ideas that convinced the oppressors they were winning and I knew nothing were put in my mind by God.
 
 ### Steve shares his past a little
 
