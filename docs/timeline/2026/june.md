@@ -75,6 +75,7 @@ function googleTranslateElementInit() {
 #### Jyotir, Vilde, the Norwegian, my room mate
 
 - Another agent.
+- I only noticed her name is an anagram of *devil* later :)
 - She let me speak fairly freely about my experiences - until I started talking about the baby-rape pornographers drugging children in schools in Spain, then she told me to stop speaking, it was too much, like so many of the people around me do (I think this behavior is an agent symptom because no-one normal does that and I experience it *all the time*).
 - I was formally keeping quiet about my knowledge of the spies at that stage (not on X or other social media) and I just mentioned law-enforcement agencies like the FBI, Interpol, etc., when she asked me, directly, who I thought my security team was that was following me around all the time.
 - So I never said what I really thought.
@@ -122,14 +123,15 @@ function googleTranslateElementInit() {
 
 - A man who teaches small aircraft flying, had had a crash with a student the year before, and lives in Corsica.
 
-#### My suspicion
+#### My suspicions
 
-- My guess is that they all knew what was going to happen, two of them did it (probably the Russian and the American women) and the rest were independent witnesses of my survival from multiple jurisdictions.
+- My guess is that they all knew what was going to happen, two of them did it (probably the Russian and the American women), two of them were ready to perform surgery if I died perhaps the Germans or the Indians maybe, Henry was the scapegoat, Randy was Elon's spy, Mani was the love interest tasked with getting me in a relationship and adopting one of my own babies, and Vilde was PM; everyone being an independent witness of my survival if I was to survive and they came from multiple jurisdictions, which I suppose is good in a way because there'll be a lot of corroboration when the world finds out what people are *really* like.
 
 ### Antonio at a temple
 
 - I see a man who reminds me of Antonio at one of the temples we visit.
 - They're messing with me.
+- I tell Vilde this, and she tells everyone what I said.
 
 ### Everest Base Camp and sickness
 
@@ -160,7 +162,8 @@ function googleTranslateElementInit() {
 - I haven't eaten for days and eventually lose about 3-5kg. The guide insists the woman makes me breakfast in the morning before they come and get me and she does, and it's like nectar from heaven itself.
 - When the others pick me up, I get on the bus saying, *back from the dead, again*, which I liked because I knew they know I know they know... etc. yawn, but you gotta play their game... 
 - I don't feel I missed out on anything, I spent a good few days at the holy feet of God Himself recovering from a deadly poison attempt, so I think it's probably essential I return as much as possible and perhaps friendly nice people who haven't been instructed to murder me might come with me.
-- In any event, the chest infection started to remind me of [being smothered with pillows and my duvet at my home on 13th March 2024 - I was triggered to remember a murder attempt](../2024/march/13-end.md#the-pillow-game) (and another one too, I believe..) and I realize that my legs must have been free while that was happening and I tried to free myself from being suffocated under the weight being pushed down on me... for sure Maria hontanilla was there... Bruno's younger brother, probably Gloria... Paqui I think must have been there, another man or two to apply the weight to my face so I couldn't breathe ... while my legs went around and around trying to get free, and they all laughed at me, all these memories came back with the chest infection at Kailash.
+- In any event, the chest infection started to remind me of [being smothered with pillows and my duvet at my home on 13th March 2024 - I was triggered to remember another murder attempt](../2024/march/13-end.md#the-pillow-game) - and I realize that my legs must have been free while that was happening and I tried to free myself from being suffocated under the weight being pushed down on me... for sure Maria hontanilla was there... Bruno's younger brother, probably Gloria... Paqui I think must have been there, another man or two to apply the weight to my face so I couldn't breathe ... while my legs went around and around trying to get free, and they all laughed at me, and I think this is where my face getting all twisted up comes during healings and at savasana at Loka Yoga one time too (so it'll be on video).
+- All these memories came back with the chest infection at Kailash.
 
 ![Kailash](../../content/images/kailash.jpg)
 
