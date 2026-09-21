@@ -12,14 +12,18 @@ function googleTranslateElementInit() {
 
 - I'm starting to realize that being homeless, not being able to settle and work because of sedated rape-porn stardom, not having any support at all from anyone, and finding out exactly how much my family and the porn-loving world itself despises me, and for how long, is unsurprisingly taking a toll on my health and wellbeing.
 - (UPDATE: I haven't been this healthy in years since being by the mountain. FACTS!!!)
-- You'd think that mass stalking by security services might prompt them to help me out.
+- I think I wrote the first line when I got to Bali and started writing again after the events in China which included being poisoned by something so toxic, they all thought I was going to die.
+- I am starting to get really suspicious.
+- You'd think that mass stalking by security services might have prompted them to help me out.
 - But no, and this is getting weird now.
 - What are their intentions?
+- It's inexplicable to me.
 - Being allowed to roam relatively freely in the world means anyone can have a pop at murdering me, or other sinister activities they may think justifiable given my inability to die from poisoning.
 - It seems to me that given the amount of times I have survived poisoning now, seven I'm told but I think it's more, criminal gangs and international security services feel like trying to kill me by poison is a valid *challenge*.
 - Well, just STOP IT. I'm not asking.
 - They don't listen.
 - They think they know how to trick me with playing games around who I trust and who, they think, I don't trust.
+- Oh and my view is that regardless if a person survives a murder attempt, the crime has been done and there should be repercussions, especially considering they're STILL at it in Cauterets in September 2026.
 
 ### Kailash team - who dun it
 
@@ -29,9 +33,10 @@ function googleTranslateElementInit() {
 
 - My trip to Kailash is attended by agents, as usual, and me.
 - They've got what they want from me now, and think they can replicate God through cells (which is utterly insane, let's hope they don't get the chance to find out to their detriment - *Miracles are everyone's right, but purification is necessary first.* remember?), and so they're going to give the poisoning a really good go this time.
+- That statement was written as the Truth was coming out and I realized there had been at least one sedated surgery in April 2026 in Dublin - hence the phrase about let's hope.. so far off the mark, but closing in.
 - They're not hiding much either; although they've all got their stories off pat, they're just too confident, too arrogant, too purposeful, and not like a normal group of random humans in any way at all.
 - But who done it?
-- The group is extraordinarily unusual, loud, over-the-top, distracting - like agents are often taught to be - and tailored for me personally in many ways.
+- The group is extraordinarily unusual, loud, over-the-top, chaotic, distracting - like agents are often taught to be - and tailored for me personally in many ways.
 
 #### Henry
 
@@ -106,23 +111,35 @@ function googleTranslateElementInit() {
 
 #### The Indians
 
-- wip
+- Ganesh and his wife.
 
 #### The Germans 
 
-- wip
+- Another couple.
 
 #### The Frenchman
 
-- wip
+- A man who teaches small aircraft flying, had had a crash with a student the year before, and lives in Corsica.
+
+#### My suspicion
+
+- My guess is that they all knew what was going to happen, two of them did it (probably the Russian and the American women) and the rest were independent witnesses of my survival from multiple jurisdictions.
+
+### Antonio at a temple
+
+- I see a man who reminds me of Antonio at one of the temples we visit.
+- They're messing with me.
 
 ### Everest Base Camp and sickness
 
 - A sudden death at Everest Base Camp would be a good place to get rid of someone without question, I expect, and I wonder about how ill I got there.
 - I started feeling unwell on the journey up to Everest Base Camp from Shigatse.
-- My rib was playing up - weakened by continued drugging and poisoning over many years in Spain - and worsening every time I lifted my bag - it had re-opened during a yoga class just a week before which felt so totally unlucky to me.
+- Something happened at the bus stop also where we were split up - the guide walking off with everyone's passports - and I was left with Henry, and Randy was there for a short time, and it was not at all clear where everyone else was at that moment.
+- My rib had been playing up and worsened every time I lifted my bag.
+- I had a hairline fracture from when I was in my twenties which I believe was weakened by repeated sedated-rape over many years in Spain.
+- It had re-opened during a yoga class just a week before I left for China, which felt so totally unlucky to me, but I realize was likely due to whatever criminal surgeon had removed an egg from me in April 2026 deciding to rape me too, and leaning on me to do so - the same thing happening in Bali.
 - At Everest, I was really unwell and I thought I had Acute Mountain Sickness.
-- Except my oxygen levels were always ok!!! About 85%... or more.
+- Except my oxygen levels were always ok!!! Up at 85%... or more. Randy checked.
 - My heart rate however was 130 and I was getting a chest infection but the worse thing of all was the elevated eye pressure, it must have been heading towards 30 ... I couldn't see at all.
 - I thought this must be the sudden-blindness glaucoma signs the ophthalmologist in Bangkok warned me about... every light had a slither moon halo impossible to look at it was so bright.
 - My eyes took days to recover.
@@ -137,7 +154,7 @@ function googleTranslateElementInit() {
 - My nervous system was shot to pieces also, everyone was shouting at each other, and I couldn't sit up without having to lie back down again.
 - Vilde comes into our room fussing and carrying on, packing my stuff, *we have to leave we have to leave* (the group is moving hotels for one night) and I'm saying no, the management told me I could stay, and she's getting really quite interestingly harsh with me (which made my eyebrows raise a bit) and I'm saying no, and she's packing my stuff up...
 - And eventually I realize I have to sort this out, so I go down and organize one extra night by myself at this hotel and the others go elsewhere.
-- So I stay, they all go, and the MINUTE I'm alone, I have MASSIVE diarrhea which was backing up since the day I took the biscuits or before. MASSIVE.
+- So I stay, they all go, and the MINUTE I'm alone, I have MASSIVE diarrhea which was backing up since the day I got sick, or before. MASSIVE.
 - It's such a relief.
 - I haven't eaten for and eventually lose about 3-5kg. The guide insists the woman makes me breakfast in the morning before they come and get me and she does, and it's like nectar from heaven itself.
 - I don't feel I missed out on anything, I spent a good few days at the holy feet of God Himself recovering from a deadly poison attempt, so I think it's probably essential I return as much as possible and perhaps friendly nice people who haven't been instructed to murder me might come with me.

@@ -3,11 +3,10 @@
 ### June 2026
 
 1. I notice multiple little scratches on the skin around the area of my left kidney, as if a little gnat had been biting away at me, but only there and nowhere else.
-1. Who dun it? A couple of them probably. The rest were independent witnesses from multiple jurisdictions.
 1. Booking Yoka Loka and another course (can we check if the other course is yet another American torture chamber)?
 1. Why is my stuff about Yvonne and Mike and all the agents at the Holiday Inn disappearing? And how Mike had been toying actually with a red iphone just like mine when I was speaking with Yvonne. Yeah, this was so weird. Mike was taking the piss with my phone and Yvonne seemed to know I would not be able to return to the hotel in 10 years. And how Yvonne had disappeared (in a very weird way) about three or four days before, and eventually I had mentioned online "where did Yvonne go", and then she reappeared the next day. I was happy to see her, cos it was weird the way she disappeared - she put her sunbed right up to mine like it was a double bed! And then just walked off, never came back, ghosted me! I just want to say to tell Yvonne we WILL see each other again at the Holiday Inn in ten years.. she seemed sad when I suggested it as if it couldn't possibly happen. Did she know they intended to bump me off - or perhaps lobotomise me or something awful - at Loka Yoga? Were they there for the end-of-line egg sale? I did mention to Yvonne, a Swedish woman, that Yvonne was not a particularly Swedish name... she mumbled nothing about it. And how the week before Loka Yoga, when I'm at the pool, one of them says beside me as if to someone else, *we've got to get you ready for next week*... actually it was relentless at the Holiday Inn Nusa Dua... even without the Elon business. I had to tell them off from time to time, and they laughed and appreciated it, and on my last day we all did water aerobics together :) and I remembered water aerobics in Belfast :( and seeing my cousin outside.
 1. Wart.
-1. Booking the other YTT - more mousses? Please check.
+
 
 ### July 2026
 
@@ -28,6 +27,7 @@
 
 ### August 2026
 
+1. Oeuf, the TV, TT's daughter.
 1. In Dubai after a month of swimming a km to a mile every day or every two days at the YMCA in Jerusalem, the groin injury - it is inner groin - is paining me during the night. It's something to do with the mattress which puts my rump/hips/groin in a lower position than my legs. I swim breaststroke and so kick out a lot and noticed the groin injury complaining a bit while swimming but it doesn't make sense unless it is structural, a caused injury, broken sutures, something surgical gone wrong and reopened again and again.
 1. And who was the woman at departures? I got jealous and remembered how awful that all was and started thinking of a cave or the nunnery again... was she Brunhilda? Isaiah 57. A nest indeed. Gosh, this is gonna be such a cool parallel plot line.
 1. In Jerusalem I visit the Wall every day, it's like visiting God Himself. Some days I visit David's tomb too - these are often the days when I feel like I'm on the battlefield and need some spiritual-warrior strength. I'm very conscious of the bloodline to Jesus but I'm not interested in the Christian sites so much.
