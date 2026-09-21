@@ -496,9 +496,11 @@ function googleTranslateElementInit() {
 - We chat on WhatsApp for a while and he very quickly launches into recommending a fertility product.
 - I'm immediately interested and I buy it online - CoQ10 (Coenzyme Q10) - because I'm being prepped, prodded, and signalled on pregnancy and fertility.
 - Was Milan instructed to recommend this to me because of the multiple planned egg-extraction surgeries coming up?
-- I buy some and take them probably from April/May 2025 through to the end of the year when I stop having anywhere to keep any unnecessary personal belongings, or edible items which might not be tampered with.
+- I buy some and take them from July 2025 through to the end of the year when I stop having anywhere to keep any unnecessary personal belongings, or edible items which might not be tampered with.
 - In fact, that's about all Milan has to say to me.
 - I tell him about the forgivenet and he's disinterested, changes the subject.
+- We don't talk about anything else.
 - I find it weird.
+- Then he starts to get really weird with me; chatting me up and being offensive with it.
 - Eventually he gets so weird with me I have to block him.
 - I start wondering if Milan is a mousse spy sent to keep an eye on Robert all those years ago, and given instructions to tell me about the fertility product.
