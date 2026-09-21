@@ -221,7 +221,7 @@ function googleTranslateElementInit() {
 
 ## I am Rohini
 
-- And then came Rohini!
+- And then came Rohini, to lure Elon into thinking he was safe again.
 - Part of the story in the series I've been watching since March 2023, Sankat Mochan Mahabali Hanuman.
 - And my mind started to change a little.
 - Perhaps it's not all hopeless.
@@ -283,19 +283,29 @@ function googleTranslateElementInit() {
 - There's a film I want to see but I'm reluctant because I have the feeling I might weep all the way through...
 - Maybe I need that, though.
 
+## Holiday Inn Nusa Dua
+
+- I spent three weeks here before going to another part of Bali for the [Loka Yoga YTT cum CIA-torture course](july.md#loka-yoga).
+- The hotel was *packed* with agents, Americans, Australians, Brits, Indians, Israelis (pretend ones probably), my lovely Turkish friends.
+- I was wondering if they were going to run out of agents.
+- Unlike previously, they started interacting with me *in real life*, instead of just confirming things online later on.
+- I did start seeing faces I've seen before, and I'm certain some of the faces on the beach turned up at the yoga course too.
+- Some of them got a bit excited at times - the Americans/Brits - and I had to tell them to stop fannying around, which was funny, everyone laughed.
+
 ### Beautiful things every day
 
 - Yesterday I saw the sweetest little girl. She was in her swimming costume, swimming hat, and had her rubber ring on.
 - She was holding her mummy's hand as they went to the pool.
 - As I passed her she exclaimed, "Look, I am going swimming now!".
 - She made my whole day.
-- Let's have an amazing day today good people.
-- Let all evil people find their way quickly, very quickly, swiftly even, to justice and redemption and the saving of the world.
+- Let's have an amazing day today good people - see, I started to speak with the agents on here too.
+- Let all evil people find their way quickly, very quickly, swiftly even, to justice and redemption and the saving of the world - who knew it was going to be many of those at the Holiday Inn too!
 
-## Quoting Don Juan every morning
+### Quoting Don Juan every morning
 
 - Every morning, I quote Don Juan from Castaneda..
 - *If it farts, it lives,* he famously said as Carlos came back from a wild datura experience or similar.
+- (I was really playing up...)
 - And I am most grateful.
 - I adjust a little too.
 - I say, if it's fat, it lives, as my appetite returns.
@@ -304,32 +314,25 @@ function googleTranslateElementInit() {
 - Who thinks I'm here because some awful memory is about to return?
 - Is anyone gonna do anything now? Or is this what women and girls and boys and babies can expect until Mother Nature whoops our arses?
 
-## Bali
-
-### Holiday Inn
-
-- The hotel was *packed* with agents, Americans, Australians, Brits, Indians, Israelis (pretend ones probably), my lovely Turkish friends.
-- I was wondering if they were going to run out of agents.
-- I did start seeing faces I've seen before, and I'm certain some of the faces on the beach turned up the following week for yoga too.
-- Some of them got a bit excited at times - the Americans/Brits - and I had to tell them to stop fannying around, which was funny, everyone laughed.
-
 ### The staff adore me
 
 - From the very first day the staff were exceptional towards me.
 - I had put my *Dr.* status on Booking.com some time before, so they all thought I was a medical doctor.
 - Every time I went to breakfast, or lunch, or dinner, or to the pool, or to fitness classes, they all would exclaim *Dr Katharine!* in a celebratory manner as I walked in.
 - It was a bit disconcerting at first, but then I started to like it, a lot.
-- I was famous in the hotel amongst the staff and I knew them all by name.
+- I ended up famous in the hotel amongst the staff and I knew them all by name.
+- They were lovely.
 - And then, the mousses must have not liked this very much, or perhaps it worried them, because there were suddenly a few new staff who had been instructed to be rude to me, and it was so obvious and orthogonal to the true staff vibe I knew it was mousse activity immediately.
 - But why?
 - When I was telling my story at Loka Yoga (for the cameras, obviously) in the garden, I told them about this loving quirk of my three week stay at the Holiday Inn, Nusa Dua.
 - Honestly, the staff there treated me like their own family and I fell in love with a great deal of them.
-- I saw a surprised concern flash over Taryn's face when I was telling her about this, something her ear piece was telling her no doubt.
+- I saw a surprised concern flash over Taryn's face when I was telling her about this, doing an impression of their celebratory greetings they made every day I came to eat at the restaurant, something her ear piece was telling her no doubt.
 - They loved me there and it was reciprocal. 
 - I was famous!
 - I put the extremely good mood of the place, of me, and of the staff around me who knew me as *Dr. Katharine* down to even the agents getting into the vibe, just a little, they couldn't help it.
+- One of the staff told me I was *shining*, and I expect I was.
 
-### Elon is at the hotel
+### Elon visits the hotel
 
 - It's the full moon, less than a week before the [Loka Yoga spy razzmatazz](july.md#loka-yoga).
 - The agents are getting excited.
