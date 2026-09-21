@@ -153,6 +153,9 @@ function googleTranslateElementInit() {
 - I'm amazed.
 - And also just like Richard, there's a whole contrived back story him and the man walking beside him are going through.
 - Is it another attempt at convincing me that someone is interested in stopping the mass sedation and sexual assault of women and children for porn?
+- They literally have a database of all the set ups they've done for my behalf over the years and they're going through them.
+- Did the man tell Olly to hide when he saw me, and to put on a weird Irish accent?
+- He'd have been sitting about seven rows back on the window seat on the right.
 
 ### They're playing Ray of Light while I wait for the taxi
 
