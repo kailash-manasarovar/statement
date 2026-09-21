@@ -278,11 +278,6 @@ function googleTranslateElementInit() {
 - As you might imagine.
 - I do not like it at all.
 
-### Disclosure Day
-
-- There's a film I want to see but I'm reluctant because I have the feeling I might weep all the way through...
-- Maybe I need that, though.
-
 ## Holiday Inn Nusa Dua
 
 - I spent three weeks here before going to another part of Bali for the [Loka Yoga YTT cum CIA-torture course](july.md#loka-yoga).
@@ -291,6 +286,25 @@ function googleTranslateElementInit() {
 - Unlike previously, they started interacting with me *in real life*, instead of just confirming things online later on.
 - I did start seeing faces I've seen before, and I'm certain some of the faces on the beach turned up at the yoga course too.
 - Some of them got a bit excited at times - the Americans/Brits - and I had to tell them to stop fannying around, which was funny, everyone laughed.
+
+### Disclosure Day
+
+- Randy is still communicating and he tells me about a film I have to see, Disclosure Day.
+- I read up on it.
+- It sounds like my life story, and there's even a woman in it called Margaret Murphy.
+- I tell him I'd like to go but I'm reluctant because I have the feeling I might weep all the way through.
+- He wants to know what I'm doing, where I'm going.
+- I tell him I'm booking yoga courses in Bali for the next couple of months.
+- I tell him about Loka Yoga and the other course I sign up for.
+- I wonder if we can get that course checked out to see if would have been another CIA torture chamber? 
+- Are the websites done by the same people: https://www.baliyogaschool.com/.
+
+### Ripping a wart out with my bare hands
+
+- I've had a wart on my nose since 2024.
+- I thought it was something the porn-gangs did to me while I was sedated.
+- I didn't realize it was just a wart until Kailash.
+- When I get to the Holiday Inn, Nusa Dua, I rip it out with my bare hands! Gently.
 
 ### Beautiful things every day
 
@@ -314,7 +328,7 @@ function googleTranslateElementInit() {
 - Who thinks I'm here because some awful memory is about to return?
 - Is anyone gonna do anything now? Or is this what women and girls and boys and babies can expect until Mother Nature whoops our arses?
 
-### The staff adore me
+### The hotel staff adore me
 
 - From the very first day the staff were exceptional towards me.
 - I had put my *Dr.* status on Booking.com some time before, so they all thought I was a medical doctor.
@@ -331,6 +345,29 @@ function googleTranslateElementInit() {
 - I was famous!
 - I put the extremely good mood of the place, of me, and of the staff around me who knew me as *Dr. Katharine* down to even the agents getting into the vibe, just a little, they couldn't help it.
 - One of the staff told me I was *shining*, and I expect I was.
+
+### Yvonne and Mike
+
+- Agents, everywhere.
+- There's a couple who sit on the beach with me every day.
+- One day, the woman pulls up her beach lounger and puts it right beside mine, as if we're in a double bed.
+- I see her do this - had I gone to the toilet and it was like this when I got back? - anyway, I go and lie down beside her and introduce myself.
+- She calls herself Yvonne.
+- I tell her that this is very cosy indeed and she giggles.
+- It's all a bit too weird for me - I know they're agents - so I decide I'll go for lunch now.
+- When I get back she's gone but she's left her lounger there. Her husband - Mike - is still there for a while then he leaves.
+- I don't see them for days.
+- Eventually, online in the way I communicate with them, I say, *oh yeah, what happened to Yvonne?*
+- The next day, they're back, and they sit right beside me again.
+- So I say, *Yvonne, what happened to you, we were getting so intimate and you just disappeared, you ghosted me*.
+- And Mike is sitting behind her toying with a red Iphone, just like the [one I threw away in Lourdes](april.md#chucking-my-iphone). He's taking the piss.
+- He leaves us and we chat a little.
+- She's Swedish.
+- I tell her that Yvonne is not a particularly Swedish name and she agrees but has no story to explain it so changes the subject.
+- Anyway, it's all small talk, chit chat, non-genuine, and I leave and she comes with me to leave at the same time.
+- I tell Yvonne, as we're parting (I don't know why), *I'll see you here in ten years time*, and she looks downcast and sad, as if she doesn't believe that could possibly happen.
+- Did she know they intended to bump me off - or perhaps lobotomise me or something awful - at Loka Yoga?
+- Were these two there for the end-of-line egg sale? 
 
 ### Elon visits the hotel
 
@@ -351,10 +388,36 @@ function googleTranslateElementInit() {
 - For nearly two months, I'm thinking, they've gone and gotten a lookalike in to harass me and upset me... except none of it makes sense.
 - I can't imagine any reason for Elon to be present at the Holiday Inn Nusa Dua on 29th June 2026 and grin at me inanely.
 - Why would they set that up?
-- It makes much more sense in August 2026 after the [Loka Yoga debacle, psychological torture, and sedated surgeries](july.md#loka-yoga).
+- It makes much more sense in August 2026 after the [Loka Yoga debacle, psychological torture, and sedated surgery](july.md#loka-yoga) revelations in Jerusalem.
 - The next morning I tell them all on Substack that I love them, but would they please stop fannying around.
 - At breakfast, some of them are giggling at me as I walk past.
 - Was Elon there to supply some bodily fluids for his latest rape-porn-themed trophy, and take the opportunity to mock me at the same time?
+
+### Getting me ready for next week
+
+- Another day, I'm at the pool, one of them says beside me as if to someone else, *we've got to get you ready for next week*.
+- Things like this were happening all the time.
+- Actually, it was relentless at the Holiday Inn Nusa Dua... even without the Elon business.
+- I'm not sure there were any genuine guests at all!
+ I did tell them off from time to time, and they laughed and appreciated it.
+ 
+### Water aerobics
+
+- I did the water aerobics with the events team regularly.
+- On the last session, a great many of the agents joined me, which was nice.
+- Except, there was a downcast feeling I couldn't mistake among them, and I thought it's just because they're all pretending, but now I wonder if they in fact knew what was planned for me next and were a bit sad about it because everyone was not able to not like me those weeks!
+- I was *shining*, as Mr Surya had said.
+
+### Law-enforcement tricks again
+
+- An agent says the name of a family member of mine very loudly so that I will hear it.
+- I hear it and think immediately of his grandfather who I knew pretty well but who is long dead.
+- And then I remember that the grandson has the same name.
+- And then I remember I had seen him in Belfast in 2020 outside [Queen's Sports Centre](../2011-to-2020/2020.md#queens-sports) while I was living at the Obel Tower.
+- I had been going to water aerobics.
+- Is that why they were all downhearted?
+- I was devastated to hear this.
+- I'm more devastated to know that the CIA basically allowed all this to happen - entrapment essentially - because I was their untouchable intuitive spy.
 
 ### Adoptive parents?
 
@@ -367,9 +430,9 @@ function googleTranslateElementInit() {
 
 ### Memories
 
-- I realize I came to Bali and stayed here because it's right next door to the Hyatt where I was sedated and raped by hundreds probably for a whole week in May 2024 with work on a work's event with the whole company and their special guests from all over the world.
+- I realize I came to Bali and stayed here because it's right next door to the Hyatt where I was sedated and raped by hundreds probably for a whole week in May 2024 while on a work's event with the Polygon Labs and their special guests from all over the world.
 - I start to remember a whole load of things.
-- It's gonna be just like [the seven devils](../../crimes/protagonists/vidal-sastre.md#seven-devils), isn't it.
+- It's gonna be just like remembering [the seven devils](../../crimes/protagonists/vidal-sastre.md#seven-devils) I expect, isn't it.
 
 ### I was right about Elon's spy, wasn't I
 
@@ -385,7 +448,7 @@ function googleTranslateElementInit() {
 
 - I create a new picture with Snoopy and Woodstock praying.
 - Hackers add a hat to Woodstock.
-- It's the wrong hat.
+- It's the wrong hat. Oh the idiots!
 
 ![The Lord is still in](../../content/images/the-lord-is-still-in.png)
 
@@ -429,11 +492,13 @@ function googleTranslateElementInit() {
 | Porn gang                                     | €/£ Thousands - as little as possible, slave labour mostly | Violence and violation | Criminal porn production by any means necessary, always worsening in step with porn-addict appetites         | Sedation, drugging, poisoning, psychological torture, hacking, murder, serious sex offending | Industrial-scale baby-rape  |
 | Security services aka The Mayor of Shark City | $/£ Multi-millions, thousands of salaried individuals      | Violence and violation | Whatever they want, often nothing to do with security, mostly coming from insane logic based on core process | Sedation, drugging, poisoning, psychological torture, hacking, murder, clandestine surgeries | Industrial-scale baby-theft |
 
+- What's becoming clear in September 2026, is that there is only one row and both the CIA and the porn-gangs of Britain and Spain belong in it, together.
+
 ### Industrial-scale baby-theft
 
 - The baby-theft is obviously a running clandestine security program as it is, again just like the sedated-and-rape processes in Dénia and Bali, a well-oiled machine.
 - There must be masses of salaried individuals from all over the world  ready to drop everything and race to the nearest CIA-HQ-cum-hotel to perform surgery on a sedated individual.
-- And - although I imagine they have numerous sick goals behind this evil - it totally explains their lookalike program which, I guess, they do relentlessly on a target so that when the real person turns up, the target doesn't believe it's them, such as with [Elon at the Holiday Inn in Bali, again, in June 2026](../2026/june.md#elon-is-at-the-hotel) who may have been at the Loka Yoga centre a week later for even more trophy hunting.
+- And - although I imagine they have numerous sick goals behind this evil - it totally explains their lookalike program which, I guess, they do relentlessly on a target so that when the real person turns up, the target doesn't believe it's them, such as with [Elon at the Holiday Inn in Bali, again, in June 2026](../2026/june.md#elon-visits-the-hotel) who may have been at the Loka Yoga centre a week later for even more trophy hunting.
 - Who knows what else they're up to.
 - Perhaps they're trying to create a master race!
 - Well, we know what happened to the last idiots that tried such a thing; but not before they'd shocked the entire universe with what's possible when humans go totally insane with hatred en masse.
@@ -481,3 +546,11 @@ function googleTranslateElementInit() {
 
 !!! quote "Principle of miracles number 19"
     - Miracles rest on the law and order of eternity, not of time.
+
+## Tiny wounds on the skin close to my right kidney
+
+- I start to notice multiple little bumps and scratches on the skin around the area of my right kidney, as if a little gnat had been biting away at me, but only there and nowhere else.
+- I thought they were spots, and picked them creating scabs.
+- But they didn't heal.
+- They kept coming back, like the scab on the keyhole surgery entrypoint on my lower stomach.
+- Lab-rats. I've been saying this for years.
