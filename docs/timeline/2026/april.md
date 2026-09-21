@@ -262,9 +262,10 @@ function googleTranslateElementInit() {
 - Sometimes, he tells us about what started him developing the TT system, about how he adopted two little babies who were totally traumatized, hopeless cases, and healed them.
 - He has shared that while he was practicing, he was finding people with apparently incurable conditions were getting well, all the time.
 - It got him noticed.
-- His sons are testament to the gift God gave him.
-- It is interesting because the content of the courses shifts and changes constantly, it can never be pinned down, which is amusing.
-- People are regularly expressing concern about what happens if Steve's not around, because other people find it hard to teach what he teaches, given it is coming direct from what Steve would call Holy Spirit, what I would call God.
+- His sons are testament to the gift God gave him but I hope his success with them didn't change US policy on men adopting babies because he said on this course that the first months of the adoption he thought he was going to murder them it was so hard.
+- So he prayed, and God came to the rescue.
+- I find it interesting that the content of his courses shift and change constantly, it can never be pinned down, which is amusing.
+- People are regularly expressing concern about what happens if Steve's not around, because other people find it hard to teach what he teaches, given it is coming direct from what Steve would call Holy Spirit, what I would call God and God cannot be controlled by evildoers.
 
 ### "I stepped in the chili sauce"
 
