@@ -66,6 +66,7 @@ function googleTranslateElementInit() {
 - It continues. Hasn't stopped.
 - I do it constantly, every night I wake myself up doing it. 
 - I never did it before May 2026.
+- I saw a small child to it at the YMCA in Jerusalem, the exact movement. It's a child's movement.
 
 ## Dreaming of Saint Michael on Ascension day
 
