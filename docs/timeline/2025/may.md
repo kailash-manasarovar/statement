@@ -464,21 +464,22 @@ function googleTranslateElementInit() {
 
 ### Ruth
 
-- I believe today (20th September 2026) that the baby Ruth came from my egg.
-- This means, I was suffering egg-extractions way longer than I had considered.
-- In fact, this means, in my view, that at the same time I was being sedated and raped by my colleagues and managers and Elon Musk and his mates in Bali, they were also performing clandestine surgeries on me to extract eggs.
-- Ruth was a very quiet baby; *too quiet*, Steve said.
-- He even went as far as to suggest mental retardation due to her quietness.
-- It is my view, that any tissue removed from my person while I was sedated for a week would be soaked in sedating drugs.
-- It is my view, all the babies created from my eggs while I was being poisoned, sedated, or brutalized will suffer some adverse affects.
-- One of them, born from an egg extracted while I was being poisoned with digitalis, has a heart condition and his "parents" (from Alaska), who called the child Rumi, insisted the surrogate (from Alaska), who called the child Gabriel, abort him.
+- I believe today (20th September 2026) that the baby Ruth came from one of my stolen eggs.
+- This means I was suffering criminal egg-extraction surgery way longer than I had considered.
+- In fact, this means, that at the same time I was being sedated and raped by my colleagues and managers and Elon Musk and his mates in Bali, they were also performing clandestine surgeries on me to extract my eggs.
+- It's just unbelievable nearly, except for their predisposition to limitless and totally unnecessary evil, as if it is as normal as breathing.
+- Ruth was a very quiet baby; *too quiet*, Steve said at the table.
+- He even went as far as to suggest mental retardation due to her unusual quietness.
+- Any tissue removed from my person while I was sedated for a whole week would have been soaked in sedating drugs.
+- It is likely that all the babies created from my eggs that were extracted while I was being poisoned, sedated, or brutalized will tragically suffer adverse affects.
+- One of them - born from an egg extracted while I was being poisoned with digitalis - has a heart condition and his "parents" (from Alaska), who called the child Rumi, insisted the surrogate (from Alaska), who called the child Gabriel, abort him.
 - She didn't.
 - They're suing her and pretending they love him and want him.
 - Who are these monsters?
 - So not only am I concerned that any offspring of mine will necessarily be treated badly - as if they're non-human objects, trophies - I suspect they're all sick too.
-- Correct me if I'm wrong.
+- Without God, all this would be impossible for one person to carry, but carry it I will, and I pray for a good outcome for all the children and their safety as soon as possible please.
 
-### Feeling sick on my return
+## Feeling sick on my return
 
 - I was unwell in Jerusalem for this trip; very constipated (I now know that's a mousse-technique to weaken people) and I was feeling nauseated a lot.
 - Fortunately, I discovered the juice bar.
