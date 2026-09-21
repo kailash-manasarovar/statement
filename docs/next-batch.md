@@ -16,7 +16,7 @@
 1. Did Rich Freed, Stella, and the mousses procure the women like myself and Natalia to send into hell, hacking our devices and getting info? Does that mean Domingo is a mousse-pal, an inside man?
 1. Was setting up Stella in Bali at Loka Yoga the beginning of them throwing her under the bus?
 1. Meeting Alex in Mamilla. Alex is excited about the app. When I tell him how it's a global currency of love he gets scared and scurries away. I believe Alex could be Mrs Wasserman's nephew.
-1. Offra outside the Kotel.
+1. Shifra outside the Kotel.
 
 ### August 2026
 
