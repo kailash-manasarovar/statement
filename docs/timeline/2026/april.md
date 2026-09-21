@@ -153,10 +153,11 @@ function googleTranslateElementInit() {
 ### Beckett Locke
 
 - An extraordinary place.
-- They set the taxi driver to be weird with me on the way from the airport (organized through Booking.com). Take her to a different place up the road, they told him.
+- They set the Islamic taxi driver to be weird with me on the way from the airport (organized through Booking.com).
+- Take her to a different place up the road, they told him.
 - My take is hotel-cum-CIA training centre and egg-extraction lab.
 - Correct me if I'm wrong.
-- On arrival, a Northern Ireland man with black hair and pale skin is hopping around in reception, glaring at me, talking a hundred miles an hour. I'm certain he's an actor designed to make me think Belfast criminals (see Noah sedated-porn horror - have you found that yet?) are still stalking me.
+- On arrival, a Northern Ireland man with a Belfast accent, black hair and pale skin, is hopping around in reception, glaring at me, talking a hundred miles an hour. I'm certain he's an actor designed to make me think Belfast criminals (see Noah sedated-porn horror - have you found that yet?) are still stalking me.
 - I have a very dark room on the inside with a small window, like a cell.
 - I'm making fists while I sleep and creating a callous in my left palm.
 - I wake up in the middle of the night - right in the middle of the bed on my back, down from the pillow, completely straight, a position I never move into - with a noise that sounds like people running while carrying a bag of ice down the corridor.
