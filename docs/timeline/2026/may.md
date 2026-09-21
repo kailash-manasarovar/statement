@@ -13,7 +13,7 @@ function googleTranslateElementInit() {
 - I'm staying a week or so in Cauterets and I have a little house a short walk down the valley from the town.
 - The whole town is empty this time of year, it's fabulous.
 - Although, I have a neighbor, two houses down.
-- It's Desa's colleague again, the big man we all met in Scarborough; the one who had been [staying next door at the Spa Resorts](../2024/december.md#desas-mate-from-pinder-in-scarborough) in December 2024 when it all kicked off.
+- It's Desa's colleague again, the big man we all met in Scarborough; the one who had been [staying next door at the Spa Resorts](../2024/december.md#desas-mate-from-pinder-in-scarborough) in December 2024 when it all kicked off who could also be Matthew Diamond's opera-singing friend.
 - I have seen him in other venues too, possibly Bangkok a few times in 2024 and 2025.
 
 ## Worm-turned
@@ -25,17 +25,19 @@ function googleTranslateElementInit() {
 ![What do you want exactly now](../../content/images/worm-officially-turned.png)
 
 - I love this!
+- Update: I'm told that criminal gangs will be pleased to confirm this was nothing to do with them at all and that I was mistaken, on purpose, so that I'd continue to think I was being stalked by Adams et al.
 
 ## Dénia team in France
 
-- Honestly, I think this must have been another game to keep me thinking the criminals in Dénia were still very active.
+- This was quite ridiculous actually, and I'm certain the participants will confirm.
+- It was another game to keep me thinking the criminals in Dénia were still very active.
 - Just like with [Ugly](../2024/august.md#ugly) popping up on my X feed all those years ago, then popping up in real life in Cauterets a few days later, a similar thing has happened yet again.
 - My other `JackChardwood` Facebook account - since the big one I was using was shut down by the pedo-protectors not so long ago - remains infested with criminal-gang hacks.
 - You can tell because all the stories have horror pictures in them, and they seem to be using fake groups - particularly those related to Anne Frank - to discuss who they're going to drop in it, just like they did with Ugly, when the time comes.
 - Anyway.
 - I realize the internet is the Wild West, and if you're hacked at all you can be hacked by everyone. 
 - There doesn't seem to be any way to block every Tom, Dick, and Harry getting in if one group is already in.
-- A couple of weeks ago, an account popped up with a friend request with a man's photo on it.
+- A couple of weeks ago, an account popped up with a friend request with a man's photo on it and he's called Anthony.
 - It was a repeat too, i.e. I had seen the man's face on Facebook in another context not long before.
 - I have never consciously seen this man's face before and I do not recognize him.
 - I made a note of this on the account photo, also mentioning that he somehow reminded me of the gardener at Cami Llavador, someone Lorraine knew very well (had gone to school with I believe).
@@ -58,12 +60,8 @@ function googleTranslateElementInit() {
 - And I was telling him about how I was completely stateless, in danger in most places in the world so living in my car until the money runs out and then I dunno.
 - And then I thought, bingo, *Hey, you could sign me off, then I'd have three meals a day and a bed, and I can spend the rest of my life gardening".
 - Brilliant, I thought.
-- And then he said, *No, no, you can't have any sharp implements", and I was dismayed for being misdiagnosed, and because my plan wouldn't work out at all.
-- Perhaps I'll do crime instead; I could start up a little healing circle in cell block H once they caught me, which I'd be intending. Could get famous.
-- Yeah, you wouldn't want to set up something that annoyed the docs in case they McMurphy'ed you although my guess is I'd be rubbish at crime. 
-- I'm not joking about my life being no fun at all though.
-- One wonders if, while no-one cares about the porn-gangs destroying the world, populations of porn-gang targets (we must be in the millions by now) and of course Spain's honey-trap targets who cannot rely on healthcare and assume basic human rights, will drift away from society and form liminal-space communities as we have been, essentially, told we don't exist, that our lives don't matter. Seems a reasonable view into the future...
-- God reminds me that even if it is no fun at all; I have felt far worse for more inconsequential things, so that's good.
+- And then he said, *No, no, you can't have any sharp implements" with a mean expression; and I was dismayed he had misdiagnosed me, and because my plan wouldn't work out at all, and it was a surprising retort.
+- Would they have done that to me if I'd agreed to move to Texas?
 
 ## Putting my hands to my head while sleeping
 
