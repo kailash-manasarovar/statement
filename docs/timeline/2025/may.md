@@ -472,7 +472,7 @@ function googleTranslateElementInit() {
 - He even went as far as to suggest mental retardation due to her unusual quietness.
 - Any tissue removed from my person while I was sedated for a whole week would have been soaked in sedating drugs.
 - It is likely that all the babies created from my eggs that were extracted while I was being poisoned, sedated, or brutalized will tragically suffer adverse affects.
-- One of them - born from an egg extracted while I was being poisoned with digitalis - has a heart condition and his "parents" (from Alaska), who called the child Rumi, insisted the surrogate (from Alaska), who called the child Gabriel, abort him.
+- One of them I'm told - born from an egg extracted while I was being poisoned with digitalis in July 2025 at Lourdes - has a heart condition and his "parents" (from Alaska), who called the child Rumi, insisted the surrogate (from Alaska), who called the child Gabriel, abort him.
 - She didn't.
 - They're suing her and pretending they love him and want him.
 - Who are these monsters?
@@ -486,7 +486,7 @@ function googleTranslateElementInit() {
 - Steve was unwell too and had bad diarrhea one night.
 - When I get home, I'm still feeling unwell and I throw up in the street in Muswell Hill one morning.
 - It was completely yellow.
-- Hmm. Was the surrogate suffering morning sickness?
+- Hmm. Was one of my surrogates suffering morning sickness?
 
 ## Milan recommends fertility herbs
 
