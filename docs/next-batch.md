@@ -1,9 +1,5 @@
 # Next Batch
 
-### May 2026
-
-1. Air France to Beijing. I was filmed laughing at the Snoopy videos with Woodstock wearing his particularly unique hat.
-
 ### June 2026
 
 1. I notice multiple little scratches on the skin around the area of my left kidney, as if a little gnat had been biting away at me, but only there and nowhere else.
