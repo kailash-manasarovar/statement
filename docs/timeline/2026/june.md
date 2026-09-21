@@ -162,7 +162,7 @@ function googleTranslateElementInit() {
 - I haven't eaten for days and eventually lose about 3-5kg. The guide insists the woman makes me breakfast in the morning before they come and get me and she does, and it's like nectar from heaven itself.
 - When the others pick me up, I get on the bus saying, *back from the dead, again*, which I liked because I knew they know I know they know... etc. yawn, but you gotta play their game... 
 - I don't feel I missed out on anything, I spent a good few days at the holy feet of God Himself recovering from a deadly poison attempt, so I think it's probably essential I return as much as possible and perhaps friendly nice people who haven't been instructed to murder me might come with me.
-- In any event, the chest infection started to remind me of [being smothered with pillows and my duvet at my home on 13th March 2024 - I was triggered to remember another murder attempt](../2024/march/13-end.md#the-pillow-game) - and I realize that my legs must have been free while that was happening and I tried to free myself from being suffocated under the weight being pushed down on me... for sure Maria hontanilla was there... Bruno's younger brother, probably Gloria... Paqui I think must have been there, another man or two to apply the weight to my face so I couldn't breathe ... while my legs went around and around trying to get free, and they all laughed at me, and I think this is where my face getting all twisted up comes during healings and at savasana at Loka Yoga one time too (so it'll be on video).
+- In any event, the chest infection started to remind me of [being smothered with pillows and my duvet at my home on 13th March 2024 - I was triggered to remember another murder attempt](../2024/march/13-end.md#the-pillow-game) - and I realize that my legs must have been free while that was happening and I tried to free myself from being suffocated under the weight being pushed down on me... for sure Maria hontanilla was there... Bruno's younger brother, probably Gloria... Paqui I think must have been there, another man or two to apply the weight to my face so I couldn't breathe ... while my legs went around and around trying to get free, and they all laughed at me, and I think this is where my face getting all twisted up comes from during healings and at savasana at Loka Yoga one time too (so it'll be on video).
 - All these memories came back with the chest infection at Kailash.
 
 ![Kailash](../../content/images/kailash.jpg)
@@ -183,9 +183,10 @@ function googleTranslateElementInit() {
 - They mentioned other things as well; such as a razor sharp insert for the vagina which would rip men's penises into shreds, a long tale about someone's girlfriend asking her man if he would sedate her like he does the other girls, outrageous things like this, and I never got it while they were spiking me with hallucinogens and other confusing drugs right on up to October 2025 when I realized the whole thing was because they had set up porn-studios in Spanish schools already, and had performed [a switcheroo porn-scam running live from the conservatory](../../crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel) which required brain-damaging a music school student; not the first nor last time they will have done this either given no one appears to care about the porn-horrors that have been going on in Spain for decades, rather the powers that be are hoping they can keep their porn-horror, they love it so.
 - Nevertheless, and aside from total important-male insanity, letting these people carry on regardless is a crime against humanity.
 - And anything a bit like, *they told us they'd stop, they pwomised us*, which appears to be law-enforcement protocol across our brave new world of protected rapists, is an even bigger crime against humanity.
+- And the truth is more horrifying than anyone could have ever imagined.
 
 ## Post Kailash
-### My current view on the world
+### My current view on the world (first words written after the Kailash trip)
 
 - Hopeless.
 - I can see no hope at all for anyone if women, children, and babies are to be sacrificed at the altars of porn which are wholly protected by our elected governments and police services.
@@ -197,10 +198,11 @@ function googleTranslateElementInit() {
 - My view is that the *queer* business ensured everyone's total OK'ness about the sexualization of minors and it is my view that this was a very intentional weapon forged against the West with the help of the gitano manipulators making money off the caliphate's oil barons since 2012 and earlier.
 - My view is that the Islamicists know very well the arrogance of the West and it's adherents' inability to admit to being tricked in this way, to it's continued detriment.
 - Very smart indeed from the Islamicists, and supported by their terrified attitudes towards their own women and children, hiding them away from everything, just in case the same might happen to them... I guess.
+- In the end it was all much more obvious than this, but totally unexpected, and I'm just sorry I gave the Islamicists such a hard time. I hope they can forgive me.
 
 ### Brain-wipe total
 
-- Obsession has disappeared, I wonder if I imagined everything.
+- My obsession about Anthony disappeared, I wonder if I imagined everything.
 - I guess I got a MASSIVE dose of something, again.
 - But I'm wondering, is my love dead? Or was I so ill that I used every resource in my body to stay alive, and that included my fire, my passion.
 - I start thinking about going back to my old life, getting a job, what job, as if that's possible!, and suddenly all my emails are offering me jobs.
@@ -210,8 +212,18 @@ function googleTranslateElementInit() {
 - Who's worried about coming up in search?
 - I believe the Ark can save them.
 
+#### God's misdirections
+
+- This state of mind was wholly intended by God.
+- It felt like my mind had been wiped clean of so many things, that I had to admit to myself and others that I knew *nothing* about what was going on. 
+- I was sure of *nothing*!
+- This was so I would tell Taryn and Substack this, emphatically, on the first few days of the course at [Loka Yoga](july.md#loka-yoga) repeatedly, throwing the mousses off immediately!
+
 ## I am Rohini
 
+- And then came Rohini!
+- Part of the story in the series I've been watching since March 2023, Sankat Mochan Mahabali Hanuman.
+- And my mind started to change a little.
 - Perhaps it's not all hopeless.
 - But it does feel like we are at a global state as perilous as when the asuras nearly got hold of the amrit, the elixir of God, and the world was about to descend into total chaos.
 - This time around, they've all turned into brazen rapists, happy to let the world descend into rape chaos while fighting to sterilize everyone's children or ignoring it while everyone goes mad on the Las Marinas manipulation tech.

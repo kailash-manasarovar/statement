@@ -24,10 +24,12 @@
 1. Did Rich Freed, Stella, and the mousses procure the women like myself and Natalia to send into hell, hacking our devices and getting info? Does that mean Domingo is a mousse-pal, an inside man?
 1. Was setting up Stella in Bali at Loka Yoga the beginning of them throwing her under the bus?
 1. Meeting Alex in Mamilla. Alex is excited about the app. When I tell him how it's a global currency of love he gets scared and scurries away. I believe Alex could be Mrs Wasserman's nephew.
+1. Offra outside the Kotel.
 
 ### August 2026
 
 1. Oeuf, the TV, TT's daughter.
+1. Seven devils, the Truth coming out now - was that eclipse day?
 1. In Dubai after a month of swimming a km to a mile every day or every two days at the YMCA in Jerusalem, the groin injury - it is inner groin - is paining me during the night. It's something to do with the mattress which puts my rump/hips/groin in a lower position than my legs. I swim breaststroke and so kick out a lot and noticed the groin injury complaining a bit while swimming but it doesn't make sense unless it is structural, a caused injury, broken sutures, something surgical gone wrong and reopened again and again.
 1. And who was the woman at departures? I got jealous and remembered how awful that all was and started thinking of a cave or the nunnery again... was she Brunhilda? Isaiah 57. A nest indeed. Gosh, this is gonna be such a cool parallel plot line.
 1. In Jerusalem I visit the Wall every day, it's like visiting God Himself. Some days I visit David's tomb too - these are often the days when I feel like I'm on the battlefield and need some spiritual-warrior strength. I'm very conscious of the bloodline to Jesus but I'm not interested in the Christian sites so much.
