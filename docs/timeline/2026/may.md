@@ -103,9 +103,13 @@ function googleTranslateElementInit() {
 
 ## China and Tibet
 
-- Kailash.
-- The Kailash team.
-- Who dun it.
+- I'm off to Kailash.
+- I fly to Beijing with Air France, sleep for a couple of days, then fly to Tibet.
+- In Beijing, there are mousses all over me at my hotel.
+- The guide who takes me to the Great Wall is asking about my trip to Tibet. He says: *oh, they'll be organizing a team for you*.
+- The week before I left, Trump travels unexpectedly to China, and I have to wonder if his secret service people ask for permission to set up a team to follow me around when I'm in China.
+- More interestingly is Elon Musk running after him to join him, and committing a crime by doing so - because he should have been available for court business.
+- I leave my bags at the hotel storage facility.
 
 ## Air France
 
