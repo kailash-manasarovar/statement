@@ -45,16 +45,4 @@
 1. Number 6 trumpet teacher: add Viktor porn with the bankteller example.
 1. Add Walmart trophy hunter to *male family members* in protagonists.
 
-### Additions and thoughts
 
-1. And as for the lupins, well, my fight with the lupins is over. And it looks like everyone won. The best sort of fight. So no names.
-1. And I was just wondering how crazy it would be if everyone started to realize how cool Israel really is. That would be another one of those best sort of fights.
-1. Addition to the comparison table for lupins and mousses in CORE PROCESS: *Total lack of respect for human life*.
-1. Anyhoo... widening my tent pegs, as it were... my guess is everyone will wanna be in my tent. No, everyone sane will already be in my tent, and those that aren't will be so desperate to get in, and the door is not closed to them but there are conditions to maintain inside the tent and it just might be too much for people, who knows.
-1. Please God let it be over today, yesterday.
-
-### Conclusion
-
-1. One wonders, given mousse involvement, control, and management of very nearly everything, if not everything I have detailed in this police statement - people, events, who does what, controlling communities, staged activities, torture chambers, who says what to who, who goes to jail (no-one), who gets bumped off, etc., if they should be held responsible for all of it.
-1. And for the record: I'm only interested in the gazing-house; not the money (could use some though as my savings dwindle), fame (NOT interested, what a burden!), or bites of roasted meat although they are indeed tasty.
-1. The only mistake anyone made was to allow themselves to be bullied. But there are reasons for it, and most of us can't withstand bullying. And even when we can, they still think they've won. So.
