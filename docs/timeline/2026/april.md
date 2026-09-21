@@ -127,7 +127,7 @@ function googleTranslateElementInit() {
 
 ![Facebook shuts me down](../../content/images/facebook-shuts-me-down.jpg)
 
-- So I thought I'd better not mention that again... except, why would they want me to keep that secret.
+- So I thought I'd better not mention that again... except, why would they want me to keep that secret?
 - Is it because, actually, Antonio did reach out to the Israeli's for help behind the mousse's back?
 - I expect he did.
 - And, it turns out, I'm a weapon designer as well as everything else :) which is nice.
@@ -136,11 +136,9 @@ function googleTranslateElementInit() {
 
 - I go to the library in Lourdes to save this police statement on archive sites.
 - The young man there grins at me, that grin, and puts his hand together like they ridiculed me endlessly for at the conservatory, and just like the blond woman did at the Red Lion.
-- I'm sad that so many men are so porn-sick.
-- I wonder if they get warned via WhatsApp groups or direct messages?
-- It's literally every where I go.
-- Are the gangs hoping that one of these idiots takes the initiative and attacks me; while filming obviously?
-- Is this why no-one's doing a thing about it, because nearly all men in existence are complicit?
+- There's a policeman sitting next to me too.
+- Was the man prompted to do this, and if so by whom?
+- It was an odd thing to do out of the blue unless I'm really, really famous, which I expect I'm not. Yet.
 
 ## Dublin Transforming Touch
 
