@@ -1,11 +1,5 @@
 # Next Batch
 
-### April 2026
-
-
-
-
-
 ### May 2026
 
 1. Air France to Beijing. I was filmed laughing at the Snoopy videos with Woodstock wearing his particularly unique hat.
