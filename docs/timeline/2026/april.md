@@ -274,6 +274,7 @@ function googleTranslateElementInit() {
 - The usual CIA man is sitting close by (it's never the same one, but they dress so specifically, as I mentioned).
 - I drop the chili sauce on the floor and as we're getting up to leave I step in it, and declare it.
 - I find this amusing. I wonder if he did.
+- More of God's deflection. So marvelous.
 
 ### Adam
 
@@ -284,6 +285,7 @@ function googleTranslateElementInit() {
 - There is one sure-fire way to tell if it's the mousses... they tell you to shut up if you start telling them something of your story.
 - Adam did that. A lot of people did that.
 - Normal people don't do that.
+- He's an actor, isn't he.
 
 ### A first roasting
 
