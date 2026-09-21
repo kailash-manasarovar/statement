@@ -20,7 +20,10 @@ function googleTranslateElementInit() {
 
 ## Service at Lourdes
 
-- Someone is reporting my behavior in the baths back to criminal gangs who then send me notifications on X repeating things I have said verbatim, or describing things I have done that day.
+!!! tip "Summary of secret service (CIA) activity in Lourdes"
+    - Secret services put energy into making me believe criminal gangs are still stalking me, trying to set me up with another man, and getting American Catholics to genuinely stalk me.
+
+- Someone is reporting my words and behavior in the baths back to criminal gangs who then send me notifications on X repeating things I have said verbatim, or describing things I have done that day.
 - Due to this, I decide to tell my boss, Marie Therese, my recent history because it's clear to me someone will misrepresent me in a negative way and I want people to know the truth.
 - She also saw that I had become sick on [the last day of my service the previous July](../2025/july.md#lourdes) when I had to cancel my attendance at the baths because my eyes were stinging and I had the toxic headache from hell.
 - I arrange a meeting with her.
@@ -62,27 +65,35 @@ function googleTranslateElementInit() {
 
 - X notifications about things happening at the baths stop.
 - I wonder if when the women find out exactly what the men have been doing all these years, the whole thing stops.
+- This will be an interesting unravel; as will how they move people to the front of the queue to ensure they see me, rather than anyone else (not the British women, I think that was God arranging it).
+- The woman who was set up for me to believe she was listening and reporting back was Portuguese - like Sandra - and did something weird with the donations which made me think she must have been a criminal.
+- Coincidence? I think not.
 
 ### Chucking my iPhone
 
 - I throw away my iPhone and a Samsung pad at the decheterrie in Lourdes.
-- An agent, Mike, at the Holiday Inn in Bali in July will have a phone exactly like mine in his hand after one of our *games* and because I'd asked about his wife, Yvonne, online one evening. She had behaved strangely and disappeared the day before. She makes a reappearance and we have a chat, this is when he's sitting beside us with a phone just like mine in his hand (red Iphone 14, quite unique actually).
-- I also make my X accounts, `@1FRGVN` and `@JackChardwood` inaccessible to me without jumping through some hoops.
+- The reason I do this is because it is obvious to me that I am being manipulated, hard, online to feel emotions that I do not like, and I believe it is coming from the phone rather than the laptop.
+- It's possible I was manipulated by the CIA to throw away the phone and the mini-pad too: more isolation means I'm easier to murder.
+- An agent, Mike, at the Holiday Inn in Bali in July toys with a phone exactly like this one after one of our *games* and because I'd asked about his wife, Yvonne, online one evening.
+- She had behaved strangely and disappeared a few days before and I hadn't seen them anywhere.
+- I comment online in the way I communicate to those hacking me: *oh what happened to Yvonne?*
+- The next day, she makes a reappearance and we have a chat, and this is when he's sitting beside us with a phone just like mine in his hand (red Iphone 14, quite unique actually), toying with it, taking the piss.
+- Do they do that *only* to targets they intend to murder, or steal eggs from, or some other dastardly act, or do they do it to all targets?
+- Yvonne seemed to think I wouldn't be around in the future... but I may have mistaken her sentiment.
+- At the same time, I also make my X accounts, `@1FRGVN` and `@JackChardwood` inaccessible to me without jumping through some hoops.
 - All my bad days cease.
 - Isn't that interesting.
-- I hope someone bothered to collect the phone.
-- I guess Mike was telling me they had which is good, but will they bother doing anything with it?
+- I'm sure they wanted me to delete the accounts rather than just stop using them, although they've managed to tailor the search function on them so it looks like I haven't posted things I know I did post!
 
 ### Drugging and poisoning
 
 - I'm drugged at least one time while I'm at Lourdes; I start feeling Mary very close to me, all around, and I'm having clear visions of a spectacular wedding dress.
-- I suspect hallucinogens applied in a crowd in the street or at the sanctuary.
-- I'm poisoned at least one time, possibly when I meet the Australian-Italian gypsy woman at the laundry, who was a lovely lady by the way and we had a nice chat, but right after I felt like I'd been heavily sedated.
-- I suspect more examples of this occurred over the last six months but I'm noticing them less and less.
-- However, [my thumbnail ridges (Beau's lines)](../2001-to-2010/2006.md#beaus-lines) seem to have been marking these events and there have been multiple occasions.
-- It's what they do, right?
+- Incidentally, this is the same time I remember [the Daniel incident](../2011-to-2020/2013.md#daniel) and I believe that was their main intention with it.
+- I think this was when I meet the Australian-Italian gypsy woman at the laundry, who was a lovely lady by the way and we had a nice chat, but right after I felt like I'd been heavily sedated.
+- She looks like a woman, *Anat*, an artist that friends me on Facebook shortly afterwards, and posts multiple mousse messages - including Snoopy roasting on a spit after [they roasted me in Dublin](#a-first-roasting).
+- However, [my thumbnail ridges (Beau's lines)](../2001-to-2010/2006.md#beaus-lines) mark poisoning and maybe even drugging events too, and there have been multiple occasions.
 
-### Loving voices
+### Mrs Wasserman is outside my door at the Mercure
 
 - One night, after yoga - it may be a Friday after Penny's class - as I'm putting away my yoga things, I hear two voices I know well outside my door chatting.
 - It's Mrs Wasserman, and another man I don't know the name of.
@@ -97,16 +108,29 @@ function googleTranslateElementInit() {
 - From there, they can pretend to be anyone, they think.
 - It's very school playground isn't it.
 - Except the feeling I got, I believe in retrospect, was God's way of telling me in advance that this is how He gets my babies back for me, with a strong and joyful body memory.
+- Does this mean the baby they stole for Jonathan is the child Ben Webber and I made back in 1991?
 
 ### American agents all over the baths and the town
 
 - They're everywhere; and I do not get a good feeling from them at all.
-- Something's up and it bodes badly for me (and everyone actually, but they're not wise enough to see they're chasing after chaos).
-- Do you think, at a deeper level of the mind, the masses are so appalled that a rape-victim survived the porn-gangs, that they're compelled with a deep instinctive urge to destroy this (what they think is) unnatural wonder in their midst? It's actually as natural and as normal as it gets.
+- Something's up and it bodes badly for me because they're not being very nice to me - snide comment in the baths one afternoon.
+- In fact, it's so relentless I don't go back to the baths to volunteer after my week's service and I had been intending to go every afternoon!
+- There's bad blood between the Americans and Marie Therese too.
+- Do you think they all believe the lie that if you're raped it's never the rapist's fault and the victim is somehow to blame?
+- That somehow a person who has been sexually abused so much is not allowed to be holy?
+- Amazing.
 
 ## Facebook shuts me down
 
+- I was steadily posting snippets from my book, and I'd got to the bit where [the hairdresser in Muswell Hill mullered my hair](../2025/november.md#haircut-disaster-on-the-same-day) - not the time before when I was in there with dad and "madam" turned up and sat beside me.
+- I mentioned Antonio and I had started our military service probably by August 2024 when everyone was starting to panic, and I lost access to Facebook immediately and completely and inexplicably.
+
 ![Facebook shuts me down](../../content/images/facebook-shuts-me-down.jpg)
+
+- So I thought I'd better not mention that again... except, why would they want me to keep that secret.
+- Is it because, actually, Antonio did reach out to the Israeli's for help behind the mousse's back?
+- I expect he did.
+- And, it turns out, I'm a weapon designer as well as everything else :) which is nice.
 
 ## Médiathèque de Lourdes
 
