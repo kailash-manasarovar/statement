@@ -124,7 +124,7 @@ function googleTranslateElementInit() {
 - I'm usually Snoopy but not always: sometimes Snoopy and Woodstock are mixed up and Snoopy is the intuitive artist who they've given unlimited supplies to create with, and Woodstock never shuts up.
 - One of the videos I see in Bali [demonstrates the torture-rape-porn carried out by family members and known men that Lorraine Blackbourn had endured that caused her to eventually kill herself](july.md#they-tell-me-what-happened-to-lorraine) assuring me that the evidence is solid and in hand, and they care about it. They don't.
 - Oh, and whole loads of information about my love, all lies: how he is clumsy at posh dinners, sad about something, is a father, has a life partner, has been given lots of art supplies and produces huge amounts of work, all this madness and lies, just to keep me distracted... so I'd miss the crimes of the millennia.
-- Oh yeah, I'm told someone was filming all that.
+- Oh yeah, I'm told someone was filming all that and the stewardess certainly knew I was *special* from the way she was talking to me - is it to do with police requests for tailored content for particular seat numbers?
 
 ## Air China
 
