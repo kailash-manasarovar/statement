@@ -80,7 +80,7 @@ function googleTranslateElementInit() {
 - And I still don't know what it means.
 - So I'll leave it with you.
 - <3
-- Oh!
+- Oh! Wow. That's exactly when the Truth started to come out, isn't it.
 
 ## Ark of Safety
 
