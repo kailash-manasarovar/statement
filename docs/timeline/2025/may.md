@@ -494,7 +494,8 @@ function googleTranslateElementInit() {
 - I think my brother asked me if Milan could talk to me, and I agreed and let him give Milan my number.
 - Milan was always a bit starstruck by me, and not a little bit weird with it, but he's also an analyst so I was keen to see if he'd like to help out with the forgivenet.
 - We chat on WhatsApp for a while and he very quickly launches into recommending a fertility product.
-- I'm immediately interested and I buy it online - because I'm being prepped, prodded, and signalled on pregnancy and fertility.
+- I'm immediately interested and I buy it online - CoQ10 (Coenzyme Q10) - because I'm being prepped, prodded, and signalled on pregnancy and fertility.
+- Was Milan instructed to recommend this to me because of the multiple planned egg-extraction surgeries coming up?
 - I buy some and take them probably from April/May 2025 through to the end of the year when I stop having anywhere to keep any unnecessary personal belongings, or edible items which might not be tampered with.
 - In fact, that's about all Milan has to say to me.
 - I tell him about the forgivenet and he's disinterested, changes the subject.
