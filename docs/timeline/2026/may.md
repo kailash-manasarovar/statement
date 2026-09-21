@@ -70,7 +70,7 @@ function googleTranslateElementInit() {
 
 ## Dreaming of Saint Michael on Ascension day
 
-- I'm lying in bed, drifting off to sleep, thinking about the wonderful, marvelous Saint Michael, and the stained-window of him at the church in Cauterets, and how amazing he is, and the best boss a person could have, always giving the right challenge, never too much, never too little, and how I love him so, and I'm going off into one and I can practically see his giant legs that go up into the sky.. then WHACK!!
+- I'm lying in bed, drifting off to sleep, thinking about the wonderful, marvelous Saint Michael, and the stained-glass window of him at the church in Cauterets, and how amazing he is, and the best boss a person could have, always giving the right challenge, never too much, never too little, and how I love him so, and I'm going off into one and I can practically see his giant legs that go up into the sky.. then WHACK!!
 - He hits me around the head!
 - Well, it's like an incision actually, a semi-circular thin scar on the top of my head to the left, and I can see light coming out of it.
 - And it REALLY HURTS!!!!
@@ -80,6 +80,7 @@ function googleTranslateElementInit() {
 - And I still don't know what it means.
 - So I'll leave it with you.
 - <3
+- Oh!
 
 ## Ark of Safety
 
