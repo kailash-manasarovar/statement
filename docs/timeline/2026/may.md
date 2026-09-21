@@ -96,7 +96,7 @@ function googleTranslateElementInit() {
 ![Baby seal IL](../../content/images/baby-seal-il.png)
 
 - No, I didn't lose my mind at all.
-- Let's do this.
+- Let's do this, although we'll need full confirmation of zero-mousse involvement.
 
 ## May 16th Shanidev jyanti
 
