@@ -493,9 +493,11 @@ function googleTranslateElementInit() {
 - My brother's friend Milan, a Jain, is on the phone recommending fertility herbs. 
 - I think my brother asked me if Milan could talk to me, and I agreed and let him give Milan my number.
 - Milan was always a bit starstruck by me, and not a little bit weird with it, but he's also an analyst so I was keen to see if he'd like to help out with the forgivenet.
-- We chat on WhatsApp for a while and he's recommending this product which I get - because I'm being prepped, prodded, and signalled on pregnancy and fertility.
-- I buy some and take them probably from April/May 2025 through to the end of the year and stop having anywhere to keep anything.
-- In fact, that's about all Milan says with any actual content in it.
-- I tell him about the forgivenet and he's disinterested. I find it weird.
+- We chat on WhatsApp for a while and he very quickly launches into recommending a fertility product.
+- I'm immediately interested and I buy it online - because I'm being prepped, prodded, and signalled on pregnancy and fertility.
+- I buy some and take them probably from April/May 2025 through to the end of the year when I stop having anywhere to keep any unnecessary personal belongings, or edible items which might not be tampered with.
+- In fact, that's about all Milan has to say to me.
+- I tell him about the forgivenet and he's disinterested, changes the subject.
+- I find it weird.
 - Eventually he gets so weird with me I have to block him.
-- I start wondering if Milan is a mousse spy sent to keep an eye on Robert all those years ago and given instructions to tell me about the fertility herbs.
+- I start wondering if Milan is a mousse spy sent to keep an eye on Robert all those years ago, and given instructions to tell me about the fertility product.
