@@ -55,14 +55,6 @@ function googleTranslateElementInit() {
 - Is he handing himself in? Is he on the good's side now?
 - See how they got me in quite a spin. They do it all the time. Better to avoid social media completely if you're someone like me that everyone wants a slice of.
 
-## Me and Steve were chatting
-
-- And I was telling him about how I was completely stateless, in danger in most places in the world so living in my car until the money runs out and then I dunno.
-- And then I thought, bingo, *Hey, you could sign me off, then I'd have three meals a day and a bed, and I can spend the rest of my life gardening*.
-- Brilliant, I thought.
-- And then he said, *No, no, you can't have any sharp implements" with a mean expression; and I was dismayed he had misdiagnosed me, and because my plan wouldn't work out at all, and it was a surprising retort.
-- Would they have done that to me if I'd agreed to move to Texas?
-
 ## Putting my hands to my head while sleeping
 
 - It started in May in Cauterets.
@@ -72,6 +64,8 @@ function googleTranslateElementInit() {
 - At first I thought it was Auggie, then someone online says it's my dad.
 - I think it's a child in the womb maybe? Or just been born? It's a movement a baby might make.
 - It continues. Hasn't stopped.
+- I do it constantly, every night I wake myself up doing it. 
+- I never did it before May 2026.
 
 ## Dreaming of Saint Michael on Ascension day
 

@@ -359,6 +359,14 @@ function googleTranslateElementInit() {
 - As if there was something more important to do.
 - Bananas!
 
+### No sharp implements
+
+- And I was telling him about how I was completely stateless, in danger in most places in the world so living in my car until the money runs out and then I dunno.
+- And then I thought, bingo, *Hey, you could sign me off, then I'd have three meals a day and a bed, and I can spend the rest of my life gardening*.
+- Brilliant, I thought.
+- And then he said, *No, no, you can't have any sharp implements" with a mean expression; and I was dismayed he had misdiagnosed me, and because my plan wouldn't work out at all, and it was a surprising retort.
+- Would they have done that to me if I'd agreed to move to Texas?
+
 ### My sense of direction is temporarily healed
 
 - I've had a couple of glasses of wine when I leave Steve.
