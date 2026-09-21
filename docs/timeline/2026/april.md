@@ -286,13 +286,14 @@ function googleTranslateElementInit() {
 - Adam did that. A lot of people did that.
 - Normal people don't do that.
 - He's an actor, isn't he.
+- Do they instruct the actors something like: *if she starts talking about the porn-gangs and poisoning, stop her*?
 
 ### A first roasting
 
 - Yeah, I didn't know why they turned on me on that course, but they certainly did.
 - It's possibly because I turned down Steve's offer to go live with him in Texas.
 - As a prelude, Robin and Steve were testing my trigger reactions. One such test was while we were waiting to go to lunch, and Robin pipes up, *oh my friend Damien has just called me*, and I know she's testing to see how I react to my dad's name.
-- So I say: *Damien, the ultimate in horror*, in my film movie announcer voice. And she doesn't mention it again.
+- So I say: *Damien, the ultimate in horror*, in my movie announcer voice. And she doesn't mention it again.
 - So they were poking already, but it was the second course, module 3, with [the cohort I had met in September](../2025/september.md#dublin-transforming-touch-therapy-with-steve) where the group really turned on me.
 - Guilt expressed maybe?
 - A test to see how I might take a bit of psychological torture?
@@ -301,7 +302,7 @@ function googleTranslateElementInit() {
 
 ![Co-regulating touch](../../content/images/co-regulating-touch.jpg)
 
-- I thought it was a genuine request initially from a woman calling herself *Joyce*.
+- I thought it was a genuine request from a woman  initially calling herself *Joyce*, then *Joy* later on.
 - I'm unable to access the email on the website where I was notified about it now, I don't know why, but I replied in any case telling the person I was not taking any clients, would they like a referral.
 - At the same time, I realize I need to change my profile details, but I'm unable to figure out how to do it.
 - I tell a woman on the course I might have a referral for her, and ask Gerardine how to access the site to make an edit again.
@@ -314,9 +315,9 @@ function googleTranslateElementInit() {
 - Here's my listing: https://coregulatingtouch.com/business-directory/dr-katharine-murphy-ttp-london-uk/ and I've just found out how to edit it too.
 - When the psychological terror-meme mentions started, including:
     - Steve saying "switcheroo".
-    - The German woman who had called me "Saint Katharine" saying: In concert.
+    - The German woman who had called me "Saint Katharine" referencing music and music study.
     - This sort of thing..
-- The German woman mentions *Joy*, again and again, and I realize after a bit they're referring to the query email, and perhaps something broader too.
+- The German woman mentions *Joy*, again and again, in an exaggerated manner, and I realize after a bit they're referring to the query email, and perhaps something broader too.
 - Later, I wonder if this *Joy* is referenced in [extremely early fake accounts on Twitter, right in the midst of fighting the porn-gangs of Dénia](../2024/may.md#hazel-smith-pretends-to-be-esteve-online) when I still thought everyone talking to me was mostly Hazel or Domingo.
 - See below "My name is Joy", in German!
 
@@ -325,15 +326,17 @@ function googleTranslateElementInit() {
 - I think the TT crowd wanted me to leave them. They must have.
 - I guess if they're a secret business, and I become extraordinarily famous, they'd risk everything keeping me on... but I'm sure there's kinder more loving ways to do something like this! Isn't it? A better way, maybe?
 - I didn't take it well. 
-- I started to shake and my wrist (where there's an unusual injury that could do with a scan and examination) because to quiver.
+- I started to shake and my wrist (where there's an unusual injury that could do with a scan and examination) started to quiver - this happened in savasana at Loka Yoga one morning too.
+- I guess everyone knows why, apart from me.
 - I got a blanket, sat behind the circle on the second line, put the blanket over myself and hid.
 - It's not the torture itself - I was everyone's breakfast, lunch, and dinner in Dénia for years, remember? - it's the fact that people you thought you could trust are doing it.
 - And what really got me, was the realization that something I thought I could always turn to as a safe space for healing just disappeared, poof!
 - The roasting [they give me in Bali](july.md#the-psychological-torture-begins) is exactly the same procedure but at a super enhanced level with more intense drugging.
+- They can't possibly have intended my ongoing survival.
 
 #### I thought I'd talk about something important with the group
 
-- Then decided not to due to incoming attacks.
+- Then I decided not to due to incoming attacks.
 
 ### I want to murder Trump
 
