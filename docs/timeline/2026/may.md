@@ -92,10 +92,9 @@ function googleTranslateElementInit() {
 - I think Baby Seal might be able to do it.
 - If she prays hard enough and we all pray along with her.
 
-![Baby seal US](../../content/images/baby-seal-us.png)
 ![Baby seal IL](../../content/images/baby-seal-il.png)
 
-- No, I didn't lose my mind at all.
+- Looks like I'm supplying.
 - Let's do this, although we'll need full confirmation of zero-mousse involvement.
 
 ## May 16th Shanidev jyanti
