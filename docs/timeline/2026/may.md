@@ -115,22 +115,24 @@ function googleTranslateElementInit() {
 
 ## Air France
 
-- This was the first time I saw one of their Snoopy AI videos.
+- This was the first time I saw one of the CIA's Snoopy AI videos.
 - It was impressive.
 - Woodstock plays the trumpet and wears [the hat we've just discussed the trumpet teacher wearing in 2013](../2011-to-2020/2013.md#daniel) and Paul van Gelder wearing in 2014.
 - Snoopy is a writer and the cartoon is all about how these two are friends but they argue a lot and about how Snoopy brings everyone together, is a land shark, and all sort of specific stuff from my story.
 - The two solve their differences with drinking big jugs of beer together on top of Snoopy's dog house.
 - In Bali, they create tons of these Snoopy videos.
 - I'm usually Snoopy but not always: sometimes Snoopy and Woodstock are mixed up and Snoopy is the intuitive artist who they've given unlimited supplies to create with, and Woodstock never shuts up.
-- One of the videos [demonstrates the torture-rape-porn carried out by family members and known men that Lorraine Blackbourn had endured that caused her to eventually kill herself](july.md#they-tell-me-what-happened-to-lorraine) assuring me that the evidence is solid and in hand.
-- Oh, and whole loads of information about my love: how he is clumsy at posh dinners, sad about something, is a father, has a life partner, all this madness and lies, just to keep me distracted... so I'd miss the crime of the millennia happening.
+- One of the videos I see in Bali [demonstrates the torture-rape-porn carried out by family members and known men that Lorraine Blackbourn had endured that caused her to eventually kill herself](july.md#they-tell-me-what-happened-to-lorraine) assuring me that the evidence is solid and in hand, and they care about it. They don't.
+- Oh, and whole loads of information about my love, all lies: how he is clumsy at posh dinners, sad about something, is a father, has a life partner, has been given lots of art supplies and produces huge amounts of work, all this madness and lies, just to keep me distracted... so I'd miss the crimes of the millennia.
 
 ## Air China
 
 - In the Air China queue for Tibet someone is wearing a t-shirt that makes reference to the Snoopy videos.
 - It has the same two jugs of beer that Snoopy and Woodstock drink to stop arguing, and words saying *The Draft*.
-- It's all set up so I think the Americans aren't involved in what's happening at all.
-- I trust no-one hinting and constant suggestions like these are tiresome and clearly always dubious, so I'm going to have to wait and see.
-- What else can I do?
-- I sense they're f*cking with me though.
-- But it is quite fun at this stage, and I'm caught in it so what else can I do but laugh, and wait.
+- It's in reference to our [October 7th military career](april.md#facebook-shuts-me-down) that got my Facebook account terminated when I mentioned it briefly in a small comment.
+- This was probably the strongest signal they used that made me think these people could not be the Americans, but you know, when it's signals and hints, the jury is always out.
+- Later, I realize the Americans have set all of this up so I think they're aren't involved in what's happening at all.
+- They'd definitely need special permission for all this madness in China.
+- Did the Chinese know they were going to try and murder me too?
+- I do sense they're f*cking with me.
+- But it is quite fun at this stage, and I'm caught in it so what else can I do but laugh, and play along, and wait.
