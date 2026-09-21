@@ -130,7 +130,8 @@ function googleTranslateElementInit() {
 - So I thought I'd better not mention that again... except, why would they want me to keep that secret?
 - Is it because, actually, Antonio did reach out to the Israeli's for help behind the mousse's back?
 - I expect he did.
-- And, it turns out, I'm a weapon designer as well as everything else :) which is nice.
+- And, it turns out, I'm a weapons designer for the IDF as well as everything else.
+- Antonio gave me what I had been wishing for online since October 7th 2023.
 
 ## Médiathèque de Lourdes
 
@@ -164,17 +165,6 @@ function googleTranslateElementInit() {
 - The taxi driver calls to tell me where to go to meet him, and it's not here.
 - The mousses are flirting with me, buttering me up.
 
-### Steve mentions the King
-
-- Steve, Robin, and I are having dinner at the hotel near the Avila centre.
-- I think Robin is probably one of the main intuitives; can you say *managing* intuitives? It's all so weird, anyway.
-- It's probably just a couple of days before the first course begins and maybe the first time I see them.
-- Steve announces that the King is visiting Trump next week and at that time he will step down, move to the Caribbean, and his son will become king in his place. 
-- I ask Steve where he heard this (nonsense, I don't say nonsense but my face and grin is saying it)? 
-- Steve seems a little surprised I haven't just accepted everything he just told me.
-- He mumbles AOL.. I know he's being fed BS online, but I'm a little curious as to how they trigger him to say it to me, is this a "formal" instruction, or manipulated?
-- How involved is Steve, I wonder. He sees and notices - see Kathleen Love's disappearance - but is he involved in the decision making or do they just control him like they clearly wanted to control me?
-
 ### Beckett Locke
 
 - An extraordinary place.
@@ -195,13 +185,27 @@ function googleTranslateElementInit() {
 - A massive disregard of the Golden Rule.
 - So much for the healing, Steve.
 
+### Steve mentions the King
+
+- Steve, Robin, and I are having dinner at the hotel near the Avila centre.
+- I think Robin is probably one of the main intuitives; can you say *managing* intuitives? It's all so weird, anyway.
+- It's probably just a couple of days before the first course begins and maybe the first time I see them.
+- Steve announces that the King is visiting Trump next week and at that time he will step down, move to the Caribbean, and his son will become king in his place. 
+- I ask Steve where he heard this (nonsense, I don't say nonsense but my face and grin is saying it)? 
+- Steve seems a little surprised I haven't just accepted everything he just told me.
+- He mumbles AOL.. I know he's being fed BS online, but I'm a little curious as to how they trigger him to say it to me, is this a "formal" instruction, or manipulated?
+- How involved is Steve, I wonder. He sees and notices - see [Kathleen Love's disappearance](../2025/may.md#steve-gets-upset-with-me) - but is he involved in the decision making or do they just control him like they clearly wanted to control me?
+
 ### I see Auggie Augustus
 
-- You remember [Ugly from 2001](../2001-to-2010/2001.md#asking-brian-if-he-remembered-ugly-in-2024) and then again in [August 2024](../2024/august.md#ugly).
+- You remember [Ugly from 2001](../2001-to-2010/2001.md#asking-brian-if-he-remembered-ugly-in-2024) and then again in [August 2024](../2024/august.md#ugly) as the gangs were panicking especially due to [mine and Antonio's military service I just mentioned](#facebook-shuts-me-down) which upset the Americans when I mentioned it, a lot.
+- I've started calling him Auggie after a film I saw in Jerusalem in July 2026 at the Dan Panorama about a little boy with a facial disfigurement which may or may not be a #GreatRay given that Auggie is obviously in the Bible: Isaiah 52 to be precise.
 - Well, his face is hidden in his jacket but they've set up a meet as I'm walking back to Beckett Locke from the Avila centre one evening.
 - God sees him clearly and makes me gnash my teeth at him.
 - The agent laughs uproariously as I do so.
 - It must have been really funny.
+- When Auggie realized he had been set up in [August 2024 at the baths in Cauterets](../2024/august.md#ugly), he defected to the CIA and started grassing everyone up apparently.
+- Auggie did not know that the American's had set him up, and that they work very closely with the Lopez Cano's on practically everything in Dénia, and so he defected to the same side essentially and there were no arrests, nothing changed, and the criminals just kept happily and safely raping the babies.
 
 ### I see an IRA man
 
