@@ -73,7 +73,7 @@ function googleTranslateElementInit() {
 - I explain that Natalia was targeted by the porn-gangs in Spain, that they had done the same to me too and tried to murder me, and that they even got a baby out of her.
 - Stella looked ashen when I mentioned the baby, and a little bit like Domingo at one point; like totally pale and monstrous.
 - Whatever hallucinogenic substance I had ingested was, by then, exaggerated things to this extent.
-- I now believe Stella introduced Natalia to Domingo Lopez Cano on request from the CIA - it's what they do - and all this was set up so that I might continue to believe the Americans were investigating the sex-crime epidemic of Dénia.
+- I now believe Stella introduced Natalia to Domingo Lopez Cano on request from the CIA - it's what they do, mostly I believe because they really don't think there's anything wrong with porn or brutalizing women - and all this was set up so that I might continue to believe the Americans were investigating the sex-crime epidemic of Dénia.
 
 #### Getting to know everyone
 
