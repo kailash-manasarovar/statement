@@ -451,6 +451,8 @@ function googleTranslateElementInit() {
 
 ![God's tyre print](../../content/images/gods-tyre-print.png)
 
+- I think this is related to [Fiona's friend who was murdered in Glastonbury](../2022/july.md#a-murdered-course-in-miracles-student) and I wonder who got it.
+
 ### Oh, saving the world, you know, nothing special
 
 - One morning the Aussie guys asks me how I'm doing.
