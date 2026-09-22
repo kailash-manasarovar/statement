@@ -12,6 +12,12 @@
 - I've just thrown everything else from those times (a few months ago) away too now. It's really a huge hassle you know. I wish it would stop. I hope it has stopped now.
 - I hope we're all gonna end up friends now; and the bad folk do the right thing and not try to hide from the consequences of their foolish activity. That'd be really good. Then I'd really like to see squirrel.
 
+### Madame Sordes
+
+![Madame Sordes](../../content/images/madame-sordes.png)
+
+- Just like [the futarderie](../2025/august.md#the-futarderie) from July 2025.
+
 ## Two Announcements
 
 Before we get going, me and my beautiful feet, I have two important announcements to make.

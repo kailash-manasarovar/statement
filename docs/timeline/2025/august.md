@@ -71,6 +71,7 @@ function googleTranslateElementInit() {
 - When I get back home my mother confirms, she found the same or similar disturbing sexual reference for it.
 - This photo was put there by the CIA, and no-one can say the *tone* is positive or caring.
 - This is what they've been like all these years I've been trying to get help.
+- They do a similar thing, using the same font, with the doorbell on my door in Cauterets in September 2026 which has a label, [*Madame Sordes*, meaning *Mrs Sordid*](../2026/september.md#madame-sordes).
 
 ## A song to the mountains
 
