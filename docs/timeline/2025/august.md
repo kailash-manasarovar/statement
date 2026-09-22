@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
 
 ## All over me like scabies in Cauterets
 
-- Yeah, this was intense, and I was so high.
+- Yeah, this was intense, and I was so high - painkillers after surgery mostly, I'm guessing.
 - They were everywhere, no question now.
 - But my mind was so hazy it was hard to figure it all out; and in fact, I didn't at all.
 - But anyway, this section is not ready for detailed editorial yet so I'm just sketching and will add anything necessary.
@@ -29,6 +29,14 @@ function googleTranslateElementInit() {
 - A toddler getting passed around - I thought they were seeing if I'd raise the alarm but I knew it was phoney.
 - What was the purpose of it all; it was really getting silly by then, but I was so high my head was swimming.
 - Oh, that was it. Keep me from thinking straight and seeing the obvious.
+
+### Jitendra Das lookalike at the thermal baths
+
+- Yup, they even did this!
+- Why?
+- I think they're insane.
+- My guess is they knew they were going to murder me, so they thought they'd have a bit of fun and take the piss in the meantime.
+- And the women operatives won't have been thinking this way, either, just the men, and perhaps only the (good, I imagine) proportion of male security service operatives who are addicted to criminal porn.
 
 ### Cupcakes
 
