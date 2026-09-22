@@ -391,7 +391,7 @@ function googleTranslateElementInit() {
 
 ### A meeting with someone important in Bali who knows what happened at the Hyatt in May 2024
 
-- On the Sunday, we all went for a walk and had lunch - oh Vincent didn't attend this, perhaps that's when he got injured.
+- On the Sunday, we all went for a walk and had lunch - Vincent and his mother did not attend this.
 - At the time, I think they're doing this to give me *some small reason* for all their insane and criminal activity.
 - Now I've lost all faith I ever had in these people, I wonder if they're blackmailing the Bali businessman they invited who was somehow involved in [Polygon's sedated-rape scam in Bali in May 2024](../2024/may.md#bali), when Elon attended, or perhaps they're threatening him with my presence to make sure he doesn't tell.
 - Perhaps at the same time they're trying to convince me that someone is going to do something about the baby-rape industrialists - but I expect they just thought I'm an idiot.
@@ -409,10 +409,12 @@ function googleTranslateElementInit() {
 - Another official-looking Brit - who I have seen before and remembered where, then forgot, maybe at a retreat somewhere in the UK - was asking me about my intentions, would I ever come back to the UK, that sort of thing.
 - They were all actors.
 - It was total bananas.
-- And then they realized I knew exactly what was going on so they brought me in a tiny bit.
+- And then they realized I knew exactly what was going on, and this was happening in a non-threatening way to them, so they brought me in a tiny bit.
+- I think that's God.
 - Anyway.
 - At lunch that day was (hint-suggest-nudge apparently) the important landowner in Bali who had known what had happened with Polygon at the Hyatt.
 - Did he organize Elon's visit that week?
+- Had we been visiting *him* on the boat that day with Anthony Matlala?
 - And the lunch was all a bit cloak and dagger, and hush hush, and I was getting used to all this.
 - And all the yoga students (agents/actors) were prompting me to say things, and, we're sitting right beside this Bali VIP, and, never one to disappoint, after the man (my yoga chum aka agent) had told me, loudly, that he'd been unconscious for a whole week years before, and he didn't know what had happened to him during this time but he'd had PTSD ever since, I got very cross and said rather loudly: 
 - *I hate it that they did that to you. They're such shit bastards aren't they!*
