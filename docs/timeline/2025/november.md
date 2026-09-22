@@ -117,7 +117,7 @@ function googleTranslateElementInit() {
 - There are discrepancies but nevertheless it's somewhat comforting after trudging many circles of seemingly endless criminal hell.
 - On the room service menu there seems to be only pages and pages of Caesar salad on offer. Very amusing.
 - I get a wound on my left groin which doesn't behave like a normal boil. In fact, if I had been pierced there, it would be problematic because that was a boil area and so I used skin-thinning cream on it.
-- This wound reopens in July 2024.
+- This wound reopens in July 2026.
 
 ### Every last one of them
 
