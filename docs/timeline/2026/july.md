@@ -392,8 +392,8 @@ function googleTranslateElementInit() {
 
 - On the Sunday, we all went for a walk and had lunch - oh Vincent didn't attend this, perhaps that's when he got injured.
 - At the time, I think they're doing this to give me *some small reason* for all their insane and criminal activity.
-- Now I've lost all faith I ever had in these people, I wonder if they're blackmailing the Bali businessman they invited who was somehow involved in [Polygon's sedated-rape scam in Bali in May 2024](../2024/may.md#bali), when Elon attended, or perhaps they're threatening him to make sure he doesn't tell.
-- Perhaps they're trying to convince me that someone is going to do something about the baby-rape industrialists.
+- Now I've lost all faith I ever had in these people, I wonder if they're blackmailing the Bali businessman they invited who was somehow involved in [Polygon's sedated-rape scam in Bali in May 2024](../2024/may.md#bali), when Elon attended, or perhaps they're threatening him with my presence to make sure he doesn't tell.
+- Perhaps at the same time they're trying to convince me that someone is going to do something about the baby-rape industrialists - but I expect they just thought I'm an idiot.
 - They've put millions into this lie. Millions and millions.
 - All this for my eggs? And then what. No doubt bad intentions.
 - The VIP they're targeting is also, incidentally, the owner of [the holiday housing estate I'm staying at, Cidana Putra](https://www.google.com/maps/place/Sadana+@+Ciputra+Beach+Resort/@-8.5932351,115.0780038,867m/data=!3m1!1e3!4m14!1m7!3m6!1s0x2dd239494be08af1:0x89c8ea0c1bf6dc31!2sLoka+Yoga+School!8m2!3d-8.5945877!4d115.0846235!16s%2Fg%2F11nym8642j!3m5!1s0x2dd2377225ebba59:0x3c00335d560f8679!8m2!3d-8.5937484!4d115.0758602!16s%2Fg%2F11h71kwypp?entry=ttu&g_ep=EgoyMDI2MDgxMi4wIKXMDSoASAFQAw%3D%3D); 22-7 lock up as it were.
