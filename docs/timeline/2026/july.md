@@ -591,13 +591,13 @@ function googleTranslateElementInit() {
 - Remember.
 - God *is* a lost limb for so many.
 - They don't even realize.
-- There's so much more I can tell you from these two weeks in Bali... but I'll leave it here unless I get a compulsion.
 - I can tell you I paid nearly £3000 for the course and I wouldn't dare ask for a refund!
 - I mean, can you imagine them reaching a hand out after spending so many millions on me and getting what they wanted when they despise me like they do?
 - No, they don't operate this way: *loving and kind*.
 - The irony is that *loving and kind* is true strength - and that doesn't include saying *be kind* to everyone and being quite the opposite.
 - Auto-violence and violation as core process is a mighty declaration of weakness.
 - In any case, they owe me billions since [Tanya (Tanya!! omg) recruited me for the intuitive program in April 2006](../2001-to-2010/2006.md#total-eclipse-of-the-sun), without my consent or conscious awareness, and I helped bring down a real thorn in their side, single-handedly, while they knew I could be counted on to be raped, murdered, whatever... and no-one would give a damn.
+- Actually, I think I was recruited right after Lockerbie and Winston May and his gang were tasked by the CIA to start up the required trauma and immersion into porn world I would need to fit right in in Dénia. And I think I know how and who set that up too.
 - And *that* is the main reason their attitude towards me prevails, while leading me into fiery furnaces they cannot even have imagined back then; that I, an innocent tax-paying civilian that has done the impossible, am utterly worthless, apart from my eggs which they'll literally murder to get hold of.
 - Adams and the porn-gangs of Spain knew, didn't they, and that's why they were astronomically outrageous with me, isn't it. 
 - Every thing they did to me was an *up yours* to the mousses, wasn't it.
@@ -653,7 +653,9 @@ function googleTranslateElementInit() {
 - I bet everyone has known for decades.
 - It's a lovely world we live in, isn't it!
 
-## All over me like scabies at the Dan Panorama Jerusalem
+## Israel
+
+### All over me like scabies at the Dan Panorama Jerusalem
 
 - The Americans are there pretty much immediately; ice-cold women who I have no doubt would murder me in an eye-blink and really, *really*, want to.
 - But, curiously, they've brought thousands of Spanish along with them too - it's a last minute tour group of some variety.
@@ -677,3 +679,18 @@ function googleTranslateElementInit() {
 - Truth be told, if you're Spanish, you automatically work for the Americans; amiright? Of course I am.
 - So that's why no-one's been able to do a thing about the criminal sex-offending in Dénia and the public and government school systems of Spain.
 - ! WOW !
+
+### Alex in Mamilla
+
+- The first Friday Sabbath evening I'm there, I bump into a man on my way back to the hotel from the Kotel.
+- He introduces himself as Alex.
+- I remember Mrs Wasserman had a nephew called Alex involved in IT, or something like that.
+- He's on the phone with three religious Jewish men and he shows me them and I wave hi.
+- It was such a short conversation but in minutes he knew I had a PhD in Computer Science and he wanted to know more about that.
+- I told him I could send him my CV maybe, but he wasn't interested in that.
+- Then I remembered my app, the forgivenet: https://1frgvn.com/ and told him about it.
+- He got really excited about it.
+- He's asking me some questions: *so what about the token, what does it do?*
+- I tell him it's a global currency of love.
+- He gets scared at this point, and scurries off into the hotel.
+- I know right. It's big. Like I told my brother in 2013. Like Truman tells his best mate as the conspiracy collapses.
