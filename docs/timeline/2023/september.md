@@ -922,7 +922,7 @@ function googleTranslateElementInit() {
 - She knows Lorraine.
 - I ask her what happened to Lorraine, why did she kill herself.
 - She mumbles something about Lorraine's macho boyfriend, and then says that Alessandra will tell me, who is also a shared friend.
-- Another woman comes for coffee, an Irish woman I've never met before, and behaves in an extraordinarily weird manner.
+- Another woman comes for coffee, an Irish woman I've never met before, and behaves in an extraordinarily weird manner; affected, fake.
 - I tell them all something's going on, that I'm hacked by locals at the conservatory, and I'm feeling famous but not for good reasons.
 - I never see Brenda or Sheila again.
 - When teachers and staff at the conservatory [suffocate me while sedated in March 2024](../2024/march/13-end.md#the-pillow-game), Brenda is one of the people I text when I wake up convinced I'm going to be murdered.
