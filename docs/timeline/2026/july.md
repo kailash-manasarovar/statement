@@ -251,7 +251,8 @@ function googleTranslateElementInit() {
 - The whole "bridge to Israel" is a major theme, from the moment I got in the taxi at the Holiday Inn.
 - They flashed up Isaiah on his screen and were playing songs with very suggestive "bridge" lyrics, perhaps that was even the song title: *You're mine!*
 - In class there was a lot about how lonely I was going to be there, how Israel is the world's laundry, all sort of rubbish.
-- At the house, they were implying (online on social media, on Netflix Snoopy videos and then when Netflix stopped working on the Snoopy videos on YouTube) that Bibi was watching me in the house.
+- At the house, they were implying (online on social media, on Netflix Snoopy videos, and then when Netflix stopped working on the Snoopy videos on YouTube) that Bibi was watching me in the house.
+- ikr.
 - Things I did in the house were repeated back at me so I know for sure they really are watching.
 - They told me I shouldn't waft if I fart - which is something I used to do back in the day, long long ago in Carrer Furs, when I had no idea I was being watched 24/7.
 - The instruction that I should dress well all the time, even at home, because I'm being watched all the time and assessed for rescue and Israeli immigration.
@@ -260,7 +261,7 @@ function googleTranslateElementInit() {
 - Getting over my "planning habit" has been one small benefit to me of all this madness.
 - A Jewish-looking woman on the bus back from our Sunday excursion asks me the sort of questions a person assessing you for immigration might ask.
 - Carolina (a Polish woman from Australia - who may have kept changing her accent from Aussie to German, bizarrely) played the "bridge manager" role and was one of the few course participants who lived in the same housing estate - like Vincent and his mum.
-- Because of that I do wonder if Vincent was the surgeon and Carolina was the nurse for sedated surgery, but who knows. I guess we'll be finding out.
+- Because of that I do wonder if Vincent was the surgeon and Carolina was the nurse for sedated surgery, but who knows. It would explain the surfing injury maybe. I guess we'll be finding out.
 
 ### Involving the locals
 
@@ -272,7 +273,7 @@ function googleTranslateElementInit() {
 
 #### The fake pervert in security
 
-- So they set up a situation where it's the first morning of the first day, and I'm walking into the school in the dark before the sunrise, and I'm just passing the security gate at the estate, and a guard (out of uniform - they're usually dressed up well) is lying down looking at his phone, in a position no-one would ever be in because he's sitting the wrong way around in his chair, but in this position he can see me perfectly as I walk by, and he's well lit by the cabin light so I can see him perfectly too, and as I walk by he pretends he's masturbating to porn on his phone.
+- So they set up a situation where it's the first morning of the first day, and I'm walking into the school in the dark before sunrise, and I'm just passing the security gate at the estate, and a guard (out of uniform - they're usually dressed up well) is lying down looking at his phone, in a position no-one would ever be in because he's sitting the wrong way around in his chair, but in this position he can see me perfectly as I walk by, and he's well lit by the cabin light so I can see him perfectly too, and as I walk by he pretends he's masturbating to porn on his phone.
 - He's even grinning at me as he does it.
 - I wag my finger at him - sort of mock-angrily - and carry on walking.
 - And promptly forget about it.
@@ -306,10 +307,10 @@ function googleTranslateElementInit() {
 #### The Bible falls open at Isaiah 31
 
 - Taryn and her boyfriend Yan come round to check the windows have been blacked out properly.
-- I have just been doing my bible study, which entails opening the bible wherever it may open and reading that bit.
-- The doorbell rings and I leave the open bible on the bed to go and answer the door. 
+- I have just been doing my Bible study, which entails opening the Bible wherever it may open and reading that bit.
+- The doorbell rings and I leave the open Bible on the bed to go and answer the door. 
 - They come up to see the work on the windows.
-- My bible is open on the bed at Isaiah 31.
+- My Bible is open on the bed at Isaiah 31.
 - I see Taryn glance at it.
 - Are they following along? Or do they think God is dead?
 - The helpers and the helped. Every last one of them.
@@ -342,7 +343,7 @@ function googleTranslateElementInit() {
 ### Snake
 
 - On Thursday morning, as I'm leaving the yoga school, a snake passes me on the road.
-- It slides out of one rice paddy field, slithers across the road right in front of my feet, and into the rice paddy field opposite.
+- It is sliding out of one rice-paddy field, slithering across the road right in front of my feet, and down into the rice-paddy field opposite.
 - It's so astonishing I thought it had to be a robot. 
 - Snakes warn me something evil is coming, or before me, and I used to see them in Dénia before "events" too; significantly on the 12th June on my way to class there was a snake in the curb that I went over to say hello to (I like snakes).
 - The Loka Yoga snake was easily the biggest snake of them all.
