@@ -67,6 +67,17 @@ function googleTranslateElementInit() {
 - Do you think they're the instigators of the sedated-rape plague, making sure that women do all their dirty work for them?
 - It wouldn't surprise me.
 
+## Hyderabad
+
+- I visit India to complete jyotirlinga pilgrimage - although I still have to go back to Kedarnath and I've obviously not visited Pakistan or Kashmir except given how well we're doing I believe that will be a possibility shortly!
+- As usual, I'm surrounded by agents on the plane; a bunch of very Jewish looking ones too, young people, army.
+- The suggestion is always rescue.
+- At Hyderabad, the Internet is down in the whole airport, so I'm unable to complete my landing card.
+- It's chaos.
+- I don't see the youngsters again, but I do see a lot of power-dressed American women around instead.
+- One of them is standing at the next passport counter while I'm trying to explain what I'd written on my landing card - when I borrowed an employees Internet - which the website didn't save anyway.
+- She reminds me of [the very obvious CIA woman](../2024/january.md#the-obvious-cia-woman) that turned up to module 2 of Transforming Touch in Galway in 2024. I don't think they were *actually* the same woman but they looked exactly the same: same dress, same posture, same mannerism, same energy.
+
 ## A bridge collapses again
 
 - This is in reference to constant hints and suggestions that I would not be going back to the UK in January when I left Thailand; the thought of which was inordinately upsetting.
