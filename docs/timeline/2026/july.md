@@ -10,18 +10,26 @@ function googleTranslateElementInit() {
  
 ## Loka yoga
 
-- YTT.
 - I decide to try and do productive things with my time while I'm stalked endlessly by international security services and criminal gangs.
-- I pick a month's long yoga teacher training course in Bali.
+- I sign up for Yoga Teacher Training with Loka Yoga in Bali: https://lokayogaschool.com/ about three weeks before I attend, but I've been looking at the courses in Bali online for months already.
 - It's agents. Everyone there. Is an agent.
+- I even knew one of them personally from over ten years previous - but I'm not telling that story, someone else can when the time is right.
 - The whole thing is set up for me.
-- I endure an intense psychological breaking day or two - this was really horrible - and I quickly realize they're not who they say they are, but something is very interesting about what's going on, so I'm hooked on finding out the truth, and so I tell them I'm only coming in for the yoga at the beginning of the day.
+- I endure an intense psychological-breaking day or two, enhanced with spiked drugs - this was really horrible - and so I quickly realize they're not who they say they are, but something is very interesting about what's going on, so I'm hooked on finding out the truth, and so I tell them I'm only coming in for the yoga at the beginning of the day.
 - They make sure that, by making the rest of the sessions excruciating, that if I don't run away immediately, I'll only come to in the mornings.
-- For two weeks, I do yoga between 6-8am, and I stay the rest of the day, on my own, in silence in a house in Bali in the middle of nowhere.
+
+!!! danger  "I wonder what might have happened..."
+    - If I'd freaked out and ran away immediately.
+    - Not very good things, I imagine.
+
+- For two weeks, I do yoga between 6-8am, pick up my ready-cooked meals and stay the rest of the day, on my own, in silence, in a house in Bali at the [Ciputra Beach Resort](https://ciputrabeachresort.com/); a very quiet area seemingly in the middle of nowhere.
+
+![Ciputra house](../../content/images/ciputra-house.png)
+
 - There's agents next door though, on all sides. But they don't talk to me. 
 - They're all pretending to not be American.
 - Eventually, I decide I'm leaving because I feel like I'm under house arrest - like I don't mind extended house arrest such as in Samui, where it's not like solitary confinement (apart from when it affects the local businesses, I don't like that) but this was OTT.
-- It was clear to me, eventually, that the people "arresting" me, as it were, although on my side in certain respects (law-enforcement being the main one - although my trust has failed here too now) they do not have my/our long term best interests in mind.
+- It was clear to me, eventually, that the people "arresting" me, as it were, although on my side in certain respects (law-enforcement being the main one - although my trust has failed here too now) they do not have anyone's long term best interests in mind, even their own.
 
 ### Arriving
 
