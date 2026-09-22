@@ -518,6 +518,7 @@ function googleTranslateElementInit() {
 
 - They suggested to me they'd found Chris Ludwick's excel sheet that details his criminal porn collection.
 - My view is he gave the VHS's to Mel to look after - I think he has/had an allotment in Hornsey somewhere.
+- I told them that on my Samsung ages ago - which I believe is full controlled by the CIA - so if no-one else received that message, bingo!
 
 ### Snoopy videos
 
