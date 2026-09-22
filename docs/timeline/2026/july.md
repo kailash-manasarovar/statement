@@ -11,12 +11,11 @@ function googleTranslateElementInit() {
 ## Loka yoga
 
 - I decide to try and do productive things with my time while I'm stalked endlessly by international security services and criminal gangs.
-- I sign up for Yoga Teacher Training with Loka Yoga in Bali: https://lokayogaschool.com/ about three weeks before I attend, but I've been looking at the courses in Bali online for months already.
+- I sign up for Yoga Teacher Training with Loka Yoga in Bali: https://lokayogaschool.com/ about three weeks before I attend, but I've been looking at courses in Bali online for months already.
 - It's agents. Everyone there. Is an agent.
 - I even knew one of them personally from over ten years previous - but I'm not telling that story, someone else can when the time is right.
 - The whole thing is set up for me.
-- I endure an intense psychological-breaking day or two, enhanced with spiked drugs - this was really horrible - and so I quickly realize they're not who they say they are, but something is very interesting about what's going on, so I'm hooked on finding out the truth, and so I tell them I'm only coming in for the yoga at the beginning of the day.
-- They make sure that, by making the rest of the sessions excruciating, that if I don't run away immediately, I'll only come to in the mornings.
+- I endure an intense psychological-breaking day or two, enhanced with spiked drugs - this was really horrible - and so I quickly realize they're not who they say they are, but something is very interesting about what's going on, so I'm hooked on finding out the truth, and so, after a couple of days of pure torture, I tell them I'm only coming in for the yoga at the beginning of the day.
 
 !!! danger  "I wonder what might have happened..."
     - If I'd freaked out and ran away immediately.
@@ -26,14 +25,15 @@ function googleTranslateElementInit() {
 
 ![Ciputra house](../../content/images/ciputra-house.png)
 
-- There's agents next door though, on all sides. But they don't talk to me. 
-- They're all pretending to not be American.
-- Eventually, I decide I'm leaving because I feel like I'm under house arrest - like I don't mind extended house arrest such as in Samui, where it's not like solitary confinement (apart from when it affects the local businesses, I don't like that) but this was OTT.
-- It was clear to me, eventually, that the people "arresting" me, as it were, although on my side in certain respects (law-enforcement being the main one - although my trust has failed here too now - statement written pre-eclipse) they clearly do not have anyone's long term best interests in mind, even their own.
+- There are agents next door though, on all sides. But they don't talk to me. 
+- They're all pretending to *not* be American.
+- Eventually, after two weeks of it, I decide I'm leaving because I feel like I'm under house arrest - like I don't mind extended house arrest such as in Samui, where it's not like solitary confinement (apart from when it affects the local businesses, I don't like that) but this was OTT.
+- It was clear to me, eventually, that the people "arresting" me, as it were, although on my side in certain respects (law-enforcement being the main one - although my trust has failed here too now - statement written pre-Jerusalem when God started telling me all about them) they clearly do not have anyone's long term best interests in mind, especially their own.
 
 ### Arriving
 
 - They make a point of telling us how trustworthy the taxi driver is, and then switch him at the last moment without telling me.
+- I did wonder if I was being kidnapped.
 - I'm high that night.
 - How do I know?
 - The cockroach in the bathroom was about a metre tall and my reaction to it was extraordinarily exaggerated. 
@@ -96,7 +96,7 @@ function googleTranslateElementInit() {
 - I tell him what's going on with me very openly - about how I am homeless, and jobless, living in my car essentially, because I'd been sedated and raped repeatedly for years and live-streamed from my spy-cam apartment in Dénia, Spain to the world, and how since then I am stalked by criminal gangs and secret service wherever I go in the world.
 - He tells the others my answers.
 - We didn't finish all the questions so I answer the rest of them directly to the group.
-- When I get to "what's your party trick" or the next question, I tell them "I have survived repeated poisoning attempts by criminal gangs"..
+- When I get to the question after "what's your party trick" (which I can't remember, something like what will you be remembered for, they can confirm), I tell them "I have survived repeated poisoning attempts by criminal gangs"..
 - I explain I have been poisoned repeatedly, I explain by criminal gangs, and I tell them I don't die.
 - No-one seems particularly surprised or mentions it again.
 
@@ -140,6 +140,7 @@ function googleTranslateElementInit() {
     - Three-legged dog - referencing my neighbors dog in Las Marinas who may have starred in porn with me.
     - *Just another lemon tree*, musical backing track to applied hyno-tech in 2023 - proof that the salmon mousses were hacking me alongside the porn-gangs in Las Marinas.
     - *Project Jonathan* - constant references online to this and a few times at the centre. This is in relation to [Jonathan getting an egg](../2025/september.md#jonathan-tells-me-he-has-the-shingles-virus) from me. This makes me think in August when I'm in Jerusalem that they've set the Jews up to take the blame for this. Or did they have another evil scheme in mind, who knows. Perhaps they're aware my internal injuries are not going to be ignorable for so long. Ironically, throwing the Jews under the bus like this becomes significant and top-of-mind, and gets me thinking about [Michael Sullivan who worked for Pan Am](../pre-2001/1989.md#sullivan).
+    - You can help so many sick people in the world - suggesting because I survive poisoning there's something inherent in my body that can help them: their total and utter reinterpretation of Jesus.
     - (I'll keep adding these in as I remember them..., it's gonna be quite a list)
 
 - It was a battering.
@@ -374,6 +375,10 @@ function googleTranslateElementInit() {
 - I made a lot of updates to the statement in Bali.
 - And I have to wonder who's turn it's been on their other off-sites since then, and before too, and whether this is now an industry expectation: *rape the female colleague you hate on our off-sites... she'll never know!!!! ... and if she does find out, don't worry, we'll make sure the secret services silence her*.
 - Do you think they add it to job ads and specs, *special events* maybe, like they say at the swingers club in Dénia?
+
+### Cats can survive on sea-water
+
+- wip
 
 ### Another criminal is brought around the world for viewing
 
