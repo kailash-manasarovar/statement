@@ -403,10 +403,9 @@ function googleTranslateElementInit() {
 - I think management must have been worried about them loving me back, in case that messed with *finishing me off* a week or so later, amiright?, of course I am.
 - One time, it was when I was describing to an American ex-military how I'm probably related to General George Patton (not confirmed yet) but sometimes I even look like him a bit. She disappeared in seconds, pretending to look at flowers.
 - Or another would be told how to act with me, and be a bit of a brute, and sometimes it was so ridiculous I found it quite amusing.
-- They were taking roles, and swapping them, and I think even the dogs were trained to move away from me, and towards a pen clicking I believe.
 - One of them was pretending to be an Israeli on the bus, and asking me questions as if I was seeking asylum.
 - Another was pretending to be a government official in charge of the "bridge". 
-- Another, Brit - who I have seen before and remembered where, then forgot, maybe at a retreat somewhere in the UK - was asking me about my intentions, would I ever come back to the UK, that sort of thing.
+- Another official-looking Brit - who I have seen before and remembered where, then forgot, maybe at a retreat somewhere in the UK - was asking me about my intentions, would I ever come back to the UK, that sort of thing.
 - They were all actors.
 - It was total bananas.
 - And then they realized I knew exactly what was going on so they brought me in a tiny bit.
@@ -418,8 +417,8 @@ function googleTranslateElementInit() {
 - *I hate it that they did that to you. They're such shit bastards aren't they!*
 - And the other agent lady who I love sitting in between this VIP man and his wife and our classmate spat out her tea!
 - It was hilarious.
-- So, a positive result of my Bali stay was I have been thinking about May 2024's events more closely, and remembering even more weird things, and realizing that I was probably sedated and raped for most of that week with my employer, crypto-giant [Polygon Labs](https://polygon.technology/about).
-- I made a lot of updates to the statement in Bali.
+- So, a positive result of my Bali stay was I have been thinking about May 2024's events more closely, and remembering even more weird things, and realizing that I was probably sedated and raped for most of that week by my employer, crypto-giant [Polygon Labs](https://polygon.technology/about) who even have a lawyer who makes speeches about crypto currency in Washington - well whaddaya know!
+- I made a lot of updates to the statement in Bali after that.
 - And I have to wonder who's turn it's been on their other off-sites since then, and before too, and whether this is now an industry expectation: *rape the female colleague you hate on our off-sites... she'll never know!!!! ... and if she does find out, don't worry, we'll make sure the secret services silence her*.
 - Do you think they add it to job ads and specs, *special events* maybe, like they say at the swingers club in Dénia?
 
