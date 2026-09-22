@@ -139,13 +139,13 @@ function googleTranslateElementInit() {
     - Standing spit - referencing a sedated porn position.
     - Three-legged dog - referencing my neighbors dog in Las Marinas who may have starred in porn with me.
     - *Just another lemon tree*, musical backing track to applied hyno-tech in 2023 - proof that the salmon mousses were hacking me alongside the porn-gangs in Las Marinas.
-    - *Project Jonathan* - constant references online to this and a few times at the centre. This is in relation to [Jonathan getting an egg](../2025/september.md#jonathan-tells-me-he-has-the-shingles-virus) from me. This makes me think in August when I'm in Jerusalem that they've set the Jews up to take the blame for this. Or did they have another evil scheme in mind, who knows. Perhaps they're aware my internal injuries are not going to be ignorable for so long. Ironically, throwing the Jews under the bus like this becomes significant and top-of-mind, and gets me thinking about [Michael Sullivan who worked for Pan Am](../pre-2001/1989.md#sullivan).
+    - *Project Jonathan* - constant references online to this and a few times at the centre. This is in relation to [Jonathan, Mrs Wasserman's nephew, getting an egg](../2025/september.md#jonathan-tells-me-he-has-the-shingles-virus) from me. This makes me think in August when I'm in Jerusalem that they've set the Jews up to take the blame for this. Or did they have another evil scheme in mind, who knows. Perhaps they're aware my internal injuries are not going to be ignorable for so long. Ironically, throwing the Jews under the bus like this becomes significant and top-of-mind, and gets me thinking about [Michael Sullivan who worked for Pan Am](../pre-2001/1989.md#sullivan).
     - You can help so many sick people in the world - suggesting because I survive poisoning there's something inherent in my body that can help them: their total and utter reinterpretation of Jesus.
     - I practice naked yoga - one of the men says this. Urgh.
     - (I'll keep adding these in as I remember them..., it's gonna be quite a list)
 
 - It was a battering.
-- Why would they do something like this? I couldn't understand it at all. And while it was going on (whirl-winding around me, slap, slap, thump) I was unable to assess it properly.
+- Why would they do something like this? I couldn't understand it at all. And while it was going on (whirl-winding around me, slap, slap, thump), and I was high on something, I was unable to assess it properly.
 - It was *exactly* like how the porn-gangs operate on targets, except even more exaggerated, and I felt like I was back in classes at the conservatory.
 - I started to feel the cameras on me too; as if there were hundreds in the room - they would make sure I was standing in a particular spot at times.
 - I felt sensors measuring my physical systems, heart rate, temperature, everything.
@@ -169,7 +169,55 @@ function googleTranslateElementInit() {
 - The terribly irreverent priest says some weird things like he's not taking anything seriously and knows who these people are: *thank you for the airport*, he says.
 - This is the first day over, unless there was something else, yes there was because the flowers from the ceremony kept going over the floor.
 - There was another session of psychological torture before the day ended; I have no idea what the content of the session had actually been.
-- The torture was so effective that it totally dissociated me and I have no recollection of what these sessions were posing as.
+- The torture was so effective that it totally dissociated me and I have no recollection of what these sessions were even posing as.
+
+### Second day
+
+- I'm high and I'm getting a headache. 
+- I come for yoga and plan on attending the full day.
+- The yoga class is full of intense twisting and I'm wondering if they're trying to get my rib to snap again so I won't even be able to attend yoga classes. 
+- I take super extra care of my rib for the whole two weeks.
+- It is exactly the same as the day before; a full on psychological assault while I'm excessively high on something.
+- It starts with physiology and again it's just meme after meme, even referencing conversations I've had online with the gypsies, amazing.
+- At this point, however, I have a feeling, however, that something loving and kind is communicating through me back at them, and sometimes I notice it too.
+- Again, I stay in the circle, or as far away from it as I can be without disconnecting completely, with my face down so the cameras aren't recording every twitch.
+- The class content is designed around mass porn-gang sexual-violence rape-gang-porn-star meme triggers, or me being a superhero, or whatever; the faux content of the classes is secondary and not really what you would expect at all from a YTT.
+- So, at the end of the second day, I call it a day. 
+- I wonder if it was the third day, I was so high those few days I can't remember well.
+- They've given me an out in any case by saying you can come to whatever classes you like and not sit the exam.
+- So I inform them I'm taking this decision and only coming to yoga in the morning.
+- It's what they intended.
+
+### Weird body positions
+
+- We're asked to make shapes you wouldn't be asked to make in actual yoga.
+- For example, put your fists between your knees to measure the correct distance between your open knees, with a demo from the teacher.
+- My knees are splayed, the whole pose would collapse like this.
+- This is no measurement.
+- I realize it was a position I was put in while sedated, so it's on film.
+- Other things like that.
+- Body positions I made while masturbating in my bathroom with the lights on.
+- Always something.
+- It's so embarrassing, you cannot imagine.
+- I mean, when every man with a porn subscription has seen you doing these things, and would recognize you in the street, at your job, anywhere in the world, the embarrassment on its own due to the (snickery) attitudes they have about you from seeing you like this totally destroys your life; murder by embarrassment.
+- I think this justifies at least a billion more in compensation.
+
+### Two or three days of this before the non-visual-hallucinogen wears off
+
+- I think it was Tuesday afternoon when I started to yawn excessively, the anxiety and dissociation dissipating.
+- I was finally coming down.
+- I'd arrived on Saturday and been high since then.
+- So I'm in Bali in this house on my own going to yoga for a couple of hours in the morning, and I'm being fed, watered (they suggested to me that I was drinking salt-water for days and didn't die - I don't believe them), and monitored closely, every move, every word, every breath.
+- There's a pool in the complex but there's rarely anyone there.
+- I'm writing every day, and it's another conversation with the people that are trying to control me, as whatever comes up seems to map in extraordinary ways with whatever's going on.
+- It's curious.
+- It's God.
+- And I think he's annoyed with them.
+- I'm sober and continue going to classes, and they continue to do their horror meme triggering thing - this time it was music repeated the Tibetan monk's name over and over, which I didn't even notice for a while sober it was so ridiculous.
+- I tell them so online later on; what did I say, something like it's just *trifles* really, and then later online I said *trifles* was euphemistic for a bit silly.
+- Fatuous is the better word.
+- It stops.
+- Just like with the Dénia porn-gangs, the manipulation needs drugging to work effectively.
 
 ### Another bridge 
 
@@ -177,12 +225,14 @@ function googleTranslateElementInit() {
 - They flashed up Isaiah on his screen and were playing songs with very suggestive "bridge" lyrics, perhaps that was even the song title: *You're mine!*.
 - At the house, they were implying (online on social media, on Netflix Snoopy videos and then when Netflix stopped working on the Snoopy videos on YouTube) that Bibi was watching me in the house.
 - Things I did in the house were repeated back at me so I know for sure they really are watching.
-- They told me I shouldn't waft if I fart - which is something I used to do back in the day, long long ago, when I thought I wasn't being watched 24/7.
+- They told me I shouldn't waft if I fart - which is something I used to do back in the day, long long ago in Carrer Furs, when I had no idea I was being watched 24/7.
 - The instruction that I should dress well all the time, even at home, because I'm being watched all the time and assessed for rescue and Israeli immigration.
-- This meme I'm still seeing in Cauterets in September 2026! And I know they're watching me here too.
-- It's everywhere, constant, and especially in places I stay in which are booked long in advance.
-- I've stopped doing that now.
+- This online meme is something I'm still seeing in Cauterets in September 2026! And I know they're watching me here too.
+- They're all over me, all the time, everywhere I go, it's constant, and especially in places I stay in which I booked long in advance.
 - Getting over my "planning habit" has been one small benefit to me of all this madness.
+- A Jewish-looking woman on the bus back from our Sunday excursion asks me the sort of questions a person assessing you for immigration might ask.
+- Carolina (a Polish woman from Australia - who may have kept changing her accent from Aussie to German, bizarrely) played the "bridge manager" role and was one of the few course participants who lived in the same housing estate - like Vincent and his mum.
+- Because of that I do wonder if Vincent was the surgeon and Carolina was the nurse for sedated surgery, but who knows. I guess we'll be finding out.
 
 ### Involving the locals
 
@@ -249,51 +299,6 @@ function googleTranslateElementInit() {
 - I'm starting to wonder if they've fired this man instead of the other one on purpose... but it's all so suspect - scheming all over it - I decide it's better not to think about it at all.
 - I go into my massage and the women there look at me like they know who I am, and what's happened/still happening to me in Bali: sad and distressed, scared, unable to speak about it.
 
-### Second day
-
-- I'm high and I'm getting a headache. 
-- I come for yoga and plan on attending the full day.
-- I do, but it is exactly the same as the day before; a full on psychological assault while I'm excessively high on something.
-- It starts with physiology and again it's just meme after meme, even referencing conversations I've had online with the gypsies, amazing.
-- At this point, however, I have a feeling, however, that something loving and kind is communicating through me back at them, and sometimes I notice it too.
-- Again, I stay in the circle, or as far away from it as I can be without disconnecting completely, with my face down so the cameras aren't recording every twitch.
-- The class content is designed around mass porn-gang sexual-violence rape-gang-porn-star meme triggers, or me being a superhero, or whatever; the faux content of the classes is secondary and not really what you would expect at all from a YTT.
-- So, at the end of the second day, I call it a day. 
-- I wonder if it was the third day, I was so high those few days I can't remember well.
-- They've given me an out in any case by saying you can come to whatever classes you like and not sit the exam.
-- So I inform them I'm taking this decision and only coming to yoga in the morning.
-- It's what they intended.
-
-### Weird body positions
-
-- We're asked to make shapes you wouldn't be asked to make in actual yoga.
-- For example, put your fists between your knees to measure the correct distance between your open knees, with a demo from the teacher.
-- My knees are splayed, the whole pose would collapse like this.
-- This is no measurement.
-- I realize it was a position I was put in while sedated, so it's on film.
-- Other things like that.
-- Body positions I made while masturbating in my bathroom with the lights on.
-- Always something.
-- It's so embarrassing, you cannot imagine.
-- I mean, when every man with a porn subscription has seen you doing these things, and would recognize you in the street, at your job, anywhere in the world, the embarrassment on its own due to the (snickery) attitudes they have about you from seeing you like this totally destroys your life; murder by embarrassment.
-- I think this justifies at least a billion more in compensation.
-
-### Two or three days of this before the non-visual-hallucinogen wears off
-
-- I think it was Tuesday afternoon when I started to yawn excessively, the anxiety and dissociation dissipating.
-- I was finally coming down.
-- I'd arrived on Saturday and been high since then.
-- So I'm in Bali in this house on my own going to yoga for a couple of hours in the morning, and I'm being fed, watered (they suggested to me that I was drinking salt-water for days and didn't die - I don't believe them), and monitored closely, every move, every word, every breath.
-- There's a pool in the complex but there's rarely anyone there.
-- I'm writing every day, and it's another conversation with the people that are trying to control me, as whatever comes up seems to map in extraordinary ways with whatever's going on.
-- It's curious.
-- It's God.
-- And I think he's annoyed with them.
-- I'm sober and continue going to classes, and they continue to do their horror meme triggering thing - this time it was music repeated the Tibetan monk's name over and over, which I didn't even notice for a while sober it was so ridiculous.
-- I tell them so online later on; what did I say, something like it's just *trifles* really, and then later online I said *trifles* was euphemistic for a bit silly.
-- Fatuous is the better word.
-- It stops.
-- Just like with the Dénia porn-gangs, the manipulation needs drugging to work effectively.
 
 ### Walking into yoga class
 
