@@ -545,11 +545,13 @@ function googleTranslateElementInit() {
 - Another conversation after class, another confirmation they know everything about me.
 - They would repeat my sentences verbatim back at me from blogs I wrote in 2013, ideas from my books, conversations I've had online with the gypsies, for example.
 - Another attempt at triggering me was by mentioning an unusual injury I have in my solar plexus region which I have noticed for over a decade while doing certain yoga poses.
-- Oh, I was talking about something completely different, liver inflammation, and she starts talking about the funny pain in her solar plexus region (verbatim) she's had for years that only happens in certain poses.
+- Oh, I was talking about something completely different, liver inflammation (possibly swelling from repeated CO2 gas put into my abdomen), and she changes the subject and starts talking about the funny pain in her solar plexus region (verbatim) she's had for years that only happens in certain poses and she doesn't know what it is.
+- *I don't know what it is*, she repeats.
 - This must really freak people out who are not expecting it. 
 - Do they think they can control people like this?
 - Is that the core process, fear and domination?
 - I'm a bit like... *yawn*, now.
+- Or does she know what it is - that it comes from repeated abdominal surgeries since Bali in May 2024 - and she needs to change the subject, quick.
 
 ### The Justice Defense Fund reach out
 
