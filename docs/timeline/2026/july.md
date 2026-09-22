@@ -127,6 +127,7 @@ function googleTranslateElementInit() {
     - Phones up in front of me as if they're filming me.
     - Divine feminine, divine relationships.
     - Arrows (see [June section](june.md#hastening-home-lesson-226)) - a woman's name was "arrow" in French.
+    - A bronze statue of Ram with his arrow, but he has breasts.
     - She's utterly exhausted - posts coming in from Joy about exhaustion.
 
     ![Exhaustion prompt from Joy](../../content/images/exhaustion-prompt-from-joy.jpg)
@@ -148,18 +149,22 @@ function googleTranslateElementInit() {
 - I felt sensors measuring my physical systems, heart rate, temperature, everything.
 - I realized my house was set up in the same way and indeed I would get confirmation online about things I'd done on my own quietly in private.
 - What purpose does something like this serve?
-- The only thing I could come up with was they might be trying to recruit me as a spy and part of that is breaking someone.
+- The only thing I could come up with was they might be trying to recruit me as a spy and part of that is breaking someone, and I told them this was what I was thinking and that I was never going to be a spy.
 - I thought they maybe thought psychological violence and breaking me was a way to control me in perpetuity.
 - I had no idea they had even more sinister intentions.
-- I lay down on the floor with my face on the ground, but stayed in the circle, because I was not ready to run. 
-- I needed more information to find out what was really going on.
+
+#### I don't run away
+
+- I feel like running away, but I don't.
+- Instead, I lay down on the floor with my face on the ground, but staying in the circle, because I was not ready to run. 
+- This way, I feel like a million cameras aren't filming me, and I needed more information to find out what was really going on.
 
 #### Welcome ceremony
 
 - Someone asked me how I was doing when we went to the garden for the welcome ceremony with a Balinese priest.
 - I told her I was having a massive panic attack and PTSD reaction.
 - She never mentions it again.
-- The priest says some weird things like he's not taking anything seriously and knows who these people are: *thank you for the airport*, he says.
+- The terribly irreverent priest says some weird things like he's not taking anything seriously and knows who these people are: *thank you for the airport*, he says.
 - This is the first day over, unless there was something else, yes there was because the flowers from the ceremony kept going over the floor.
 - There was another session of psychological torture before the day ended; I have no idea what the content of the session had actually been.
 - The torture was so effective that it totally dissociated me and I have no recollection of what these sessions were posing as.
@@ -167,12 +172,15 @@ function googleTranslateElementInit() {
 ### Another bridge 
 
 - The whole "bridge to Israel" is a major theme, from the moment I got in the taxi at the Holiday Inn.
-- They flashed up Isaiah on his screen and were playing songs with very suggestive "bridge" lyrics.
+- They flashed up Isaiah on his screen and were playing songs with very suggestive "bridge" lyrics, perhaps that was even the song title: *You're mine!*.
 - At the house, they were implying (online on social media, on Netflix Snoopy videos and then when Netflix stopped working on the Snoopy videos on YouTube) that Bibi was watching me in the house.
-- Things I did in my house, repeated back at me so I know they really are watching.
-- They told me I shouldn't waft if I fart - which is something I used to do back in the day, long long ago, when I thought I wasn't being watched.
+- Things I did in the house were repeated back at me so I know for sure they really are watching.
+- They told me I shouldn't waft if I fart - which is something I used to do back in the day, long long ago, when I thought I wasn't being watched 24/7.
 - The instruction that I should dress well all the time, even at home, because I'm being watched all the time and assessed for rescue and Israeli immigration.
-- This meme I'm still seeing in Cauterets in September 2026!
+- This meme I'm still seeing in Cauterets in September 2026! And I know they're watching me here too.
+- It's everywhere, constant, and especially in places I stay in which are booked long in advance.
+- I've stopped doing that now.
+- Getting over my "planning habit" has been one small benefit to me of all this madness.
 
 ### Involving the locals
 
