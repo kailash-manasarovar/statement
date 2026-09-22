@@ -142,6 +142,7 @@ function googleTranslateElementInit() {
     - *Project Jonathan* - constant references online to this and a few times at the centre. This is in relation to [Jonathan, Mrs Wasserman's nephew, getting an egg](../2025/september.md#jonathan-tells-me-he-has-the-shingles-virus) from me. This makes me think in August when I'm in Jerusalem that they've set the Jews up to take the blame for this. Or did they have another evil scheme in mind, who knows. Perhaps they're aware my internal injuries are not going to be ignorable for so long. Ironically, throwing the Jews under the bus like this becomes significant and top-of-mind, and gets me thinking about [Michael Sullivan who worked for Pan Am](../pre-2001/1989.md#sullivan).
     - You can help so many sick people in the world - suggesting because I survive poisoning there's something inherent in my body that can help them: their total and utter reinterpretation of Jesus.
     - I practice naked yoga - one of the men says this. Urgh.
+    - Dr. Strange - the first slide in physiology class. I was curious about how he made that contextual but I was so disassociated I never found out.
     - (I'll keep adding these in as I remember them..., it's gonna be quite a list)
 
 - It was a battering.
@@ -178,7 +179,7 @@ function googleTranslateElementInit() {
 - The yoga class is full of intense twisting and I'm wondering if they're trying to get my rib to snap again so I won't even be able to attend yoga classes. 
 - I take super extra care of my rib for the whole two weeks.
 - It is exactly the same as the day before; a full on psychological assault while I'm excessively high on something.
-- It starts with physiology and again it's just meme after meme, even referencing conversations I've had online with the gypsies, amazing.
+- Classes after yoga start with physiology and again it's just meme after meme, even referencing conversations I've had online with the gypsies, amazing.
 - At this point, however, I have a feeling, however, that something loving and kind is communicating through me back at them, and sometimes I notice it too.
 - Again, I stay in the circle, or as far away from it as I can be without disconnecting completely, with my face down so the cameras aren't recording every twitch.
 - The class content is designed around mass porn-gang sexual-violence rape-gang-porn-star meme triggers, or me being a superhero, or whatever; the faux content of the classes is secondary and not really what you would expect at all from a YTT.
