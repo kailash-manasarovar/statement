@@ -51,12 +51,26 @@ function googleTranslateElementInit() {
 - I hope so, I've had enough of solitude and there's a spare room upstairs.
 - Is he safe?
 
-### Up the mountains
+### Hiking the mountains
 
 - Spies everywhere, always *very* Jewish looking. Always.
 - It worked a bit, I have to say. But it was never gonna last ... although they pushed it for a long time... 
 - I was never supposed to survive was I.
 - My guess a car crash in Italy... was the plan, no?
+
+### The futarderie
+
+- The photo hung on the wall where I'm sitting - Booking.com property booked long in advance - has a label on it.
+- This is the photo I will use as part of an earlier section - I added all the cars to it with AI.
+
+![The futarderie](../../content/images/glastonbury-dreaming.png)
+
+- You can just make out the label: *La Futarderie*, although they managed to garble it a little during the download where I often have to convert images.
+- Eventually I ask my mother what this means, because I cannot find a reference online and she's a French teacher.
+- And then suddenly I find a reference for the word: *a place/shop for buggery/anal rape* or similar.
+- When I get back home my mother confirms, she found the same or similar disturbing sexual reference for it.
+- This photo was put there by the CIA, and no-one can say the *tone* is positive or caring.
+- This is what they've been like all these years I've been trying to get help.
 
 ## A song to the mountains
 
