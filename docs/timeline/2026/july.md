@@ -515,9 +515,11 @@ function googleTranslateElementInit() {
 
 ### They tell me what happened to Lorraine
 
-- I also found out - someone told me basically - what happened to Lorraine Blackbourn that caused her to commit suicide.
-- I didn't get it or write about it for a while, and so they even demonstrated the torture-porn rope ties on a snoopy video AI-tailored just for me and then I started to mention it in here.
-- I added it to [the front page](../../index.md#lorraine-blackbourn-should-be-alive-today) because she is the key to our story.
+- I also found out - Taryn told me basically - what happened to Lorraine Blackbourn that caused her to commit suicide.
+- I didn't get it or write about it for a while, and so they even demonstrated the torture-porn rope-ties on a snoopy video AI-tailored just for me.
+- Then I started to mention it in here.
+- Was the rope blue?
+- I added the information to [the front page](../../index.md#lorraine-blackbourn-should-be-alive-today) because Lorraine is the key to our story.
 
 ### They tell me about Chris Ludwick's excel porn database
 
