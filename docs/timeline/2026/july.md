@@ -393,7 +393,7 @@ function googleTranslateElementInit() {
 
 - On the Sunday, we all went for a walk and had lunch - Vincent and his mother did not attend this.
 - At the time, I think they're doing this to give me *some small reason* for all their insane and criminal activity.
-- Now I've lost all faith I ever had in these people, I wonder if they're blackmailing the Bali businessman they invited who was somehow involved in [Polygon's sedated-rape scam in Bali in May 2024](../2024/may.md#bali), when Elon attended, or perhaps they're threatening him with my presence to make sure he doesn't tell.
+- Now I've lost all faith I ever had in these people, I wonder if they're blackmailing the Bali businessman they invited who was somehow involved in [Polygon's sedated-rape scam in Bali in May 2024](../2024/may.md#bali), when Elon attended, or perhaps they're threatening him with my presence to make sure he doesn't tell - especially if they were all told I'd be murdered and here I am!
 - Perhaps at the same time they're trying to convince me that someone is going to do something about the baby-rape industrialists - but I expect they just thought I'm an idiot.
 - They've put millions into this lie. Millions and millions.
 - All this for my eggs? And then what. No doubt bad intentions.
@@ -439,7 +439,7 @@ function googleTranslateElementInit() {
 
 ### Another criminal is brought around the world for viewing
 
-- This time, they bring [Rene from Australia](../2001-to-2010/2003.md#turtles); I've literally just remembered her at the turtle beach, and written about the strange incident with her in 2003 just two or three days before.
+- This time, they bring [Rene from Australia](../2001-to-2010/2003.md#turtles); I've literally just remembered her at the turtle beach and written about the strange incident with her in 2003 just two or three days before.
 - It's only a short hop to Australia so they could have hauled her out quite easily, especially if she was in prison which is likely.
 - She's sitting with an agent by the pool one afternoon when I turn up.
 - She keeps the towel over her face.
@@ -449,7 +449,8 @@ function googleTranslateElementInit() {
 
 ### Glastonbury
 
-- I see Glastonbury Tor from the windows at Loka Yoga every morning in class. It's such a strong vision, I decide to tell them all after seeing it every morning for days. Once I've told them all, it's gone and I don't see it anymore. And that's nearly as surprising.
+- I see Glastonbury Tor from the windows at Loka Yoga every morning in class. It's such a strong vision, I decide to tell them all after seeing it every morning for days.
+- Once I've told them all, it's gone and I don't see it anymore. And that's nearly as surprising.
 - Around about the same time, if not the exact same day, I see [a photo on Facebook](https://www.facebook.com/photo/?fbid=1486531543516938&set=a.416423213861115) that looks like God drove over Glastonbury and left His tyre-print in the clouds.
 
 ![God's tyre print](../../content/images/gods-tyre-print.png)
@@ -477,6 +478,7 @@ function googleTranslateElementInit() {
 - I tell Taryn that I haven't figured out why what happened happened on the first few days of the course to make me decide I'm only coming to yoga class (drugs and psychological torture), but I tell her that when I do figure out a good way to tell her, I will.
 - She keeps asking me about it; but I know she's trying to provoke me into a *poor me* reaction which she can quickly gaslight and dismiss, so I don't give her the opportunity for that.
 - I have to wonder if they treat men in unique positions like mine the same? Did they treat Steve this badly in the beginning? It seems not but perhaps men are more easily controlled. 
+- Is this why Antonio stays hidden? I don't blame him.
 - It takes a while to figure out what they're really after - it is still utterly illogical and irrational - and when I realize [they tried to set me and Steve up for offspring purposes](../2025/september.md#weddings-at-the-church), and when that didn't work out for them, they decided they'd just do it anyway, (and they'd already been doing it anyway anyway), I'm pretty astonished, and upset, and understand completely why God called them *stupid idiots*.
 - But, again, it's all His Plan, so I'm sure that all of this mess will serve some unique purpose of His we can't guess at, and then we can get on with the world-saving.
 - I realize why God's Plans have to be so unique and unexpected because there is so much against Him in this violent and violating world full of the self-loathing.
