@@ -380,11 +380,11 @@ function googleTranslateElementInit() {
 - It had been quite painful, also in an unusual way.
 - It reappears in Bali, and I notice it and pick it and it doesn't behave like a normal spot, you can't squeeze it, but it is painful and does become pussy over the next few days.
 - It looks like a pinhole surgery wound.
-- Also there's a similar spot in my left groin that reappears which I have not seen for a good while, maybe not since November the year before when I was in Bangkok at the Anantara... there was so much fatuousness there it was quite astonishing...
-- I guess it could have also come up January in Dorset too, or both times maybe.
+- Also there's a similar spot in my left groin that reappears which I have not seen for a good while, maybe not since November the year before when I was in Bangkok at the Anantara... there was so much fatuousness there too it was quite astonishing...
+- It may have reappeared January in Dorset too.
 - Again, the spot doesn't behave like the boils I usually get there at all, the skin is so thin all over this area from the strong cream I used for the boils in 2019 that any wounds in this area, and the healing of them, do not behave as expected.
-- My view is that all this is verifiable on examination and I believe they have been after my eggs and *hatched* their evil plan right after [I survived poisoning in July 2025](../2025/july.md#lourdes), which they had obviously ordered.
-- The theme of pregnancy and babies had been suggested to me quite intensely in Israel on module 3, just a month after in August 2025, without anyone formally saying anything, just hints and suggestions, but very clear ones... and I was thinking they were suggesting I had a baby at my age, and I have been excited about that anyway since August 2024 when the gypsies started their baby-manipulation tech on me and I realized they'd gotten a baby in this way from Natalia and countless other women for the baby-rape porn-production.
+- My view is that all criminal sedated-surgery is easily verifiable on examination.
+- The theme of pregnancy and babies had been suggested to me quite intensely in Israel on module 3, just a month after in August 2025, without anyone formally saying anything, just hints and suggestions, but very clear ones, *Project Jonathan* as they kept saying online... and I was thinking they were suggesting I had a baby at my age, and I have been excited about that anyway since August 2024 when the gypsies started their baby-manipulation tech on me and I realized they'd gotten a baby in this way from Natalia and countless other women for the baby-rape porn-production.
 - I believe these suggestions on module 3 were set up so that I would completely misidentify who was behind the egg-thievery if I ever got suspicious for any reason.
 - Bastards!
 
