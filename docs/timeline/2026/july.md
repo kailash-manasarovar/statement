@@ -525,7 +525,7 @@ function googleTranslateElementInit() {
 
 - They tell me they've heard about, or accessed maybe (he was hacked a few months back and I noticed and told him), Chris Ludwick's database recording the collection of porn he has of me, and others no doubt.
 - It's on excel apparently.
-- My view is he gave the VHS's to Mel to look after - I think he has/had an allotment in Hornsey somewhere.
+- My view is he gave the VHS's to Mel to look after - I think Mel has/had an allotment in Hornsey somewhere.
 - I told them that on my Samsung ages ago - which I believe is full controlled by the CIA - so if no-one else received that message, bingo!
 
 ### Snoopy videos
@@ -534,7 +534,7 @@ function googleTranslateElementInit() {
 - There were so many in Bali, I think I was stressing them out because I was wanting more and more and they could barely keep up with my demand.
 - Snoopy is supposed to be me, and Woodstock is my love with a trumpet and a little green fisherman's hat I've described seeing him wearing - but someone from Dénia will have had to confirm the design.
 - Sometimes Snoopy and Woodstock switch roles and Snoopy is the intuitive artist who they've given unlimited supplies to create with, and Woodstock never shuts up.
-- Oh, whole loads of information about my love: how he is clumsy at posh dinners, sad about something, is a father, has a life partner, all this madness and lies, has to move house now I'm on my way soon, tomorrow, today, Friday, at 9am, etc. etc., and it'll be a helicopter (meme began in Samui in December with a woman pretending to be UN, then fed again in Dorset with the field they were pretending was a helipad, then constant on Snoopy videos, just endless lies...) just to keep me distracted...
+- Oh, whole loads of information about my love: how he is clumsy at posh dinners, sad about something, is a father, has a life partner, all this madness and lies, has to move house now I'm on my way soon, tomorrow, today, Friday, at 9am, etc. etc., and it'll be a double-propeller helicopter (meme began in Samui in December with a woman pretending to be UN, then fed again in Dorset with the field they were pretending was a helipad, then constant on Snoopy videos, just endless lies...) just to keep me distracted...
 - Extraordinary.
 - What TIME WASTERS!!
 - It takes a long time to figure out why they would bother distracting me endlessly like this.
