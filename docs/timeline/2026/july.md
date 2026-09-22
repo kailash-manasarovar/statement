@@ -10,7 +10,7 @@ function googleTranslateElementInit() {
  
 ## Loka yoga
 
-- I decide to try and do productive things with my time while I'm stalked endlessly by international security services and criminal gangs.
+- I'm trying to do productive things with my time while I'm stalked endlessly by international security services and criminal gangs.
 - I sign up for Yoga Teacher Training with Loka Yoga in Bali: https://lokayogaschool.com/ about three weeks before I attend, but I've been looking at courses in Bali online for months already.
 - It's agents. Everyone there. Is an agent.
 - I even knew one of them personally from over ten years previous - but I'm not telling that story, someone else can when the time is right.
@@ -61,7 +61,6 @@ function googleTranslateElementInit() {
 - At the first session, the teachers introduce themselves.
 - Firstly, and importantly, Taryn tells us that she and Yann her boyfriend (a Frenchman who worked as a paramedic in Alicante - he's keen I know this) met on Tinder, then LinkedIn - they're keen I know this.
 - One of the other teachers reminds me of the acting students on my first degree course in Performing Arts. She's performing. 
-- They're all performing just like the BAPA acting students did back in 1991.
 - There's a Scottish woman teaching some classes on the course and her name is Stella.
 - Stella studied ashtanga yoga in Euston, like [Natalia had, fellow porn-gang target in Dénia](../2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me), who I have written about extensively in this police statement as having had the same experience as me with the porn-gangs of Dénia.
 - Natalia had been studying yoga with Hamish in Euston, right up until she moved to Dénia.
@@ -88,7 +87,7 @@ function googleTranslateElementInit() {
 - In the next session, we have to pair up and find out about our partner.
 - Then, each person introduces their partner to the group.
 - As they go around, every student behaves in exactly the same way the students on the BAPA course at Middlesex did. They're all performing. 
-- The party tricks are nearly all the same! Bodily weirdness. Personally, I had a much broader bucket for party trick examples.
+- The party tricks are nearly all the same! Bodily weirdness. Personally, I had a much broader bucket for party-trick examples.
 - It's amazing to me. I can't figure it out at first. So I wait.
 - I pair up with a man from Singapore, Vincent (a German woman will mispronounce his name to sound like Winston later on).
 - We have to answer all these questions.
@@ -120,7 +119,7 @@ function googleTranslateElementInit() {
 - Here's a list of words or phrases or names that kept coming up verbally by teachers and course participants during the sessions, then online when I got back to my house:
     - Winston.
     - Coffee.
-    - Tonia - pronounced Tona, no Y - extraordinary isn't it.
+    - Tonia - pronounced Tona, no Y - (extraordinary isn't it).
     - Imagine waking up with no legs.
     - Tibetan monks.
     - The Tibetan monk's name, which incidentally I had forgotten and they used a name he doesn't really use much also (Soma or similar) which was amusing to me, just like they did with Henry too.
@@ -137,7 +136,7 @@ function googleTranslateElementInit() {
 
     - My own words, phrases, and sentences from non-fiction, fiction, blogs, emails, tweets and similar from as far back as 2007 to the current time, from the morning even sometimes if I had been online before class.
     - *He wasn't here just for the water* - referencing Elon's trip to Bali in May 2024.
-    - *Leave no trace* - Vincent had a "surfing" accident early on and had bumped his head. He had apparently been in pain in yoga classes and just sitting quietly. He told me it was a surfing accident, he hit his head, but something rang untrue about it, like he was reading lines. Basically, the course days were packed full of classes, from 6am-6pm and later, the Sunday day off we were all together. There was no time for him to have gone surfing, unless the whole thing was a farce and when I went home, they did too.
+    - *Leave no trace* - Vincent had a "surfing" accident early on and had bumped his head. He had apparently been in pain in yoga classes and just sitting quietly. He told me it was a surfing accident, he hit his head, but something rang untrue about it, like he was reading lines. Basically, the course days were packed full of classes, from 6am-6pm and later, the Sunday day off we were all together. There was no time for him to have gone surfing, unless the whole thing was a farce and when I went home, they did too. Actually, he could have gone surfing on the Sunday as he didn't attend the lunch.
     - Who are the other disciples?
     - Standing spit - referencing a sedated porn position.
     - Three-legged dog - referencing my neighbors dog in Las Marinas who may have starred in porn with me.
@@ -190,11 +189,11 @@ function googleTranslateElementInit() {
 
 - I'm high and I'm getting a headache. 
 - I come for yoga and plan on attending the full day.
-- The yoga class is full of intense twisting and I'm wondering if they're trying to get my rib to snap again so I won't even be able to attend yoga classes. 
+- The yoga class is full of intense twisting and I'm wondering if they're trying to get my rib to snap again so I won't even be able to attend the yoga classes. 
 - I take super extra care of my rib for the whole two weeks.
 - It is exactly the same as the day before; a full on psychological assault while I'm excessively high on something.
 - Classes after yoga start with physiology and again it's just meme after meme, even referencing conversations I've had online with the gypsies, amazing.
-- At this point, however, I have a feeling, however, that something loving and kind is communicating through me back at them, and sometimes I notice it too.
+- At this point, however, I have a feeling, however, that something loving and kind and extremely powerful is communicating through me back at them, and sometimes I notice it too.
 - Again, I stay in the circle, or as far away from it as I can be without disconnecting completely, with my face down so the cameras aren't recording every twitch.
 - The class content is designed around mass porn-gang sexual-violence rape-gang-porn-star meme triggers, or me being a superhero, or whatever; the faux content of the classes is secondary and not really what you would expect at all from a YTT.
 - So, at the end of the second day, I call it a day. 
@@ -214,7 +213,7 @@ function googleTranslateElementInit() {
 - Always something.
 - It's so embarrassing, you cannot imagine, but I don't care.
 - When every man with a porn subscription has seen you doing these things, and would recognize you in the street, at your job, at Duty Free in Dubai, anywhere in the world, the embarrassment on its own due to the (snickery) attitudes they have about you from seeing you like this is supposed to totally destroy your life; murder by embarrassment.
-- The shame and embarrassment should be theirs, in fact.
+- The shame and embarrassment is theirs, in fact.
 - Nevertheless, I think this justifies at least a billion more in compensation.
 
 ### Two or three days before the strong, non-visual hallucinogen wears off
@@ -222,7 +221,7 @@ function googleTranslateElementInit() {
 - I think it was Tuesday afternoon when I started to yawn excessively, the anxiety and dissociation dissipating.
 - I was finally coming down.
 - I'd arrived on Saturday and been high since then.
-- So I'm in Bali in this house on my own going to yoga for a couple of hours in the morning, and I'm being fed, watered (they suggested to me that I was drinking salt-water for days and didn't die - I don't believe them), and monitored closely, every move, every word, every breath.
+- So I'm in Bali in this house on my own going to yoga for a couple of hours in the morning, and I'm being fed, watered (they suggested to me that I was drinking salt-water for days and didn't die - I don't believe them - I think this was the *story* they thought up at the last minute to explain the drug-effects), and monitored closely, every move, every word, every breath.
 - There's a pool in the complex but there's rarely anyone there.
 - There's a giant inflatable swan in the pool which they added to a Snoopy video too.
 - So I'm writing every day - even though they insisted on [no more stories](#no-more-stories) - and it's another conversation with people who are trying to control me, and whatever comes up to be added to this police statement seems to map in extraordinary ways with whatever's going on at class.
@@ -239,18 +238,19 @@ function googleTranslateElementInit() {
 ### No more stories
 
 - Online communication from day 1 demands "no more stories".
-- So I tell them on Substack, OK, no more stories, and you can see I stop writing at the point I had stopped in the repo.
-- But then, *HUGE* story additions keep coming in from the past (like pre-2000), so I ended up doing a huge amount of writing/editorial on past sections and new past sections.
+- So I tell them on Substack, OK, no more stories, and you can see I stop my writing schedule (it's a solid routine) at the point I had stopped in the repo before I arrived.
+- But then, *HUGE* story additions keep coming in from the past (like pre-2000), so I ended up doing a huge amount of writing/editorial on past sections.
 - Why would they be so keen for me to stop writing?
 - I did wonder at the time, but it seemed sensible to play their game at least till I figured out what was going on.
-- When I got to Israel, I started writing again from where I left off, and posted about it on Facebook.
+- When I got to Israel, and settled down in Jerusalem, I started writing again from where I left off, and posted about it on Facebook.
 
 ![No more stories my ass](../../content/images/no-more-stories-my-ass.png)
 
 ### Another bridge 
 
 - The whole "bridge to Israel" is a major theme, from the moment I got in the taxi at the Holiday Inn.
-- They flashed up Isaiah on his screen and were playing songs with very suggestive "bridge" lyrics, perhaps that was even the song title: *You're mine!*.
+- They flashed up Isaiah on his screen and were playing songs with very suggestive "bridge" lyrics, perhaps that was even the song title: *You're mine!*
+- In class there was a lot about how lonely I was going to be there, how Israel is the world's laundry, all sort of rubbish.
 - At the house, they were implying (online on social media, on Netflix Snoopy videos and then when Netflix stopped working on the Snoopy videos on YouTube) that Bibi was watching me in the house.
 - Things I did in the house were repeated back at me so I know for sure they really are watching.
 - They told me I shouldn't waft if I fart - which is something I used to do back in the day, long long ago in Carrer Furs, when I had no idea I was being watched 24/7.
