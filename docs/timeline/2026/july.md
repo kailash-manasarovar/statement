@@ -498,7 +498,7 @@ function googleTranslateElementInit() {
 - I wonder if the poisoning with intent to kill began straight after, and I started to develop inflammation around my liver area at that time which suddenly made my yoga practice deteriorate and has similarities to [Maria's horrific experiences in Dénia too](../2011-to-2020/2015.md#vipasana-maria).
 - Or could multiple pinhole surgeries since April 2025 - where my abdomen would have been filled with CO2 gas - have caused this?
 
-#### I hear myself having an orgasm at the Dan Panorama
+#### I hear myself having an orgasm, or am I shouting for help?
 
 - Someone in the next room plays back a recording from porn of me having an orgasm.
 - I'm not sure if I'm sedated or conscious; it's sounds raw, machine-like - like one of my colleagues said to me at Adaptive in 2018. *You're a machine, Katharine*.

@@ -1,13 +1,5 @@
 # Next Batch
 
-### July 2026
-
-
-ISRAEL:
-
-1. Meeting Alex in Mamilla. Alex is excited about the app. When I tell him how it's a global currency of love he gets scared and scurries away. I believe Alex could be Mrs Wasserman's nephew.
-1. Shifra outside the Kotel.
-
 ### August 2026
 
 1. Oeuf, the TV, TT's daughter.
