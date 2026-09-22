@@ -264,7 +264,7 @@ function googleTranslateElementInit() {
 
 ### Involving the locals
 
-- Related to the previous entry, my captors involved the locals in multiple schemes including the priest who, it seemed to me, was doing his best to be as irreverent as possible for good reason - did he know what they were up to?
+- My captors involved the locals in multiple schemes including the priest who, it seemed to me, was doing his best to be as irreverent as possible for good reason - did he know what they were up to?
 - It seemed that everyone in the local area knew what was going on.
 - The Balinese are not stupid, and they talk to each other, and even the women at the massage parlour down the road seemed to "recognize" me whenever I walked in.
 - The local Balinese men that recognized me grinned and giggled.
@@ -305,7 +305,7 @@ function googleTranslateElementInit() {
 
 #### The Bible falls open at Isaiah 31
 
-- Taryn and her boyfriend Yan come round to check the windows have been blacked out in Bali.
+- Taryn and her boyfriend Yan come round to check the windows have been blacked out properly.
 - I have just been doing my bible study, which entails opening the bible wherever it may open and reading that bit.
 - The doorbell rings and I leave the open bible on the bed to go and answer the door. 
 - They come up to see the work on the windows.
@@ -331,7 +331,7 @@ function googleTranslateElementInit() {
 
 - There's a bunch of drones above us, it's 6am, they're up all day too.
 - I start to wave at them and make hearts. They don't turn up anymore.
-- There's robot birds, bees, a massive snake, and a lizard too. You can tell somehow, they're not quite right. I'm amazed.
+- There's robot birds, bees, a massive snake (although this might have been real, just very surprising), and a lizard too. You can tell somehow, they're not quite right. I'm amazed.
 - On my way home from a walk to the beach one day, I see a cloud with an arrow in it, and another one with a heart.
 - I know it's robo-clouds because they're framed the same way, and God does *not* do clouds like that.
 - I'm amazed.
@@ -341,7 +341,16 @@ function googleTranslateElementInit() {
 
 ### Snake
 
-1. Report snake episode at Loka Yoga, so astonishing I thought it had to be a robot. (Snakes warn me something evil is coming, or before me, used to see them in Dénia before "events" too, significantly 12th June on my way to class there was a snake in the curb..). Loka Yoga was easily the biggest snake of them all. It stopped me dead in my tracks, it was massive, girth of a 2 litre coke bottle, about 5 meters although i didn't see the front of it, crossing the road from one padi to the other. As I said, I thought it was a robot it was SO EXTRAORDINARY... and there were robots about. But snakes do like to warn me. As do beetles. The day before Winston May destroyed my life, three beetles came out of the chimney... The latest beetle in Jerusalem was dead. And I believe that's a very good omen for me, for the children and babies, for the team, and for the world.
+- On Thursday morning, as I'm leaving the yoga school, a snake passes me on the road.
+- It slides out of one rice paddy field, slithers across the road right in front of my feet, and into the rice paddy field opposite.
+- It's so astonishing I thought it had to be a robot. 
+- Snakes warn me something evil is coming, or before me, and I used to see them in Dénia before "events" too, significantly on the 12th June on my way to class there was a snake in the curb that I went over to say hello to (I like snakes).
+- The Loka Yoga snake was easily the biggest snake of them all.
+- It stopped me dead in my tracks; it was massive, girth of a 2 litre coke bottle or bigger, about 5 meters long although I didn't see the front of it so it could have been longer.
+- As I said, I thought it was a robot it was SO EXTRAORDINARY... and there were robots about.
+- But snakes do like to warn me. As do beetles. 
+- The day before Winston May (for a long time nearly) destroyed my life, three beetles came out of the chimney in my bedroom.
+- The latest beetle in Jerusalem was dead. And I believe that's a very good omen for me, for the children and babies, for the team, and for the world.
 
 ### Thursday and Friday night of the first week
 
