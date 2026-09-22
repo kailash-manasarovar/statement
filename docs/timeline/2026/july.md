@@ -384,14 +384,15 @@ function googleTranslateElementInit() {
 - It may have reappeared January in Dorset too.
 - Again, the spot doesn't behave like the boils I usually get there at all, the skin is so thin all over this area from the strong cream I used for the boils in 2019 that any wounds in this area, and the healing of them, do not behave as expected.
 - My view is that all criminal sedated-surgery is easily verifiable on examination.
-- The theme of pregnancy and babies had been suggested to me quite intensely in Israel on module 3, just a month after in August 2025, without anyone formally saying anything, just hints and suggestions, but very clear ones, *Project Jonathan* as they kept saying online... and I was thinking they were suggesting I had a baby at my age, and I have been excited about that anyway since August 2024 when the gypsies started their baby-manipulation tech on me and I realized they'd gotten a baby in this way from Natalia and countless other women for the baby-rape porn-production.
+- The theme of pregnancy and babies had been suggested to me quite intensely in Israel on module 3, just a month after in August 2025, without anyone formally saying anything, just hints and suggestions, but very clear ones, *Project Jonathan* as they kept saying online... and I was thinking they were suggesting I had a baby at my age, and I have been excited about that anyway since August 2024 when the gypsies started their baby-manipulation tech on me - again on request from the CIA? - and I realized they'd gotten a baby in this way from Natalia and countless other women for their baby-rape porn-production.
 - I believe these suggestions on module 3 were set up so that I would completely misidentify who was behind the egg-thievery if I ever got suspicious for any reason.
 - Bastards!
 
 ### A meeting with someone important in Bali who knows what happened at the Hyatt in May 2024
 
-- They set up an event on our free day where we all went for a walk and had lunch.
-- I think they're doing this to give me *some small reason* for all their insane and criminal activity.
+- On the Sunday, we all went for a walk and had lunch - oh Vincent didn't attend this, perhaps that's when he got injured.
+- At the time, I think they're doing this to give me *some small reason* for all their insane and criminal activity.
+- Now I've lost all faith I ever had in these people, I wonder if they're blackmailing the Bali businessman they invited who was somehow involved in [Polygon's sedated-rape scam in Bali in May 2024](../2024/may.md#bali), when Elon attended, or perhaps they're threatening him to make sure he doesn't tell.
 - Perhaps they're trying to convince me that someone is going to do something about the baby-rape industrialists.
 - They've put millions into this lie. Millions and millions.
 - All this for my eggs? And then what. No doubt bad intentions.
