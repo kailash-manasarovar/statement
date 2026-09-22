@@ -514,9 +514,10 @@ function googleTranslateElementInit() {
 - I didn't get it or write about it for a while, and so they even demonstrated the torture-porn rope ties on a snoopy video AI-tailored just for me and then I started to mention it in here.
 - I added it to [the front page](../../index.md#lorraine-blackbourn-should-be-alive-today) because she is the key to our story.
 
-### Chris Ludwick's excel sheet
+### They tell me about Chris Ludwick's excel porn database
 
-- They suggested to me they'd found Chris Ludwick's excel sheet that details his criminal porn collection.
+- They tell me they've heard about, or accessed maybe (he was hacked a few months back and I noticed and told him), Chris Ludwick's database recording the collection of porn he has of me, and others no doubt.
+- It's on excel apparently.
 - My view is he gave the VHS's to Mel to look after - I think he has/had an allotment in Hornsey somewhere.
 - I told them that on my Samsung ages ago - which I believe is full controlled by the CIA - so if no-one else received that message, bingo!
 
@@ -531,11 +532,6 @@ function googleTranslateElementInit() {
 - What TIME WASTERS!!
 - It takes a long time to figure out why they would bother distracting me endlessly like this.
 - My widowhood continues; one criminal gang seamlessly taking the place of another.
-
-### They tell me about Chris Ludwick's excel porn database
-
-- They tell me they've heard about, or accessed maybe (he was hacked a few months back and I noticed and told him), Chris Ludwick's database recording the collection of porn he has of me, and others no doubt.
-- It's on excel.
 
 ### They're sure to tell me they know everything about me
 
