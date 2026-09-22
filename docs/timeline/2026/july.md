@@ -728,4 +728,4 @@ function googleTranslateElementInit() {
 - We part; as she leave she says she loves me.
 - I tell her that I love her too, online when I get back to the hotel - because I know everyone is watching everything I do.
 - I'm curious about this "chance" meeting; more curious that no-one wanted to connect when they heard I was in town, or practice, or whatever - I have a table to use in the city after all.
-- And I'm more curious that at the time we did meet, I was still under the impression I had friends, and my statement confirmed this.
+- And I'm more curious that at the time we did meet, I was still under the impression I had friends, and my statement about Steve confirmed this.
