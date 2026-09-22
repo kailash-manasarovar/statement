@@ -147,6 +147,7 @@ function googleTranslateElementInit() {
     - I practice naked yoga - one of the men says this. Urgh.
     - Dr. Strange - the first slide in physiology class. I was curious about how he made that contextual but I was so disassociated I never found out.
     - Constant squirrels: squirrel is what I started calling Antonio when I found out the Bali attacks had been filmed.
+    - One of the course participants looks exactly like Will Ferrell; an actor I'm probably on the record about finding repulsive since I saw him in *The Other Guys* making light of pimping women. Or did I tell someone about that? If so it was most likely my mum in the sitting room while we were watching TV, because I have literally been that isolated there was no one else to tell that wasn't a total misogynist.
     - (I'll keep adding these in as I remember them..., it's gonna be quite a list)
 
 - It was a battering.
