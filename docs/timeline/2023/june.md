@@ -457,7 +457,8 @@ function googleTranslateElementInit() {
 - Brenda is a new-ager and involved in the new age "healing" scene in the area.
 - Brenda knows Lorraine Blackbourn, Alessandra, and many others I know from the area too.
 - Sheila and I keep in touch and arrange to meet when she visits her sister.
-- I'm just wondering in September 2026 if meetups like these were set up so that I would have "normal" reasons to return to the town in September after the summer, even if I was being terrorized to the extent that I was.
+- I'm just wondering in September 2026 if meetups like these were set up so that I would have "normal" reasons to return to the town in September after the summer, even if I was being terrorized to the extent that I was, and if this is the real reason behind everyone's disinterest in what's going on for me.
+- So I'd think nothing was wrong and could safety live in Dénia!
 - Sheila is not returning to do the second module of TT, she tells me, and doesn't.
 
 ## Another young girl's *funeral*
