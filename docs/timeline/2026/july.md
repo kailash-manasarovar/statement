@@ -223,6 +223,18 @@ function googleTranslateElementInit() {
 - But I can tell what people are thinking and feeling, especially if it's intense, and if I know them, even if I just spent a whole day with them, it doesn't matter what they look like, I know who they are.
 - Anyway, that's incidental maybe, or perhaps it was part of their research efforts into how brain-damaged I actually am, not that they care I'm sure.
 
+#### The Bible falls open at Isaiah 31
+
+- Taryn and her boyfriend Yan come round to check the windows have been blacked out in Bali.
+- I have just been doing my bible study, which entails opening the bible wherever it may open and reading that bit.
+- The doorbell rings and I leave the open bible on the bed to go and answer the door. 
+- They come up to see the work on the windows.
+- My bible is open on the bed at Isaiah 31.
+- I see Taryn glance at it.
+- Are they following along? Or do they think God is dead?
+- The helpers and the helped. Every last one of them.
+- That was a rare good moment.
+
 #### A man approaches me in the street
 
 - I'm walking to the beach one day about a week later and a local man drives up beside me on his motorbike and starts to talk to me.
