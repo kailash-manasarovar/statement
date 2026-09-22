@@ -642,28 +642,28 @@ function googleTranslateElementInit() {
 - Actually, I think I was recruited right after Lockerbie and Winston May and his gang were tasked by the CIA to start up the required trauma and immersion into porn world I would need to fit right in in Dénia. And I think I know how and who set that up too.
 - And *that* is the main reason their attitude towards me prevails, while leading me into fiery furnaces they cannot even have imagined back then; that I, an innocent tax-paying civilian that has done the impossible, am utterly worthless, apart from my eggs which they'll literally murder to get hold of.
 - Adams and the porn-gangs of Spain knew, didn't they, and that's why they were astronomically outrageous with me, isn't it. 
-- Every thing they did to me was an *up yours* to the mousses, wasn't it.
+- Everything that real criminals did to me was because they knew they'd never have to answer to it. They could do what they liked.
 - The files on me must fill a room.
 - May the mighty *Pit of the Salmon Mousses* be the last unprosperous weapon I have to deal with.
 
 ![The Salmon Mousse](../../content/images/the-salmon-mousse.png)
 
-- I guess God is going to give me my babies back, and the house. We prayed for that, me and Tona-tone-tone.
-- I was needing some clarification on the name... in case Tonia was the Pangolin and the angel is Daniel. Do let me know. Thank you.
+- And may most of the women, at least, tasked with the unspeakable do the right thing for once in their lives.
+- I guess God is going to give me my babies back, all of them, and the house in London. We prayed for that, me and Tona-tone-tone.
 
 ## BAU at the conservatory
 
-- Today, nearly three years after I first complained to the Generalitat about cyber-and-physical stalking... - but in fact I was being drugged, poisoned, sedated, raped repeatedly while unconscious, live-streamed onto porn-networks via the spy-cams in my home and at the conservatory's classrooms, whilst being terrorized by criminal pornographers operating freely at the conservatory of Dénia - ...teachers and staff implicated in serious crimes against students and [foreigners visiting the area, including murder,](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) continue their guardianship over hundreds of minors.
+- Today, nearly three years after I first complained to the Generalitat about cyber-and-physical stalking by their employees - but in fact I was being drugged, poisoned, sedated, raped repeatedly while unconscious, live-streamed onto porn-networks via the spy-cams in my home and at the conservatory's classrooms, whilst being terrorized by criminal pornographers operating freely at the conservatory of Dénia - teachers and staff implicated in serious crimes against students and [foreigners visiting the area, including murder,](../../crimes/protagonists/domingo-et-al.md#domingo-lopez-cano) continue their guardianship over hundreds of minors.
 
 ![Paqui advertising Elsa in July 2026](../../content/images/paqui-advertising-in-july-2026.jpg)
 
+- Did Paqui say bona?
 - Yes, this is the same Elsa whose pic was sent to me on fake accounts. See reference and screenshot in the section from [October 2023](../2023/october.md#gang-stalking-by-conservatory-civil-servants).
 - Is she wearing a wedding dress?
 - Are they literally taking the piss now?
 - Have they gotten purposefully worse while everyone knows and no-one does anything about it?
 - That's what evil does, it just carries on for as long as it can.
 - I bet everyone has known for decades.
-- It's a lovely world we live in, isn't it!
 
 ## Israel
 
