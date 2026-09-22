@@ -59,7 +59,7 @@ function googleTranslateElementInit() {
 #### Stella
 
 - At the first session, the teachers introduce themselves.
-- Firstly, and importantly, Taryn tells us that she and Yann her boyfriend (a Frenchman who worked as a paramedic in Alicante - he's keen I know this) met on LinkedIn - they're keen I know this.
+- Firstly, and importantly, Taryn tells us that she and Yann her boyfriend (a Frenchman who worked as a paramedic in Alicante - he's keen I know this) met on Tinder, then LinkedIn - they're keen I know this.
 - One of the other teachers reminds me of the acting students on my first degree course in Performing Arts. She's performing. 
 - They're all performing just like the BAPA acting students did back in 1991.
 - There's a Scottish woman teaching some classes on the course and her name is Stella.
@@ -83,7 +83,7 @@ function googleTranslateElementInit() {
     - Thank you.
 
 - It's a group of about twenty students, and every one of them has something for me.
-- They've all obviously been through military training; they're tough and fit and strong, most have never done yoga before and can get into extremely advanced poses right off the bat.
+- They're all obviously actors and/or have been through military training; they're tough and fit and strong, most have never done yoga before and can get into extremely advanced poses right off the bat.
 - Normally on a retreat like this, you would expect a few to quit early on, especially as the sessions during the day were pretty boring (without the psychological torture taken into account)... no-one quits. It's unprecedented.
 - In the next session, we have to pair up and find out about our partner.
 - Then, each person introduces their partner to the group.
@@ -114,14 +114,17 @@ function googleTranslateElementInit() {
 - Interspersed with everything they said were trigger meme's from my life experiences and particularly in reference to sexual violence and everything that happened in Dénia.
 - I started to become totally disassociated and found myself thinking more about the trigger memes than whatever it was they were "normally" talking about around it.
 - It was so intense that some of it had already been set up, but I missed it the first time around and picked it up on a repeat. And there were many repeats.
-- Here's a list of words or phrases or names that kept coming up verbally by other course participants during the sessions then online when I got back to my house:
+
+##### Trigger memes
+
+- Here's a list of words or phrases or names that kept coming up verbally by teachers and course participants during the sessions, then online when I got back to my house:
     - Winston.
     - Coffee.
     - Tonia - pronounced Tona, no Y - extraordinary isn't it.
     - Imagine waking up with no legs.
     - Tibetan monks.
     - The Tibetan monk's name, which incidentally I had forgotten and they used a name he doesn't really use much also (Soma or similar) which was amusing to me, just like they did with Henry too.
-    - A suggestion that I had flirted with the Tibetan monk! Outrageous - this is when I just started laughing at them they were so ridiculous.
+    - A suggestion that I had flirted with the Tibetan monk! Outrageous - this was a few days later and I'd come down off whatever drugs they'd given me and I just started laughing at them they were so ridiculous.
     - Setting up brand memes to use later for triggers: *Lululemon*, for example, I assume referring to Lulu's back in town being a lemon!
     - Horses - I might have gotten confused with the British spy (policewoman - not you, you were cool, the youngster with the Metattude) in Thailand at Fitkoh there.
     - Phones up in front of me as if they're filming me.
@@ -156,6 +159,12 @@ function googleTranslateElementInit() {
 - I thought they maybe thought psychological violence and breaking me was a way to control me in perpetuity.
 - I had no idea they had even more sinister intentions.
 
+#### Course manual
+
+- The YTT course manual looks like a copy of the Sivananda YTT course manual.
+- I realize I'm *supposed* to believe this, and they want me to start complaining about things.
+- I see the multiple *lets-get-her-complaining* traps, and I ignore them.
+
 #### I don't run away
 
 - I feel like running away, but I don't.
@@ -189,7 +198,7 @@ function googleTranslateElementInit() {
 - So I inform them I'm taking this decision and only coming to yoga in the morning.
 - It's what they intended.
 
-### Weird body positions
+#### Weird body positions
 
 - We're asked to make shapes you wouldn't be asked to make in actual yoga.
 - For example, put your fists between your knees to measure the correct distance between your open knees, with a demo from the teacher.
@@ -203,7 +212,7 @@ function googleTranslateElementInit() {
 - I mean, when every man with a porn subscription has seen you doing these things, and would recognize you in the street, at your job, anywhere in the world, the embarrassment on its own due to the (snickery) attitudes they have about you from seeing you like this totally destroys your life; murder by embarrassment.
 - I think this justifies at least a billion more in compensation.
 
-### Two or three days of this before the non-visual-hallucinogen wears off
+#### Two or three days of this before the non-visual-hallucinogen wears off
 
 - I think it was Tuesday afternoon when I started to yawn excessively, the anxiety and dissociation dissipating.
 - I was finally coming down.
