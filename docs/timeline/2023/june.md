@@ -408,7 +408,7 @@ function googleTranslateElementInit() {
 !!! danger "Critical"
     - It is *highly* likely all these fake X accounts were controlled by Hazel and Sandra Smith and English-speaking members of their gang.
 
-## Ireland
+## Transforming Touch in Galway, Ireland
 
 - It's the first Transforming Touch course I've taken in person since [February 2020 in Cork](../2011-to-2020/2020.md#transforming-touch).
 - I'm utterly traumatized from my experience over the last six months, and especially over the last week.
@@ -448,6 +448,17 @@ function googleTranslateElementInit() {
 - Everyone on the course can see I'm in a shocked and traumatized state.
 - I believe I had been sedated and attacked in my apartment just two nights before the course started and the stress is from that, and from constant repeats of the same since at least November 2022... when my friends first started watching/recording on the spy-cam network in my home without the criminals’ knowledge, and even tried to warn me about it/save me in Thailand.
 - The sexual feelings stop completely while I am away from Spain.
+
+### Sheila
+
+- A woman called Sheila is on the course and we get talking.
+- She's a psychotherapist in Dublin.
+- She has a sister, Brenda, who (coincidentally?) lives up the road from me, and she's (coincidentally?) visiting her in September.
+- Brenda is a new-ager and involved in the new age "healing" scene in the area.
+- Brenda knows Lorraine Blackbourn, Alessandra, and many others I know from the area too.
+- Sheila and I keep in touch and arrange to meet when she visits her sister.
+- I'm just wondering in September 2026 if meetups like these were set up so that I would have "normal" reasons to return to the town in September after the summer, even if I was being terrorized to the extent that I was.
+- Sheila is not returning to do the second module of TT, she tells me, and doesn't.
 
 ## Another young girl's *funeral*
 
