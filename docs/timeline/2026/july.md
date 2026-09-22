@@ -501,17 +501,17 @@ function googleTranslateElementInit() {
 - This image is now [in online search by formal and allegedly un-shadowy law-enforcement teams](#the-justice-defense-fund-reach-out).
 - I do remember the last time I really felt slim like that was in [Madrid in May 2024 just before Bali](../2024/may.md#bali) when I bought some small-size jeans which I now billow out of.
 - I wonder if the poisoning with intent to kill began straight after, and I started to develop inflammation around my liver area at that time which suddenly made my yoga practice deteriorate and has similarities to [Maria's horrific experiences in Dénia too](../2011-to-2020/2015.md#vipasana-maria).
-- Or could multiple pinhole surgeries since April 2025 - where my abdomen would have been filled with CO2 gas - have caused this?
+- Or could multiple pinhole surgeries since April 2025 - where my abdomen would have been repeatedly filled with CO2 gas - have caused this?
 
 #### I hear myself having an orgasm, or am I shouting for help?
 
 - Someone in the next room plays back a recording from porn of me having an orgasm.
 - I'm not sure if I'm sedated or conscious; it's sounds raw, machine-like - like one of my colleagues said to me at Adaptive in 2018. *You're a machine, Katharine*.
 - It's good to get a taste of what's coming.
-- I'm ready.
+- I tell them online that I'm ready.
 - Is the world though?
 - Will they snicker or vomit?
-- Is that going to be the test?
+- Is that going to be the Lord's test (not cricket)?
 
 ### They tell me what happened to Lorraine
 
