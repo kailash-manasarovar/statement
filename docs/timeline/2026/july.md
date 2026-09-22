@@ -695,3 +695,19 @@ function googleTranslateElementInit() {
 - I tell him it's a global currency of love.
 - He gets scared at this point, and scurries off into the hotel.
 - I know right. It's big. Like I told my brother in 2013. Like Truman tells his best mate as the conspiracy collapses.
+
+### Meeting Shifra outside the Kotel
+
+- Another morning I'm coming back from the Kotel; it's the Jewish Valentine's day.
+- I bump into Shifra and her friend.
+- Shifra attended both the Transforming Touch courses I assisted on in 2025 and is involved in a centre for sexually abused women - I believe.
+- I see her out of the corner of my eye and recognize her and say hi.
+- She says something about how nice it was for me to recognize her all *out of context* and everything.
+- We chat for a short time.
+- Her friend is getting married in the evening.
+- I say: *we should get Steve back to Jerusalem and do it all again*.
+- She says: *that would be magical*.
+- We part, as she leave she says she loves me.
+- I tell her back that I love her too online when I get back to the hotel - because I know everyone is watching everything I do.
+- I'm curious about this "chance" meeting; more curious that no-one wanted to connect when they heard I was in town, or practice, or whatever - I have a table to use in the city after all.
+- And I'm more curious that at the time we did meet, I was still under the impression I had friends, and my statement confirmed this.
