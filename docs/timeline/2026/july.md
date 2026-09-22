@@ -544,6 +544,38 @@ function googleTranslateElementInit() {
 - Is that the core process, fear and domination?
 - I'm a bit like... *yawn*, now.
 
+### The Justice Defense Fund reach out
+
+- I receive an email from the [Justice Defense Fund](https://justicedefensefund.org/), an organization which is thank God going after the Big Porn crime scene, and the Internet's saturation with online sex crimes.
+- Except, they probably reached out on request by the CIA.
+- They give me the details of two organizations that can help find evidence of the porn of unconsenting and sedated victims in the historic record.
+
+![Justice Defense Fund](../../content/images/justice-defense-fund-recommendations.jpg)
+
+- I contact them - even though I know the law-enforcers around me have the whole collection already, they're keeping quiet and they're too busy bullying me.
+
+#### Sunset Portal by NCVIC
+
+- This website will do an online search for images of you in porn: https://sunset.ncvic.org/.
+- I have 15 images up now, from when I was 16 up to last year.
+
+![Online images](../../content/images/online-images.jpg)
+
+- And I added some porn names too (porn names: such a good joke and a laugh, snicker - I wonder if those marvelous men use them on the children and babies too).
+
+![Porn names](../../content/images/porn-names.jpg)
+
+#### Alecto AI
+
+- I contact Alecto AI too.
+- As I'm browsing their website, I see a reference to *investor* OKX on their website.
+
+![OKX working with porn law enforcement, that's interesting](../../content/images/alecto-ai-friends-with-okx.jpg)
+
+- I remember [the OKX guy trying to grind with me at the Bali beach club](../2024/may.md#missing-time-at-the-beach-club) just after a mass-filmed sedated-gang-rape session with one victim, me.
+- I inform the JDF about this clear conflict of interest, and wonder if Breeze was at the beach club too.
+- No one ever replies; surprise, surprise.
+
 ### Yet another (fake) bridge collapses, again
 
 - The way they set things up to make me believe I was going to be taken to safety while they subjected me to internal invasive surgeries while sedated is criminal, oh wait, yeah sorry forgot...
@@ -608,36 +640,6 @@ function googleTranslateElementInit() {
 
 - I guess God is going to give me my babies back, and the house. We prayed for that, me and Tona-tone-tone.
 - I was needing some clarification on the name... in case Tonia was the Pangolin and the angel is Daniel. Do let me know. Thank you.
-
-## The Justice Defense Fund reach out
-
-- I receive an email from the [Justice Defense Fund](https://justicedefensefund.org/), an organization which is thank God going after the Big Porn crime scene, and the Internet's saturation with online sex crimes.
-- They give me the details of two organizations that can help find evidence of the porn of unconsenting and sedated victims in the historic record.
-
-![Justice Defense Fund](../../content/images/justice-defense-fund-recommendations.jpg)
-
-- I contact them - even though I know the law-enforcers around me have the whole collection already, they're keeping quiet and they're too busy bullying me.
-
-### Sunset Portal by NCVIC
-
-- This website will do an online search for images of you in porn: https://sunset.ncvic.org/.
-- I have 15 images up now, from when I was 16 up to last year.
-
-![Online images](../../content/images/online-images.jpg)
-
-- And I added some porn names too (porn names: such a good joke and a laugh, snicker - I wonder if those marvelous men use them on the children and babies too).
-
-![Porn names](../../content/images/porn-names.jpg)
-
-### Alecto AI
-
-- I contact Alecto AI too.
-- As I'm browsing their website, I see a reference to *investor* OKX on their website.
-
-![OKX working with porn law enforcement, that's interesting](../../content/images/alecto-ai-friends-with-okx.jpg)
-
-- I remember [the OKX guy trying to grind with me at the Bali beach club](../2024/may.md#missing-time-at-the-beach-club) just after a mass-filmed sedated-gang-rape session with one victim, me.
-- I inform the JDF about this clear conflict of interest, and wonder if Breeze was at the beach club too.
 
 ## BAU at the conservatory
 
