@@ -667,6 +667,10 @@ function googleTranslateElementInit() {
 
 ## Israel
 
+- After an interesting arrival <3 I spend a few days in Tel Aviv before heading to Jerusalem where I will stay until the end of August.
+- I stay at the Dan Panorama for two weeks, then the YMCA for four or more weeks in total. It's hard to keep up with these things.
+- I go to the Wall every day nearly; certainly every day I was at the YMCA I went to the Wall.
+
 ### All over me like scabies at the Dan Panorama Jerusalem
 
 - The Americans are there pretty much immediately; ice-cold women who I have no doubt would murder me in an eye-blink and really, *really*, want to.
@@ -677,7 +681,7 @@ function googleTranslateElementInit() {
 
 ![Mayor of Shark City](../../content/images/the-mayor-of-shark-city.png)
 
-- They're in the next rooms, the corridor, the Spanish agents and embassy staff have inhabited the whole floor around my room; just like every hotel I stay in these days in packed with agents.
+- They're in the next rooms, the corridor, the mousses, Spanish agents and embassy staff have inhabited the whole floor around my room; just like every hotel I stay in these days is packed with agents.
 - Not only that, but the Americans added something to my constipation remedy in Bali which *makes* me constipated.
 - It's like they sprayed the herbs with Immodium. 
 - Every time I take a herb, I get even more constipated.
@@ -715,7 +719,8 @@ function googleTranslateElementInit() {
 - I bump into Shifra and her friend.
 - Shifra attended both the Transforming Touch courses I assisted on in 2025 in Jerusalem and is involved in a centre for sexually abused women - I believe.
 - I see her out of the corner of my eye and recognize her and say hi.
-- She says something about how nice it was for me to recognize her all *out of context* and everything.
+- She says something about how nice it was for me to recognize her all *out of context* and everything and introduces me to her friend as a *healer*.
+- *Katharine's a healer*, she says.
 - We chat for a short time.
 - Her friend is getting married in the evening.
 - I say: *we should get Steve back to Jerusalem and do it all again*.
