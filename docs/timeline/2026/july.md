@@ -555,13 +555,13 @@ function googleTranslateElementInit() {
 
 ### The Justice Defense Fund reach out
 
-- I receive an email from the [Justice Defense Fund](https://justicedefensefund.org/), an organization which is thank God going after the Big Porn crime scene, and the Internet's saturation with online sex crimes.
+- I receive an email from the [Justice Defense Fund](https://justicedefensefund.org/), an organization which is going after the Big Porn crime scene, and the Internet's saturation with online sex crimes.
 - Except, they probably reached out on request by the CIA.
 - They give me the details of two organizations that can help find evidence of the porn of unconsenting and sedated victims in the historic record.
 
 ![Justice Defense Fund](../../content/images/justice-defense-fund-recommendations.jpg)
 
-- I contact them - even though I know the law-enforcers around me have the whole collection already, they're keeping quiet and they're too busy bullying me.
+- I contact them - even though I know the *apparent* law-enforcers around me have the whole collection already, they're keeping quiet and they're too busy bullying me.
 
 #### Sunset Portal by NCVIC
 
