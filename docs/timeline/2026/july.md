@@ -146,6 +146,7 @@ function googleTranslateElementInit() {
     - You can help so many sick people in the world - suggesting because I survive poisoning there's something inherent in my body that can help them: their total and utter reinterpretation of Jesus.
     - I practice naked yoga - one of the men says this. Urgh.
     - Dr. Strange - the first slide in physiology class. I was curious about how he made that contextual but I was so disassociated I never found out.
+    - Constant squirrels: squirrel is what I started calling Antonio when I found out the Bali attacks had been filmed.
     - (I'll keep adding these in as I remember them..., it's gonna be quite a list)
 
 - It was a battering.
@@ -232,12 +233,14 @@ function googleTranslateElementInit() {
 
 ### No more stories
 
-- Online communication from day 1 is demanding "no more stories".
-- So I say, OK, no more stories, and you can see I stop writing at the point I had stopped in the repo.
-- I also repeated this online a lot... you will see it on Facebook. 
+- Online communication from day 1 demands "no more stories".
+- So I tell them on Substack, OK, no more stories, and you can see I stop writing at the point I had stopped in the repo.
 - But then, *HUGE* story additions keep coming in from the past (like pre-2000), so I ended up doing a huge amount of writing/editorial on past sections and new past sections.
 - Why would they be so keen for me to stop writing?
 - I did wonder at the time, but it seemed sensible to play their game at least till I figured out what was going on.
+- When I got to Israel, I started writing again from where I left off, and posted about it on Facebook.
+
+![No more stories my ass](../../content/images/no-more-stories-my-ass.png)
 
 ### Another bridge 
 
@@ -319,7 +322,6 @@ function googleTranslateElementInit() {
 - I'm starting to wonder if they've fired this man instead of the other one on purpose... but it's all so suspect - scheming all over it - I decide it's better not to think about it at all.
 - I go into my massage and the women there look at me like they know who I am, and what's happened/still happening to me in Bali: sad and distressed, scared, unable to speak about it.
 
-
 ### Walking into yoga class
 
 - There's a bunch of drones above us, it's 6am, they're up all day too.
@@ -331,6 +333,10 @@ function googleTranslateElementInit() {
 - I message my captors telling them I'd be happy to talk to NASA but not for a few years; there's more important work to do first.
 - They're distracting me, flirting.
 - It's annoying.
+
+### Snake
+
+1. Report snake episode at Loka Yoga, so astonishing I thought it had to be a robot. (Snakes warn me something evil is coming, or before me, used to see them in Dénia before "events" too, significantly 12th June on my way to class there was a snake in the curb..). Loka Yoga was easily the biggest snake of them all. It stopped me dead in my tracks, it was massive, girth of a 2 litre coke bottle, about 5 meters although i didn't see the front of it, crossing the road from one padi to the other. As I said, I thought it was a robot it was SO EXTRAORDINARY... and there were robots about. But snakes do like to warn me. As do beetles. The day before Winston May destroyed my life, three beetles came out of the chimney... The latest beetle in Jerusalem was dead. And I believe that's a very good omen for me, for the children and babies, for the team, and for the world.
 
 ### Thursday and Friday night of the first week
 
@@ -422,6 +428,13 @@ function googleTranslateElementInit() {
 - She's embarrassed, ashamed.
 - They leave soon after I arrive.
 - I never see either of them again.
+
+### Glastonbury
+
+- I see Glastonbury Tor from the windows at Loka Yoga every morning in class. It's such a strong vision, I decide to tell them all after seeing it every morning for days. Once I've told them all, it's gone and I don't see it anymore. And that's nearly as surprising.
+- Around about the same time, if not the exact same day, I see [a photo on Facebook](https://www.facebook.com/photo/?fbid=1486531543516938&set=a.416423213861115) that looks like God drove over Glastonbury and left His tyre-print in the clouds.
+
+![God's tyre print](../../content/images/gods-tyre-print.png)
 
 ### Oh, saving the world, you know, nothing special
 

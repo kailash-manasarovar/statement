@@ -2,13 +2,10 @@
 
 ### July 2026
 
-1. A lot of poses stretching the area I have the rib weakness, as if trying to snap it again then I'd have to stay at home 24-7... I couldn't imagine they'd be doing that and just thought, oh this class is a bit twist heavy, until I realized what the whole thing was...
-1. Online communication from day 1 is about "no more stories", so I say, OK, no more stories, and you can see I stop writing in the repo, and I said it online a lot... you will see it on Facebook even... except story additions keep coming in from the past so I end up doing a lot of writing/editorial on past sections and new past sections. Why would they be so keen for me to stop writing? I did wonder at the time, but it seemed sensible to play their game at least till I figured out what was going on.
-1. I see Glastonbury Tor from the windows at Loka Yoga every morning in class. It's such a strong vision, I decide to tell them all after seeing it every morning for days. Once I've told them all, it's gone and I don't see it anymore. And that's nearly as surprising.
-1. Report snake episode at Loka Yoga, so astonishing I thought it had to be a robot. (Snakes warn me something evil is coming, or before me, used to see them in Dénia before "events" too, significantly 12th June on my way to class there was a snake in the curb..). Loka Yoga was easily the biggest snake of them all. It stopped me dead in my tracks, it was massive, girth of a 2 litre coke bottle, about 5 meters although i didn't see the front of it, crossing the road from one padi to the other. As I said, I thought it was a robot it was SO EXTRAORDINARY... and there were robots about. But snakes do like to warn me. As do beetles. The day before Winston May destroyed my life, three beetles came out of the chimney... The latest beetle in Jerusalem was dead. And I believe that's a very good omen for me, for the children and babies, for the team, and for the world.
+
 1. Leaving... lots of stuff on the weeks of mourning being weeks of joy... kind of feeling like you know, if it is me, i'd better go now, and if it's not me nothing lost, but also if it is me not wanting a whole other year of this bollocks!
 
-
+ISRAEL:
 
 1. Meeting Alex in Mamilla. Alex is excited about the app. When I tell him how it's a global currency of love he gets scared and scurries away. I believe Alex could be Mrs Wasserman's nephew.
 1. Shifra outside the Kotel.
