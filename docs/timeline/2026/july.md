@@ -570,11 +570,13 @@ function googleTranslateElementInit() {
 - I have also been reading the weekly Torah portions, and how this three-weeks of mourning will one day become a celebration. I have to wonder about my role in all this, and I realize if there's even the tiniest chance that I might have something to do with such celebrations, I should leave, and go to Israel, as soon as possible, otherwise there could be a whole other year of this bollocks!! 
 - On the way to the airport in the taxi (a Bali Yoga Loka man is the driver), I see people leaning out of passenger-side car windows while coming towards us taking pictures of me in the car. It's very exaggerated. Thank you for that.
 - After check in, I see a woman in tears walking towards me and she mouths *thank you* - I assume to offset the obvious *we're making sure you get to the airport* of the previous point.
-- I reschedule my flight back to Beijing but at Bali airport decide to fly to Israel instead.
-- Hackers desperately try to make it impossible for me to get an ETA for Israel by making the photo fail every time I send it, until a lovely lady, an angel from Emirates takes my phone and does it herself.
+- I told Taryn when she asked that I was going to Beijing to pick up my hiking gear.
+- Something happens at Bali airport, I think someone walked past me as I was looking for alternative flights to Tel Aviv and said, *please try*, and so I decide to fly to Israel instead.
+- Hackers desperately try to make it impossible for me to get an ETA for Israel by making my passport photo fail every time I send it, until a lovely lady, an angel from Emirates, takes my phone and does it herself.
 - She sees the confirmation email from the Israeli government, but minutes later the email has disappeared.
 - It went into all mail instead of my inbox, for some weird reason.
 - The angel sorts it all out for me, and I'm away.
+- They put a CIA man next to me in business class. It's clear he's just been called out at the last minute. 
 
 ## Comparing the criminal porn-gangs with unscrupulous and insane security service activities
 
