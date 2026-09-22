@@ -921,14 +921,15 @@ function googleTranslateElementInit() {
 - I like her.
 - She knows Lorraine.
 - I ask her what happened to Lorraine, why did she kill herself.
-- She mumbles something about Lorraine's macho boyfriend, and then says that Alessandra will tell me, who is also a shared friend.
+- She mumbles something about Lorraine's macho boyfriend, and then says that Alessandra will tell me, who is also a shared friend (Alessandra doesn't tell me either).
 - Another woman comes for coffee, an Irish woman I've never met before, and behaves in an extraordinarily weird manner; affected, fake.
-- I tell them all something's going on, that I'm hacked by locals at the conservatory, and I'm feeling famous but not for good reasons.
+- I tell them all something's going on, that I'm hacked by locals at the conservatory, and I'm feeling famous in the town but not for good reasons.
 - I never see Brenda or Sheila again.
 - When teachers and staff at the conservatory [suffocate me while sedated in March 2024](../2024/march/13-end.md#the-pillow-game), Brenda is one of the people I text when I wake up convinced I'm going to be murdered.
 - I also text her from [the police station in Dénia](../2024/february.md#my-first-trip-to-the-spanish-police-in-denia) after a threat of violence online.
 - She is also the person who [recommends a translator for me](../2024/march/13-end.md#translator), Sara Lebanon, when I'm trying to organize going to the police again.
-- Sheila is into hallucinogen plants, and she tells me she's thinking about buying a property near to her sister and coming to live in Spain.
+- Sheila is into hallucinogen plants. 
+- When we meet in Spain, she tells me she's thinking about buying a property near to her sister and going to live there permanently.
 
 ## Meeting Christine
 
