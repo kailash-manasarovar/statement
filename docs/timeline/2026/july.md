@@ -213,7 +213,7 @@ function googleTranslateElementInit() {
 - Body positions I made while masturbating in my bathroom with the lights on.
 - Always something.
 - It's so embarrassing, you cannot imagine, but I don't care.
-- When every man with a porn subscription has seen you doing these things, and would recognize you in the street, at your job, at Duty Free in Dubai, anywhere in the world, the embarrassment on its own due to the (snickery) attitudes they have about you from seeing you like this is supposed to totally destroys your life; murder by embarrassment.
+- When every man with a porn subscription has seen you doing these things, and would recognize you in the street, at your job, at Duty Free in Dubai, anywhere in the world, the embarrassment on its own due to the (snickery) attitudes they have about you from seeing you like this is supposed to totally destroy your life; murder by embarrassment.
 - The shame and embarrassment should be theirs, in fact.
 - Nevertheless, I think this justifies at least a billion more in compensation.
 
@@ -225,7 +225,7 @@ function googleTranslateElementInit() {
 - So I'm in Bali in this house on my own going to yoga for a couple of hours in the morning, and I'm being fed, watered (they suggested to me that I was drinking salt-water for days and didn't die - I don't believe them), and monitored closely, every move, every word, every breath.
 - There's a pool in the complex but there's rarely anyone there.
 - There's a giant inflatable swan in the pool which they added to a Snoopy video too.
-- So I'm writing every day - even though they insisted on [no more stories](#no-more-stories) and it's another conversation with the people that are trying to control me, as whatever comes up to be added to this police statement seems to map in extraordinary ways with whatever's going on.
+- So I'm writing every day - even though they insisted on [no more stories](#no-more-stories) - and it's another conversation with people who are trying to control me, and whatever comes up to be added to this police statement seems to map in extraordinary ways with whatever's going on at class.
 - It's curious.
 - It's God.
 - And I think he's annoyed with them.
