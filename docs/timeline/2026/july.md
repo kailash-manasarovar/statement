@@ -29,7 +29,7 @@ function googleTranslateElementInit() {
 - There's agents next door though, on all sides. But they don't talk to me. 
 - They're all pretending to not be American.
 - Eventually, I decide I'm leaving because I feel like I'm under house arrest - like I don't mind extended house arrest such as in Samui, where it's not like solitary confinement (apart from when it affects the local businesses, I don't like that) but this was OTT.
-- It was clear to me, eventually, that the people "arresting" me, as it were, although on my side in certain respects (law-enforcement being the main one - although my trust has failed here too now) they do not have anyone's long term best interests in mind, even their own.
+- It was clear to me, eventually, that the people "arresting" me, as it were, although on my side in certain respects (law-enforcement being the main one - although my trust has failed here too now - statement written pre-eclipse) they clearly do not have anyone's long term best interests in mind, even their own.
 
 ### Arriving
 
@@ -54,24 +54,26 @@ function googleTranslateElementInit() {
 
 - I'm thinking the cockroach is the hideous (but harmless) monster I have to deal with.
 - And the dragon fly is my friend, watching and waiting for me to finish dealing with the hideous (but harmless) monster.
+- I liked his stripes.
 
 #### Stella
 
 - At the first session, the teachers introduce themselves.
 - Firstly, and importantly, Taryn tells us that she and Yann her boyfriend (a Frenchman who worked as a paramedic in Alicante - he's keen I know this) met on LinkedIn - they're keen I know this.
-- One of the other teachers reminds me of the acting students on my first degree course in Performing Arts. She's performing.
+- One of the other teachers reminds me of the acting students on my first degree course in Performing Arts. She's performing. 
+- They're all performing just like the BAPA acting students did back in 1991.
 - There's a Scottish woman teaching some classes on the course and her name is Stella.
-- Stella studied ashtanga yoga in Euston, like [Natalia had, fellow porn gang target in Dénia](../2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me), who I have written about extensively in this police statement as having had the same experience as me with the porn-gangs in Denia.
-- She had been studying there with Hamish, right up until she moved to Dénia.
+- Stella studied ashtanga yoga in Euston, like [Natalia had, fellow porn-gang target in Dénia](../2011-to-2020/2015.md#nati-de-prati-yoga-teacher-and-porn-gang-target-just-like-me), who I have written about extensively in this police statement as having had the same experience as me with the porn-gangs of Dénia.
+- Natalia had been studying yoga with Hamish in Euston, right up until she moved to Dénia.
 - I was always wondering what brought her to that region of Spain, and have been very suspicious that it was connected to the North London gangs who have been making billions on us for decades, but I didn't have a solid lead.
 - Until Stella.
-- I bump into Stella after the session and ask her if she knows Natalia.
+- In a pre-coordinated manner, I bump into Stella after the session and ask her if she knows Natalia.
 - She does.
-- She tells me Natalia was a senior assistant when she was going to the studio.
+- She tells me Natalia was a senior assistant when she was going to the studio too.
 - I explain that Natalia was targeted by the porn-gangs in Spain, that they had done the same to me too and tried to murder me, and that they even got a baby out of her.
-- Stella looked ashen, and a little bit like Domingo at one point; like totally pale and monstrous.
+- Stella looked ashen when I mentioned the baby, and a little bit like Domingo at one point; like totally pale and monstrous.
 - Whatever hallucinogenic substance I had ingested was, by then, exaggerated things to this extent.
-- When are they going to bring them all in, I wonder? Or do they play lets-pretend with all the more robust victims?
+- I now believe Stella introduced Natalia to Domingo Lopez Cano on request from the CIA - it's what they do - and all this was set up so that I might continue to believe the Americans were investigating the sex-crime epidemic of Dénia.
 
 #### Getting to know everyone
 
