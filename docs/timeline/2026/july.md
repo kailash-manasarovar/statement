@@ -150,7 +150,7 @@ function googleTranslateElementInit() {
 
 - It was a battering.
 - Why would they do something like this? I couldn't understand it at all. And while it was going on (whirl-winding around me, slap, slap, thump), and I was high on something, I was unable to assess it properly.
-- It was *exactly* like how the porn-gangs operate on targets, except even more exaggerated, and I felt like I was back in classes at the conservatory.
+- It was *exactly* like how the porn-gangs operate on targets, except even more exaggerated, and I felt like I was back in classes at the conservatory - did the CIA give Domingo Lopez Cano their playbook and instruct him to set the switcheroo-porn up for me like he did?
 - I started to feel the cameras on me too; as if there were hundreds in the room - they would make sure I was standing in a particular spot at times.
 - I felt sensors measuring my physical systems, heart rate, temperature, everything.
 - I realized my house was set up in the same way and indeed I would get confirmation online about things I'd done on my own quietly in private.
@@ -196,7 +196,6 @@ function googleTranslateElementInit() {
 - I wonder if it was the third day, I was so high those few days I can't remember well.
 - They've given me an out in any case by saying you can come to whatever classes you like and not sit the exam.
 - So I inform them I'm taking this decision and only coming to yoga in the morning.
-- It's what they intended.
 
 #### Weird body positions
 
@@ -204,30 +203,41 @@ function googleTranslateElementInit() {
 - For example, put your fists between your knees to measure the correct distance between your open knees, with a demo from the teacher.
 - My knees are splayed, the whole pose would collapse like this.
 - This is no measurement.
-- I realize it was a position I was put in while sedated, so it's on film.
+- I realize it was a position I was put in while sedated, so it's on film - and thought about Alfonso at the same time curiously.
 - Other things like that.
 - Body positions I made while masturbating in my bathroom with the lights on.
 - Always something.
-- It's so embarrassing, you cannot imagine.
-- I mean, when every man with a porn subscription has seen you doing these things, and would recognize you in the street, at your job, anywhere in the world, the embarrassment on its own due to the (snickery) attitudes they have about you from seeing you like this totally destroys your life; murder by embarrassment.
+- It's so embarrassing, you cannot imagine, but I don't care.
+- When every man with a porn subscription has seen you doing these things, and would recognize you in the street, at your job, at Duty Free in Dubai, anywhere in the world, the embarrassment on its own due to the (snickery) attitudes they have about you from seeing you like this totally destroys your life; murder by embarrassment.
 - I think this justifies at least a billion more in compensation.
 
-#### Two or three days of this before the non-visual-hallucinogen wears off
+### Two or three days before the strong, non-visual hallucinogen wears off
 
 - I think it was Tuesday afternoon when I started to yawn excessively, the anxiety and dissociation dissipating.
 - I was finally coming down.
 - I'd arrived on Saturday and been high since then.
 - So I'm in Bali in this house on my own going to yoga for a couple of hours in the morning, and I'm being fed, watered (they suggested to me that I was drinking salt-water for days and didn't die - I don't believe them), and monitored closely, every move, every word, every breath.
 - There's a pool in the complex but there's rarely anyone there.
-- I'm writing every day, and it's another conversation with the people that are trying to control me, as whatever comes up seems to map in extraordinary ways with whatever's going on.
+- There's a giant inflatable swan in the pool which they added to a Snoopy video too.
+- So I'm writing every day - even though they insisted on [no more stories](#no-more-stories) and it's another conversation with the people that are trying to control me, as whatever comes up to be added to this police statement seems to map in extraordinary ways with whatever's going on.
 - It's curious.
 - It's God.
 - And I think he's annoyed with them.
-- I'm sober and continue going to classes, and they continue to do their horror meme triggering thing - this time it was music repeated the Tibetan monk's name over and over, which I didn't even notice for a while sober it was so ridiculous.
+- I'm ecstatic that He is most definitely BACK!
+- I'm sober and continue going to classes, and they continue to do their horror meme triggering thing - this time it was things like music repeating the Tibetan monk's name over and over, which I didn't even notice for a while sober it was so ridiculous.
 - I tell them so online later on; what did I say, something like it's just *trifles* really, and then later online I said *trifles* was euphemistic for a bit silly.
 - Fatuous is the better word.
 - It stops.
 - Just like with the Dénia porn-gangs, the manipulation needs drugging to work effectively.
+
+### No more stories
+
+- Online communication from day 1 is demanding "no more stories".
+- So I say, OK, no more stories, and you can see I stop writing at the point I had stopped in the repo.
+- I also repeated this online a lot... you will see it on Facebook. 
+- But then, *HUGE* story additions keep coming in from the past (like pre-2000), so I ended up doing a huge amount of writing/editorial on past sections and new past sections.
+- Why would they be so keen for me to stop writing?
+- I did wonder at the time, but it seemed sensible to play their game at least till I figured out what was going on.
 
 ### Another bridge 
 
