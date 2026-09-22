@@ -683,13 +683,14 @@ function googleTranslateElementInit() {
 ### Alex in Mamilla
 
 - The first Friday Sabbath evening I'm there, I bump into a man on my way back to the hotel from the Kotel.
-- He introduces himself as Alex.
+- He introduces himself as Alex. 
+- He's a venture capitalist, he says.
 - I remember Mrs Wasserman had a nephew called Alex involved in IT, or something like that.
-- He's on the phone with three religious Jewish men and he shows me them and I wave hi.
+- He's on the phone with three religious Jewish men, and he shows me his phone screen, and I wave hi.
 - It was such a short conversation but in minutes he knew I had a PhD in Computer Science and he wanted to know more about that.
-- I told him I could send him my CV maybe, but he wasn't interested in that.
+- I told him I was a technical writer, but he wasn't interested in that.
 - Then I remembered my app, the forgivenet: https://1frgvn.com/ and told him about it.
-- He got really excited about it.
+- He got really excited.
 - He's asking me some questions: *so what about the token, what does it do?*
 - I tell him it's a global currency of love.
 - He gets scared at this point, and scurries off into the hotel.
