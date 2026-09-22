@@ -74,6 +74,7 @@ function googleTranslateElementInit() {
 - Stella looked ashen when I mentioned the baby, and a little bit like Domingo at one point; like totally pale and monstrous.
 - Whatever hallucinogenic substance I had ingested was, by then, exaggerated things to this extent.
 - I now believe Stella introduced Natalia to Domingo Lopez Cano on request from the CIA - it's what they do, mostly I believe because they really don't think there's anything wrong with porn or brutalizing women - and all this was set up so that I might continue to believe the Americans were investigating the sex-crime epidemic of Dénia.
+- Were they getting ready to throw Stella under the bus?
 
 #### Getting to know everyone
 
@@ -92,7 +93,7 @@ function googleTranslateElementInit() {
 - I pair up with a man from Singapore, Vincent (a German woman will mispronounce his name to sound like Winston later on).
 - We have to answer all these questions.
 - It's time for me to speak my truth.
-- I tell him what's going on with me very openly - about how I was homeless, and jobless, living in my car essentially, because I'd been sedated and raped repeatedly for years and live-streamed from my spy-cam apartment in Dénia, Spain to the world, and how since then I was being stalked by criminal gangs and secret service wherever I went in the world.
+- I tell him what's going on with me very openly - about how I am homeless, and jobless, living in my car essentially, because I'd been sedated and raped repeatedly for years and live-streamed from my spy-cam apartment in Dénia, Spain to the world, and how since then I am stalked by criminal gangs and secret service wherever I go in the world.
 - He tells the others my answers.
 - We didn't finish all the questions so I answer the rest of them directly to the group.
 - When I get to "what's your party trick" or the next question, I tell them "I have survived repeated poisoning attempts by criminal gangs"..
@@ -101,7 +102,7 @@ function googleTranslateElementInit() {
 
 #### Everyone's homeless
 
-- Like Vilde did, and others, a good proportion of the people I'm meeting these days are telling me they're homeless too.
+- Like Vilde did in Tibet, and others, a good proportion of the people I'm meeting these days are telling me they're homeless too.
 - They don't offer this information until I tell them I am homeless.
 - Then they tell me they are too; normalizing my horrendous situation, again.
 - Vincent did this, and a couple of the other course students too.
@@ -110,32 +111,34 @@ function googleTranslateElementInit() {
 
 - Perhaps the dose is ramped up at this point, because I cannot remember what the next session was even about.
 - But whatever it was, it involved a lot of talking, answering questions, all the students interacting, speaking, a conversation with the teachers.
-- Interspersed with everything they said, were trigger meme's from my life experiences and particularly in reference to sexual violence and everything that happened in Dénia.
+- Interspersed with everything they said were trigger meme's from my life experiences and particularly in reference to sexual violence and everything that happened in Dénia.
 - I started to become totally disassociated and found myself thinking more about the trigger memes than whatever it was they were "normally" talking about around it.
-- Some of this has already been set up, but I missed it the first time around.
-- Here's a list of words or phrases or names that kept coming up verbally by other course participants then online when I got back to my house:
+- It was so intense that some of it had already been set up, but I missed it the first time around and picked it up on a repeat. And there were many repeats.
+- Here's a list of words or phrases or names that kept coming up verbally by other course participants during the sessions then online when I got back to my house:
     - Winston.
     - Coffee.
-    - Tonia - pronounced Tona, no Y.
+    - Tonia - pronounced Tona, no Y - extraordinary isn't it.
     - Imagine waking up with no legs.
     - Tibetan monks.
-    - The Tibetan monk's name, which incidentally I had forgotten and they used a name he doesn't really use much also, which was amusing.
-    - Setting up brand memes to use later for triggers: *Lululemon*, for example.
-    - Horses - I might have gotten confused with the British spy (policewoman - not you, you were cool, the youngster with the Metattude) in Thailand there.
+    - The Tibetan monk's name, which incidentally I had forgotten and they used a name he doesn't really use much also (Soma or similar) which was amusing to me, just like they did with Henry too.
+    - A suggestion that I had flirted with the Tibetan monk! Outrageous - this is when I just started laughing at them they were so ridiculous.
+    - Setting up brand memes to use later for triggers: *Lululemon*, for example, I assume referring to Lulu's back in town being a lemon!
+    - Horses - I might have gotten confused with the British spy (policewoman - not you, you were cool, the youngster with the Metattude) in Thailand at Fitkoh there.
     - Phones up in front of me as if they're filming me.
     - Divine feminine, divine relationships.
-    - Arrows (see [June section](june.md#hastening-home-lesson-226)).
+    - Arrows (see [June section](june.md#hastening-home-lesson-226)) - a woman's name was "arrow" in French.
     - She's utterly exhausted - posts coming in from Joy about exhaustion.
 
     ![Exhaustion prompt from Joy](../../content/images/exhaustion-prompt-from-joy.jpg)
 
     - My own words, phrases, and sentences from non-fiction, fiction, blogs, emails, tweets and similar from as far back as 2007 to the current time, from the morning even sometimes if I had been online before class.
-    - He wasn't here just for the water - referencing Elon's trip to Bali in May 2024.
-    - Leave no trace - Vincent had a "surfing" accident early on and had bumped his head. He had apparently been in pain in yoga classes and just sitting quietly. He told me it was a surfing accident, he hit his head, but something rang untrue about it, like he was reading lines. Basically, the course days were packed full of classes, from 6am-6pm and later, the Sunday day off we were all together. There was no time for him to have gone surfing, unless the whole thing was a farce and when I went home, they did too.
+    - *He wasn't here just for the water* - referencing Elon's trip to Bali in May 2024.
+    - *Leave no trace* - Vincent had a "surfing" accident early on and had bumped his head. He had apparently been in pain in yoga classes and just sitting quietly. He told me it was a surfing accident, he hit his head, but something rang untrue about it, like he was reading lines. Basically, the course days were packed full of classes, from 6am-6pm and later, the Sunday day off we were all together. There was no time for him to have gone surfing, unless the whole thing was a farce and when I went home, they did too.
     - Who are the other disciples?
     - Standing spit - referencing a sedated porn position.
     - Three-legged dog - referencing my neighbors dog in Las Marinas who may have starred in porn with me.
     - *Just another lemon tree*, musical backing track to applied hyno-tech in 2023 - proof that the salmon mousses were hacking me alongside the porn-gangs in Las Marinas.
+    - *Project Jonathan* - constant references online to this and a few times at the centre. This is in relation to [Jonathan getting an egg](../2025/september.md#jonathan-tells-me-he-has-the-shingles-virus) from me. This makes me think in August when I'm in Jerusalem that they've set the Jews up to take the blame for this. Or did they have another evil scheme in mind, who knows. Perhaps they're aware my internal injuries are not going to be ignorable for so long. Ironically, throwing the Jews under the bus like this becomes significant and top-of-mind, and gets me thinking about [Michael Sullivan who worked for Pan Am](../pre-2001/1989.md#sullivan).
     - (I'll keep adding these in as I remember them..., it's gonna be quite a list)
 
 - It was a battering.
@@ -160,6 +163,16 @@ function googleTranslateElementInit() {
 - This is the first day over, unless there was something else, yes there was because the flowers from the ceremony kept going over the floor.
 - There was another session of psychological torture before the day ended; I have no idea what the content of the session had actually been.
 - The torture was so effective that it totally dissociated me and I have no recollection of what these sessions were posing as.
+
+### Another bridge 
+
+- The whole "bridge to Israel" is a major theme, from the moment I got in the taxi at the Holiday Inn.
+- They flashed up Isaiah on his screen and were playing songs with very suggestive "bridge" lyrics.
+- At the house, they were implying (online on social media, on Netflix Snoopy videos and then when Netflix stopped working on the Snoopy videos on YouTube) that Bibi was watching me in the house.
+- Things I did in my house, repeated back at me so I know they really are watching.
+- They told me I shouldn't waft if I fart - which is something I used to do back in the day, long long ago, when I thought I wasn't being watched.
+- The instruction that I should dress well all the time, even at home, because I'm being watched all the time and assessed for rescue and Israeli immigration.
+- This meme I'm still seeing in Cauterets in September 2026!
 
 ### Involving the locals
 
