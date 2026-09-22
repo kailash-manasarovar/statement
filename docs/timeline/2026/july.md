@@ -89,15 +89,22 @@ function googleTranslateElementInit() {
 - As they go around, every student behaves in exactly the same way the students on the BAPA course at Middlesex did. They're all performing. 
 - The party tricks are nearly all the same! Bodily weirdness. Personally, I had a much broader bucket for party trick examples.
 - It's amazing to me. I can't figure it out at first. So I wait.
-- I pair up with a man from Singapore.
+- I pair up with a man from Singapore, Vincent (a German woman will mispronounce his name to sound like Winston later on).
 - We have to answer all these questions.
 - It's time for me to speak my truth.
-- I tell him what's going on with me very openly.
+- I tell him what's going on with me very openly - about how I was homeless, and jobless, living in my car essentially, because I'd been sedated and raped repeatedly for years and live-streamed from my spy-cam apartment in Dénia, Spain to the world, and how since then I was being stalked by criminal gangs and secret service wherever I went in the world.
 - He tells the others my answers.
-- We didn't finish the questions so I answer the rest of them directly to the group.
-- When I get to "what's your party trick", I say "surviving poisoning attempts".. it's not that but I can't remember the question before.
+- We didn't finish all the questions so I answer the rest of them directly to the group.
+- When I get to "what's your party trick" or the next question, I tell them "I have survived repeated poisoning attempts by criminal gangs"..
 - I explain I have been poisoned repeatedly, I explain by criminal gangs, and I tell them I don't die.
-- No-one seems particularly surprised.
+- No-one seems particularly surprised or mentions it again.
+
+#### Everyone's homeless
+
+- Like Vilde did, and others, a good proportion of the people I'm meeting these days are telling me they're homeless too.
+- They don't offer this information until I tell them I am homeless.
+- Then they tell me they are too; normalizing my horrendous situation, again.
+- Vincent did this, and a couple of the other course students too.
 
 #### The psychological torture begins
 
