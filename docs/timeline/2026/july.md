@@ -658,27 +658,28 @@ function googleTranslateElementInit() {
 ### All over me like scabies at the Dan Panorama Jerusalem
 
 - The Americans are there pretty much immediately; ice-cold women who I have no doubt would murder me in an eye-blink and really, *really*, want to.
-- But, curiously, they've brought thousands of Spanish along with them too - it's a last minute tour group of some variety.
+- But, curiously, they've brought thousands of jubilant Spanish along with them too - it's a last minute tour group of some variety.
 - Some of these are *obviously* embassy staff.
-- You see, you can tell hierarchies amongst groups in a flash if there's people everyone's scared of in there...
+- Did the Spanish decide to visit themselves when they heard I'd escape the CIA's Bali torture chamber?
 - I make some joke about The Mayor of Shark City (it's been nearly three years they have refused to do anything for the babies and children of Dénia now).
 
 ![Mayor of Shark City](../../content/images/the-mayor-of-shark-city.png)
 
 - They're in the next rooms, the corridor, the Spanish agents and embassy staff have inhabited the whole floor around my room; just like every hotel I stay in these days in packed with agents.
-- Not only that, but they've added something to my constipation remedy which makes me constipated (just a small effect of living in an ongoing horror show which I had a really good remedy for that I needed only once-a-week).
+- Not only that, but the Americans added something to my constipation remedy in Bali which *makes* me constipated.
 - It's like they sprayed the herbs with Immodium. 
 - Every time I take a herb, I get even more constipated.
 - What's interesting is that, I had the tub sitting on the shelf in my prison-cell, oh I mean holiday house, in Bali while in their clutches, and all these mosquitoes were sitting all over it. Nowhere else. Never happened before.
 - So I was thinking; they've done something to these haven't they.
 - I left the herbs for my friends, so we can confirm that.
 - But the mousses and their Spanish slaves, online and in the corridor, do confirm it when I complain about it online.
-- They despise me.
+- The mousses despise me. There's no reason for it.
 - So what's going on exactly?
 - I'm soon to find out... one criminal gang has replaced another, but that was *years* ago, and I'm nearly certain now that [Inma and her pal Paloma](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid) - my friend from Madrid tasked with keeping tabs on me from way back in 2005 - are working for the Americans too.
 - Truth be told, if you're Spanish, you automatically work for the Americans; amiright? Of course I am.
 - So that's why no-one's been able to do a thing about the criminal sex-offending in Dénia and the public and government school systems of Spain.
 - ! WOW !
+- And that also explains the unusually jubilant nature of all the Spanish in the hotel; as if they were celebrating the end of something really horrible!
 
 ### Alex in Mamilla
 
@@ -700,14 +701,14 @@ function googleTranslateElementInit() {
 
 - Another morning I'm coming back from the Kotel; it's the Jewish Valentine's day.
 - I bump into Shifra and her friend.
-- Shifra attended both the Transforming Touch courses I assisted on in 2025 and is involved in a centre for sexually abused women - I believe.
+- Shifra attended both the Transforming Touch courses I assisted on in 2025 in Jerusalem and is involved in a centre for sexually abused women - I believe.
 - I see her out of the corner of my eye and recognize her and say hi.
 - She says something about how nice it was for me to recognize her all *out of context* and everything.
 - We chat for a short time.
 - Her friend is getting married in the evening.
 - I say: *we should get Steve back to Jerusalem and do it all again*.
 - She says: *that would be magical*.
-- We part, as she leave she says she loves me.
-- I tell her back that I love her too online when I get back to the hotel - because I know everyone is watching everything I do.
+- We part; as she leave she says she loves me.
+- I tell her that I love her too, online when I get back to the hotel - because I know everyone is watching everything I do.
 - I'm curious about this "chance" meeting; more curious that no-one wanted to connect when they heard I was in town, or practice, or whatever - I have a table to use in the city after all.
 - And I'm more curious that at the time we did meet, I was still under the impression I had friends, and my statement confirmed this.
