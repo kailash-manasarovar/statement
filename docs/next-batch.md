@@ -3,8 +3,6 @@
 ### July 2026
 
 
-1. Leaving... lots of stuff on the weeks of mourning being weeks of joy... kind of feeling like you know, if it is me, i'd better go now, and if it's not me nothing lost, but also if it is me not wanting a whole other year of this bollocks!
-
 ISRAEL:
 
 1. Meeting Alex in Mamilla. Alex is excited about the app. When I tell him how it's a global currency of love he gets scared and scurries away. I believe Alex could be Mrs Wasserman's nephew.

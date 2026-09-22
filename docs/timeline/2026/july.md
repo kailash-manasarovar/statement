@@ -567,6 +567,7 @@ function googleTranslateElementInit() {
 - I hear "pack" in yoga class on the Saturday morning.
 - I've realized that the intuitive agent business can also plant ideas in people's heads and this explains many of the thoughts I have which feel alien, and this one feels a bit alien too, but I like it, it's good advice.
 - It's time to go. This is a farce.
+- I have also been reading the weekly Torah portions, and how this three-weeks of mourning will one day become a celebration. I have to wonder about my role in all this, and I realize if there's even the tiniest chance that I might have something to do with such celebrations, I should leave, and go to Israel, as soon as possible, otherwise there could be a whole other year of this bollocks!! 
 - On the way to the airport in the taxi (a Bali Yoga Loka man is the driver), I see people leaning out of passenger-side car windows while coming towards us taking pictures of me in the car. It's very exaggerated. Thank you for that.
 - After check in, I see a woman in tears walking towards me and she mouths *thank you* - I assume to offset the obvious *we're making sure you get to the airport* of the previous point.
 - I reschedule my flight back to Beijing but at Bali airport decide to fly to Israel instead.
