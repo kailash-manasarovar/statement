@@ -602,6 +602,7 @@ function googleTranslateElementInit() {
 
 - It's extraordinary how many of the sketches in Monty Python's Meaning of Life run through our story in hilarious ways.
 - I particularly like the deadly fluffy bunny.
+- God obviously set that all up long ago to make sure we never think too badly of the British <3
 
 ### I decide to leave
 
