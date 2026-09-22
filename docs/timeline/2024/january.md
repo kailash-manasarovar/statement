@@ -251,6 +251,16 @@ function googleTranslateElementInit() {
 
 - I expect that's HS again.
 
+### The obvious CIA woman
+
+- An American woman flies in to attend this course - module 2 - and this course only.
+- She looks like a powerful US government employee; blond, late 40s, smart, very smart, power-suit corporate type.
+- She takes time to talk to me; she wants to know some background of my trauma history.
+- I remember telling her that it seemed like at the very moment I started doing Transforming Touch in June 2023 with Steve, there was a reenactment of my trauma history - meaning what was going on in at the conservatory in Spain that culminated on [12th June 2023](../2023/june.md#monday-12th-june-2023) just before I saw him again.
+- She smiles and says, *wow*.
+- I think it was around this time I felt like powerful American women might be helping in the background, and I may have tweeted to this effect too.
+- A woman I see standing at the next passport booth at Hyderabad airport in January 2026 - when the Internet went down in the whole airport and they were trying to convince me I was going to be save by the Israeli's again - reminds me very much of her.
+
 ### Flying back to Spain from Ireland
 
 #### San Antonio and the cat
