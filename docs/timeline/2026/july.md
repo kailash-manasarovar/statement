@@ -376,9 +376,16 @@ function googleTranslateElementInit() {
 - And I have to wonder who's turn it's been on their other off-sites since then, and before too, and whether this is now an industry expectation: *rape the female colleague you hate on our off-sites... she'll never know!!!! ... and if she does find out, don't worry, we'll make sure the secret services silence her*.
 - Do you think they add it to job ads and specs, *special events* maybe, like they say at the swingers club in Dénia?
 
-### Cats can survive on sea-water
+#### Cats can survive on sea-water
 
-- wip
+- I'm sitting with the Aussie guy.
+- People keep bring drinks for us and putting them on the table.
+- I'm not drinking anything anyone brings me.
+- The woman who spat out her tea, brings us some smoothies.
+- I swap mine with his, and say sorry.
+- He then tells me that cats survive on sea water.
+- I don't know why he would say this. Is he suggesting they tested this out while they were drugging me? They controlled everything I ate and drank for a few days.
+- I think it's BS.
 
 ### Another criminal is brought around the world for viewing
 
@@ -389,6 +396,13 @@ function googleTranslateElementInit() {
 - She's embarrassed, ashamed.
 - They leave soon after I arrive.
 - I never see either of them again.
+
+### Oh, saving the world, you know, nothing special
+
+- One morning the Aussie guys asks me how I'm doing.
+- He says, what do you do all day?
+- I say: *oh, you know, saving the world, that sort of thing, nothing special*.
+- I'm so delighted I got to say this to someone :)
 
 ### They relentlessly pretend to be something they're not
 
