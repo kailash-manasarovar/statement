@@ -417,7 +417,7 @@ function googleTranslateElementInit() {
 - *I hate it that they did that to you. They're such shit bastards aren't they!*
 - And the other agent lady who I love sitting in between this VIP man and his wife and our classmate spat out her tea!
 - It was hilarious.
-- So, a positive result of my Bali stay was I have been thinking about May 2024's events more closely, and remembering even more weird things, and realizing that I was probably sedated and raped for most of that week by my employer, crypto-giant [Polygon Labs](https://polygon.technology/about) who even have a lawyer who makes speeches about crypto currency in Washington - well whaddaya know!
+- So, a positive result of my Bali stay was I have been thinking about May 2024's events more closely, and remembering even more weird things, and realizing that I was probably sedated and raped for most of that week by my employer, crypto-giant [Polygon Labs](https://polygon.technology/about) who even have a lawyer Rebecca Rettig who gives speeches about crypto currency in Washington - well whaddaya know!
 - I made a lot of updates to the statement in Bali after that.
 - And I have to wonder who's turn it's been on their other off-sites since then, and before too, and whether this is now an industry expectation: *rape the female colleague you hate on our off-sites... she'll never know!!!! ... and if she does find out, don't worry, we'll make sure the secret services silence her*.
 - Do you think they add it to job ads and specs, *special events* maybe, like they say at the swingers club in Dénia?
@@ -429,8 +429,9 @@ function googleTranslateElementInit() {
 - I'm not drinking anything anyone brings me.
 - The woman who spat out her tea, brings us some smoothies.
 - I swap mine with his, and say sorry.
-- He then tells me that cats survive on sea water.
-- I don't know why he would say this. Is he suggesting they tested this out while they were drugging me? They controlled everything I ate and drank for a few days.
+- He then tells me that cats can survive on sea water, which isn't true.
+- I don't know why he would say this.
+- Is he suggesting they tested this out while they were drugging me? They controlled everything I ate and drank for a few days.
 - I think it's BS.
 
 ### Another criminal is brought around the world for viewing
