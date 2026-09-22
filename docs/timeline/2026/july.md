@@ -512,6 +512,12 @@ function googleTranslateElementInit() {
 
 - I also found out - someone told me basically - what happened to Lorraine Blackbourn that caused her to commit suicide.
 - I didn't get it or write about it for a while, and so they even demonstrated the torture-porn rope ties on a snoopy video AI-tailored just for me and then I started to mention it in here.
+- I added it to [the front page](../../index.md#lorraine-blackbourn-should-be-alive-today) because she is the key to our story.
+
+### Chris Ludwick's excel sheet
+
+- They suggested to me they'd found Chris Ludwick's excel sheet that details his criminal porn collection.
+- My view is he gave the VHS's to Mel to look after - I think he has/had an allotment in Hornsey somewhere.
 
 ### Snoopy videos
 
