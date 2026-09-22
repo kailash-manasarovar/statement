@@ -147,7 +147,10 @@ function googleTranslateElementInit() {
     - I practice naked yoga - one of the men says this. Urgh.
     - Dr. Strange - the first slide in physiology class. I was curious about how he made that contextual but I was so disassociated I never found out.
     - Constant squirrels: squirrel is what I started calling Antonio when I found out the Bali attacks had been filmed.
-    - One of the course participants looks exactly like Will Ferrell; an actor I'm probably on the record about finding repulsive since I saw him in *The Other Guys* making light of pimping women. Or did I tell someone about that? If so it was most likely my mum in the sitting room while we were watching TV, because I have literally been that isolated there was no one else to tell that wasn't a total misogynist.
+    - One of the course participants looks exactly like Will Ferrell; an actor I'm probably on the record about finding repulsive since I saw him in *The Other Guys* making light of pimping women. Or did I tell someone about that? If so it was most likely my mum in the sitting room while we were watching TV, because I have literally been that isolated there was no one else to tell that wasn't a total misogynist. They make sure I sit right opposite him.
+    - Another course participant initiates a conversation about virgin births.
+    - I hear course participants saying they all want to go home.
+    - I hear course participants suggesting the dogs are trained, and indeed it seemed like the three dogs that came into sessions were triggered to move away from me whenever they got close with pen clicks.
     - (I'll keep adding these in as I remember them..., it's gonna be quite a list)
 
 - It was a battering.
@@ -205,13 +208,14 @@ function googleTranslateElementInit() {
 - For example, put your fists between your knees to measure the correct distance between your open knees, with a demo from the teacher.
 - My knees are splayed, the whole pose would collapse like this.
 - This is no measurement.
-- I realize it was a position I was put in while sedated, so it's on film - and thought about Alfonso at the same time curiously.
+- I realize it was a position I was put in while sedated, so it's on film - and thought about Alfonso, harmony teacher at the conservatory, at the same time.
 - Other things like that.
 - Body positions I made while masturbating in my bathroom with the lights on.
 - Always something.
 - It's so embarrassing, you cannot imagine, but I don't care.
-- When every man with a porn subscription has seen you doing these things, and would recognize you in the street, at your job, at Duty Free in Dubai, anywhere in the world, the embarrassment on its own due to the (snickery) attitudes they have about you from seeing you like this totally destroys your life; murder by embarrassment.
-- I think this justifies at least a billion more in compensation.
+- When every man with a porn subscription has seen you doing these things, and would recognize you in the street, at your job, at Duty Free in Dubai, anywhere in the world, the embarrassment on its own due to the (snickery) attitudes they have about you from seeing you like this is supposed to totally destroys your life; murder by embarrassment.
+- The shame and embarrassment should be theirs, in fact.
+- Nevertheless, I think this justifies at least a billion more in compensation.
 
 ### Two or three days before the strong, non-visual hallucinogen wears off
 
