@@ -344,7 +344,7 @@ function googleTranslateElementInit() {
 - On Thursday morning, as I'm leaving the yoga school, a snake passes me on the road.
 - It slides out of one rice paddy field, slithers across the road right in front of my feet, and into the rice paddy field opposite.
 - It's so astonishing I thought it had to be a robot. 
-- Snakes warn me something evil is coming, or before me, and I used to see them in Dénia before "events" too, significantly on the 12th June on my way to class there was a snake in the curb that I went over to say hello to (I like snakes).
+- Snakes warn me something evil is coming, or before me, and I used to see them in Dénia before "events" too; significantly on the 12th June on my way to class there was a snake in the curb that I went over to say hello to (I like snakes).
 - The Loka Yoga snake was easily the biggest snake of them all.
 - It stopped me dead in my tracks; it was massive, girth of a 2 litre coke bottle or bigger, about 5 meters long although I didn't see the front of it so it could have been longer.
 - As I said, I thought it was a robot it was SO EXTRAORDINARY... and there were robots about.
@@ -363,9 +363,9 @@ function googleTranslateElementInit() {
 - I wake up devastated, my heart thumping to the same rhythm as the music in a car parked outside the house.
 - Close to the end of the dream I had also sensed two men in my bedroom and one of them is putting something up my rear end while I'm lying on my right side.
 - I get up and email my mother to see if she is OK.
-- (Incidentally, I annoyed them over a month later by mentioning [Kathleen Love](../2011-to-2020/2020.md#kathleen-love) and right after I did so, when I went for a walk, people kept walking past me suggesting my mother was having a heart attack... fatuous, like someone else said, unnecessary, time-wasting).
+- (Incidentally, I annoyed them over a month later in Jerusalem by mentioning [Kathleen Love](../2011-to-2020/2020.md#kathleen-love) and right after I did so, when I went for a walk, people kept walking past me suggesting my mother was having a heart attack... fatuous, like someone else said, unnecessary, time-wasting).
 - I'm hoping at the time she'll reply and tell me my dad's been arrested, but she doesn't, she replies they're all well.
-- My bottom feels like something strange happened - I *never* felt like this in Dénia. I think they must apply numbing creams or something.
+- My bottom feels like something strange happened - I *never* felt like this in Dénia. I think they must apply numbing creams or something - and I have excessive gas for a couple of days too.
 - Next morning God speaks directly to my captors, and says: *you stupid idiots*.
 - On the walk in to class, Saint Michael is in the clouds, fierce and furious, red and black as the sun rises. 
 - Anyone who has seen the angels in the clouds will know exactly what I'm talking about, there were some in Thailand at Christmas but they were loving and kind. This was war and fury.
