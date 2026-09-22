@@ -132,6 +132,7 @@ function googleTranslateElementInit() {
 - I expect he did.
 - And, it turns out, I'm a weapons designer for the IDF as well as everything else.
 - Antonio gave me what I had been wishing for online since October 7th 2023.
+- Or, it was another BS set up by the CIA they could use to make me think they were Israel.
 
 ## Médiathèque de Lourdes
 
