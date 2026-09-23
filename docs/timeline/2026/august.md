@@ -32,6 +32,7 @@ function googleTranslateElementInit() {
     - I was trying to figure out why [I had seen the pangolin at Ben Gurion](july.md#the-pangolin-at-ben-gurion), and the trauma reaction I had had at the same time.
     - I was thinking about forgiving people for evil acts, and what that really entails.
     - It's a bit of a rant but I'll leave it in as my thought processes were working through to the truth.
+    - It was a good rant in my view as it ended up a justification for the forgivenet - I don't think that's where I was going with it initially.
 
 - Forgiveness is in the heart and mind, not really the body, although..
 - Jesus on the cross had a perfect heart and mind, but he suffered excruciating pain and distress while it was happening.
