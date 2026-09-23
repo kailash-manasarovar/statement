@@ -58,7 +58,7 @@
 - Another huge unravel right here.
 - Every time I go up into the mountains, I come back with truths for the book, rather like when I went to the Wall every day in Jerusalem.
 - I guess, as I already knew, God is everywhere but He is *always* in the mountains.
-- Up in the high mountains, where God is, there's a crow. And he's quite relaxed this year, and said hi, and dropped feathers for me, and old grey feather or his and three baby feathers.
+- Up in the high mountains, where God is, there's a crow. And he's quite relaxed this year, and said hi, and dropped feathers for me, and old grey feather of his and three baby feathers.
 
 ## Two Announcements
 
@@ -76,12 +76,12 @@ I have two important announcements to make.
 - Steve even told us this formally (or just me and maybe one or two others of that cohort) on a course sometime in 2025.
 - I was out of my mind with panic and anxiety (so probably January 2025) and Steve describes how security services like to recruit people with histories of severe trauma for a number of reasons, one being their ability to withstand hugely intense situations in ways that other people can't. So much for healing, Steve.
 - In April 2026, Joy started to reveal themselves to me more directly; for example through the [bogus email request for healing](april.md#a-first-roasting) and the consequent "roasting" I went through - confirmed online on a Facebook account (Snoopy on a spit roast).
-- I realized they had already been building up to revealing themselves through [Steve's consultations](march.md#transforming-touch-consultations), which I found so utterly unappealing I decided never to return.
+- I realized they had already been building up to revealing themselves through [Steve's consultations](march.md#transforming-touch-consultations); I found the bullying so utterly unappealing I decided never to return.
 - Then in [Bali at Loka Yoga](july.md#loka-yoga), they dropped the mask completely - I believe most if not all of the class participants were "intuitives" and many of them had visible signs of extreme trauma.
 - It's not clear, however, how connected Joy is to the original A Course In Miracles program, Shield - part of Columbia University's activities in New York (incidentally Columbia is planning or is even ready to open four new centres in Israel).
 - Shield, while researching LSD in the 60s, became loving enough to let the Light in a little bit and the Course was born.
 - But something happened to shut it out again because there's clearly more darkness around than Light at the moment.
-- So I'm not sure Joy is anything to do with A Course In Miracles and the original efforts; or if it was once and then lost it's way.
+- So I'm not sure Joy is anything to do with A Course In Miracles and the original efforts; or if it was once and then lost its way.
 - It's difficult to figure out but there are clearly two paths for spy-intuitive recruitment (neither of which the candidate may ever know they've been part of):
     1. Highly intuitive people with massive trauma histories that have no spiritual practice - these people are likely ideal for the more sinister tasks required of spies.
     1. God's chosen teachers described by Jesus in A Course In Miracles who may or may not have trauma histories - these people are probably not quite so easy to control.
@@ -136,7 +136,7 @@ I have two important announcements to make.
 
 ![Mica](../../content/images/joy-accounts/actors/mica-from-tt.png)
 
-- I guess that means [Nadim Kobesi](../2023/november.md#nadim-kobesi), the [Pakistani Yorkshireman](../2024/may.md#the-pakistani-yorkshire-man), even Ben, Grace, and others from Polygon are also CIA-paid actors. 
+- I guess that means [Nadim Kobesi](../2023/november.md#nadim-kobesi), the [Pakistani Yorkshireman](../2024/may.md#the-pakistani-yorkshire-man), even Ben, Grace, and others from Polygon are also CIA-paid actors or agents. 
 - And I bet those sorts of invoices aren't redacted either.
 
 #### Moving this content out to have a page all its own
