@@ -671,6 +671,23 @@ function googleTranslateElementInit() {
 - I stay at the Dan Panorama for two weeks, then the YMCA for four or more weeks in total. It's hard to keep up with these things.
 - I go to the Wall every day nearly; certainly every day I was at the YMCA I went to the Wall.
 
+### The pangolin at Ben Gurion
+
+- When I arrive at Tel Aviv airport, I have to wait a short time before I'm able to leave the airport.
+- So I'm sitting waiting for the visa woman to call me, and as I'm sitting there, all of a sudden the pangolin walks by.
+- Well, it's a man I recognize immediately as a [trumpet teacher](../../crimes/protagonists/vidal-sastre.md) from Dénia.
+- I notice also that I'm unable to look at him for more than a glance, and then I look down. I can only look at the man in short glances.
+- I find this weird.
+- A good few weeks later, I realize that I have never consciously seen this man before and he never attended conservatory classes.
+- At that moment, I add him to the list of trumpet teachers as [number seven](../../crimes/protagonists/vidal-sastre.md#7-the-pangolin).
+- I also realize he's the *pangolin* mentioned regularly online on fake accounts.
+- Another curious thing is that I remembered having the same *only-able-to-look-at-him-in-short-glances* reaction to a status at Sainte Baume of the "bad" criminal to the left of Jesus.
+- I realize that sedating training includes violence towards a target whereby if they see the rapist in the future, they won't be able to look directly at them without looking away, and the porn-gangs require this reaction to include animals in the growing group of living beings the target believes is one man.
+- The fact that I see this man in Ben Gurion airport is perplexing to me, and I don't figure that out for even longer: that everyone was lying to me about Antonio Ruiz being rescued and taken to Israel in August 2025, and instead they took a whole bunch of them all together!
+- I update my notes accordingly, and then, on 11th September I see Antonio Ruiz in Lourdes and I realize they told me an even more wicked lie because he never went to Israel.
+- I mean, talk about lies upon lies upon lies... they probably forgot the original one mostly, and newbies will never hear about it.
+- Let's make amends.
+
 ### All over me like scabies at the Dan Panorama Jerusalem
 
 - The Americans are there pretty much immediately; ice-cold women who I have no doubt would murder me in an eye-blink and really, *really*, want to.
