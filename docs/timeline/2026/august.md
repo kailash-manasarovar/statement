@@ -132,10 +132,12 @@ function googleTranslateElementInit() {
 - And I start to think I was wrong about the woman in my dream being Antonio's daughter and rather she'll be mine instead.
 - And I think about when that could have happened, and I come up with April 2026 in Dublin when I noticed wounds and suspicious events at Beckett Locke as well as (unconscious) signals from Steve about it.
 - And all the signals from the Jews in Jerusalem the September and May before.
-- So I thought they had set them up to take the blame if anyone ever found out.
-- And then I started thinking about Sullivan.
+- So I thought they had set them up to take the blame if anyone ever found out - Project Jonathan.
+- And from here I started thinking about Sullivan and how the Americans had blamed Israel for Lockerbie too.
 - And from here it just all started to come.. surely it wouldn't have just been that one time, really? I was thinking. And every day I went to the Wall, more of it came out.
-- And then I post the following.. because I still think Antonio is in Israel, although I cannot understand why I haven't seen him yet because I did see the pangolin, and I think it must be because the Americans are evil.
+- And then I post the following.. because I still think Antonio is in Israel, although I cannot understand why I haven't seen him yet because I did see the pangolin, and I think it must be because the Americans are evil, and so I update the front page to add info about him *languishing in a mousse-controlled jail in the north or Israel*, etc.
+- But I'm still wrong about everything.
+- Anyway.
 
 ## Unfortunately, my love
 
@@ -235,6 +237,7 @@ function googleTranslateElementInit() {
 
 ## Confirmation mousses up India's arse even in Israel
 
+- 23rd the mountain was at the Wall, and I remembered meeting the couple who had family on the Air India flight.
 - One day in Jerusalem, I suggest to my online friends that squirrel and I might do well in India because if the mousses are controlling everyone, at least me and him might stand a chance together in India - I talk a lot like this online (I never save these things, but they always know) ... I also look up "asylum in India" processes online. The next morning outside David's tomb they've set up an Indian woman with a MASSIVE plastic sign saying something like "Join us, you will be safe", or some such.. this is why I say these things about escape to India... but if the mousses control India, then that's out too even!
 
 ## Constant activity when I leave the YMCA, and in the YMCA too, until the Truth is fully out
