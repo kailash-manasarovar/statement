@@ -236,7 +236,7 @@ function googleTranslateElementInit() {
 - Everything else that's happened to me feels like nothing compared to this.
 - I felt utterly friendless.
 - I had already lost everything and everyone, and the tiniest faith I had in people was just ripped away in an instant.
-- I was devastated, and in bed, it was early, and I cried out to God from my heart, *where are my friends, Father?*.
+- I was devastated, and in bed, it was early, and I cried out to God from my heart, *where are my friends, Father?*
 - And something happened.
 - It was like a warm tingling glow inside me, and I could practically see the Light of it.
 - It was love, and kindness, and I knew it was God.
@@ -253,7 +253,7 @@ function googleTranslateElementInit() {
 - Mrs Wasserman's nephew Alex walked by giving me those looks.
 - I smiled at him at the last minute and he seemed relieved.
 - And Esther (or an Esther lookalike) walked through and as she passed me she seemed to have something wrong with her head, it started shaking.
-- If she did get an egg in March 2025, it would have been soaked with pesticides so I am very concerned about any children arising from that time.
+- If she did get an egg in March 2025, it would have been soaked with pesticides so I am very concerned about any children arising from then if there was an extraction.
 
 ## Call social security
 
@@ -263,6 +263,8 @@ function googleTranslateElementInit() {
 - I will be harmless and helpful <3 
 - Squirrel and I will take our own biological children back as soon as is reasonably possible.
 - If, due to arrogance and lack of wisdom, any of the people that were capable of justifying such evil complain, they should remember well that stolen children are always despised by the families that stole them, and any psychologist or psychotherapist worth his license can confirm.
+- Not to mention that all the extractions occurred during poisoning attempts or severe sedation and thus it is highly likely all children arising from such extractions will be unwell in some way. I'm so sad about this.
+- I know I'm naive about Antonio; probably he's the very last thing I've got in this world apart from God and so I cling a little. Forgive me.
 
 ## Confirmation mousses up India's arse even in Israel
 
