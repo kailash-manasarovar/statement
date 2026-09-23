@@ -193,6 +193,18 @@ function googleTranslateElementInit() {
 
 - One day in Jerusalem, I suggest to my online friends that squirrel and I might do well in India because if the mousses are controlling everyone, at least me and him might stand a chance together in India - I talk a lot like this online (I never save these things, but they always know) ... I also look up "asylum in India" processes online. The next morning outside David's tomb they've set up an Indian woman with a MASSIVE plastic sign saying something like "Join us, you will be safe", or some such.. this is why I say these things about escape to India... but if the mousses control India, then that's out too even!
 
+## Constant activity when I leave the YMCA, and in the YMCA too, until the Truth is fully out
+
+- Further to this... it was constant.
+- T-shirts, hats, bags with significant words and phrases.
+- Hollywood actress lookalikes, TT student lookalikes, words, sly comments, he's a porn producer, ..
+- Constant prompts on Antonio being in Israel - which we know is a lie.
+- When I first mention the pinhole wound, I had men screaming *scribbles of Baal* at me outside David's tomb in French!, which was curious, and others furious with the Catholics, which I fully agree with... I went to mass for 15th August and felt like vomiting and left.
+- I showed the wound to the Wall (hoping they'd get it on film).. then as the other memories came steadily back there'd be less and less of this..
+- After I remembered Kathleen Love and wrote about her there was anger at the Wall: *Steve is OUT*, someone said.
+- And as it slowly, or quickly rather, came out day by day, and for the last few days of my stay, after the feeling I had had in my bed when I was devastated and realized the extent of it (bar Bali in May 2024, and Ruth, that was yet to come), there were only normal human beings at the Wall, and friends saying hi too.
+- I guess they realized it was only a matter of time now.
+
 ## It's a (salmon and onion) wrap 
 
 - I don't think God has anything else for now, but I will always let everyone know if that changes of course.
