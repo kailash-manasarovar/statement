@@ -204,6 +204,7 @@ function googleTranslateElementInit() {
 - After I remembered Kathleen Love and wrote about her there was anger at the Wall: *Steve is OUT*, someone said.
 - And as it slowly, or quickly rather, came out day by day, and for the last few days of my stay, after the feeling I had had in my bed when I was devastated and realized the extent of it (bar Bali in May 2024, and Ruth, that was yet to come), there were only normal human beings at the Wall, and friends saying hi too.
 - I guess they realized it was only a matter of time now.
+- I had a few chilled days after that, up till then it had been relentless stalking by the Americans.
 
 ## It's a (salmon and onion) wrap 
 

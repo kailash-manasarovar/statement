@@ -103,13 +103,18 @@ function googleTranslateElementInit() {
 #### The American and the Russian
 
 - I think I was supposed to think she had been sent to spy on me (the American) and she was the only one who had, and the Russian had been sent to mind her.
-- They were too exaggerated, and when the mask slipped too business like.
+- She was Tina, the psychotherapist brought up in Alaska with a US military father.
+- The Russian was a travel agent who'd been to Kailash before and was returning like me.
+- These too were so exaggerated, and when the mask slipped too business like, and when the mask was on just going through the *lets-be-chaotic* spy motions as usual.
 - She was pro-trans and really vocal about it; it was quite painful to listen to.
-- She wrecked my nervous system. Was that her task?
+- She wrecked my nervous system, I had to put earplugs in.
+- When I was sick she gave me a lot of food and drink - some of which I believe the yoga students referred to at the *lunch* in Bali.
+- I left it at the hotel, so again if it was toxic, the local people might be paying the price.
 - When I said goodbye to her, I told her we should pray for justice for women and girls, and she looked so thoughtful and serious, like she was wondering if she'd been told to spy on (poison?) an Epstein victim and it didn't sit well with her.
-- She did that a few times after I said truthful things.
-- Which is nice.
-- Do you think I might be able to start a feet-on-the-ground mousse revolution?
+- I also asked them a question: *If they knew what the Buddha died from?"
+- They didn't know.
+- It was food poisoning.
+- She went quiet again.
 
 #### The Indians
 
