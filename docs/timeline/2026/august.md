@@ -146,7 +146,7 @@ function googleTranslateElementInit() {
 - And every day I went to the Wall, more of it came out; Bangkok beside the American Embassy, Cauterets while being poisoned with digitalis, one by one the events because obvious.
 - And suddenly, I had a reason for being treated so abysmally by everyone for so long: they despised and loathed me yet wanted something I have for themselves, and believed they could get it by extracting body tissue from me! 
 - And then I post the following section... because I still think Antonio is in Israel - multiple triggers confirm this online and in the street such as Anat (the Facebook account that confirmed the [CIA roasting in April 2026](april.md#a-first-roasting) posting a superhero at the Wall), he has a garnet not a diamond (written on a shop window in Mamilla), just relentless - the Anat account incidentally makes art on pieces of wood.
-- Although, it makes no sense that I haven't seen him yet while I have seen the pangolin; so I think it must be because the Americans are evil, and so I update the front page to add info about him *languishing in a mousse-controlled jail in the north or Israel*, etc.
+- Although, it makes no sense that I haven't seen him yet while I have seen the pangolin; so I think it must be because the Americans are evil, and so I add info about him [*languishing in a mousse-controlled jail in the north or Israel*](#squirrel-will-tell-his-story), etc.
 - But I'm still wrong about everything.
 - Anyway.
 - Here's what I said at that time.
@@ -187,13 +187,12 @@ function googleTranslateElementInit() {
 
 - Given the mousses' utter horror with what God sent; us detestable, loathsome, bothersome people...
 - Me with the multiple and ever growing examples of their scheming, muck-raking, and shamefulness that I have detailed in this police statement.
-- And you with your one, giant, cataclysmic, tipping-the-earth-on-its-axis example.
+- And you with your one, giant, cataclysmic, tipping-the-earth-on-its-axis example, and likely more.
 - They decided they would cancel God Himself.
 - Because they do whatever they like while walking over everyone's backs like we're roads.
-- But, of course, all this means is that we have children, already! 
-- I'm kinda sad we don't, except I still believe we have time for this.
-- And I believe it's three, just like my dreams and our prayers over my tortured mourning.
-- And yes, today I break forth into joyful shouting and cry aloud! No, just weeping actually.
+- But, of course, all this means is that we have children, already! - I thought they might have made children with my eggs and his sperm. 
+- I'm kinda sad that's not true, except I still believe we have time for this.
+- No breaking forth into joyful shouting yet. Soon maybe.
 
 ### And as for your heart, my love - this is true
 
