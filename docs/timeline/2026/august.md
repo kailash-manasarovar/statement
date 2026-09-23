@@ -10,14 +10,21 @@ function googleTranslateElementInit() {
 
 ## Israel
 
-- I stayed in Tel Aviv for four nights and checked out the sea swimming - which was spectacular, the waves are not so amazing in Spain.
+- I stayed in Tel Aviv for four nights and checked out the sea swimming - which was spectacular, the waves are not nearly so amazing in Spain.
 - Then I stayed at the Dan Panorama in Jerusalem for nearly two weeks, then I moved to the YMCA and I stayed for probably about ten days in the front tower room on the second floor, with the narrow windows, then moved down the hall and stayed for another week or two until I left on 28th August.
 - I went to the Wall every day.
 
 ## The Wall and David's Tomb
 
-- In Jerusalem I visit the Wall every day, it's like visiting God Himself. Some days I visit David's tomb too - these are often the days when I feel like I'm on the battlefield and need some spiritual-warrior strength. I'm very conscious of the bloodline to Jesus but I'm not interested in the Christian sites so much.
--, and every day I went, God gave me something to write about.
+- In Jerusalem I visit the Wall nearly every day to start with.
+- It's like visiting God Himself.
+- Once I'm at the YMCA I do visit every day, religiously, I feel like it's an agreement I have with God and I'm not letting Him down.
+- I'll go before the heat of the day, but it's usually roasting still.
+- Sometimes, something wakes me up in the middle of the night and I'll go down and sit in the tunnels close to the Wall with the other women at 4 or 5am. These visits were very special.
+- Some days, on the way back from the Wall, I visit David's tomb too - these are the days when I feel like I'm on the battlefield and need some spiritual-warrior strength.
+- I'm very conscious of the bloodline to Jesus but I'm not interested in the Christian sites so much.
+- Every day I went, God gave me something to write about when I got back to my room. 
+- And everyone was reading along with me.
 
 ## True forgiveness, suicidal empathy, and confusing the levels
 
