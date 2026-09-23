@@ -678,7 +678,8 @@ function googleTranslateElementInit() {
 - Well, it's a man I recognize immediately as a [trumpet teacher](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) from Dénia.
 - I notice also that I'm unable to look at him for more than a glance, and then I look down and away.
 - I can only look at the man in short glances; something's making me look away quickly every time I look at him.
-- I find this weird.
+- I'm also scared, it's a fear reaction.
+- I find this weird and inexplicable.
 - A good few weeks later, I realize that I have never consciously seen this man before and he never attended conservatory classes, but nevertheless he's a *trumpet teacher*.
 - At that moment, I add him to the list of trumpet teachers as [number seven](../../crimes/protagonists/vidal-sastre.md#7-the-pangolin).
 - I also realize he's the *pangolin* mentioned regularly online on fake X accounts.
