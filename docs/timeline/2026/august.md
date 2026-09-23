@@ -29,6 +29,7 @@ function googleTranslateElementInit() {
 - I'm very conscious of the bloodline to Jesus but I'm not interested in the Christian sites so much.
 - Every day I went, God gave me something to write about when I got back to my room. 
 - And everyone was reading along with me.
+- And by the end of my trip, the Wall looked alive to me, glowing, oozing God, His gazing-house.
 
 ## True forgiveness, suicidal empathy, and confusing the levels
 
@@ -41,7 +42,7 @@ function googleTranslateElementInit() {
 - Forgiveness is in the heart and mind, not really the body, although..
 - Jesus on the cross had a perfect heart and mind, but he suffered excruciating pain and distress while it was happening.
 - However, after his physical death the body reconstructed because of his pure heart and mind, and his unequivocal connection to God, and because that's what God had planned.
-- So, the visceral trigger the predator instills in the prey is not a failure of forgiveness, and although the heart and mind may be mostly still about all this (a having forgiven state), if we were to think that there was some error in reacting this way we would be imposing suicidal empathy on the prey by confusing the levels.
+- So, the visceral trigger the predator instills in the prey is not a failure of forgiveness, and although the heart and mind may be mostly still about all this (a having-forgiven state), if we were to think that there was some error in reacting this way we would be imposing suicidal empathy on the prey by confusing the levels.
 - This physical trigger is very literally life-saving.
 - Christians confuse the levels by saying we're all equal and should be treated so. And this sounds good and true, but it becomes chaos because the measure is Jesus and to assume everyone is of pure heart and mind like Jesus is here in the physical world - EVEN THOUGH at the divine level this *is* true - the outcomes are disastrous.
 - That is why JC in A Course In Miracles says: *Equality does not imply homogeneity NOW.*
@@ -57,13 +58,14 @@ function googleTranslateElementInit() {
 
 ## Tony Clifton
 
-- So I'm thinking about the pangolin, a lot, trying to figure it out.
+- So I'm thinking about the pangolin, a lot, trying to figure it all out.
 - I'm very confused about it.
 - And then one night I get a glass of wine at the bar in the Dan Panorama, come back to my room, and for some reason I start thinking about Tony Clifton from the Man in the Moon.
-- And something makes me think of the photograph of Antonio Ruiz with his father, and the father reminds me suddenly of Tony Clifton, and I start thinking that it wasn't his father it was the pangolin disguised.
+- And something makes me think of the photograph of Antonio Ruiz with his father, and the father reminds me suddenly of Tony Clifton, and I start thinking that it wasn't his father at all, it was the pangolin disguised.
 - And so I now believe that both Antonio and the pangolin were taken to Israel in July 2025, and everyone neglected to tell me about the other guy because they were worried I'd be upset.
-- And this is all going on online, and I'm posting on Facebook or Substack, or wherever, so everyone can see what I'm thinking.
-- So that's where I was with this, and I was listening to Jim Carrey sing Volare while dressed as Tony Clifton, and the next day on my way back from David's Tomb to Jaffa Gate they're playing a version of Volare from one of the cafe's.
+- And this is all going on online, and I'm posting my ongoing thoughts on Facebook or Substack, or wherever, so everyone can see what I'm thinking.
+- So that's where I was with this, and I was listening to Jim Carrey sing Volare while dressed as Tony Clifton, and the next day on my way back from David's Tomb to Jaffa Gate they're playing a version of Volare from one of the cafe's, so I think it's a confirmation.
+- It isn't.
 
 ## Two days before the eclipse
 
