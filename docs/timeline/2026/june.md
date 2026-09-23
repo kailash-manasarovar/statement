@@ -116,7 +116,7 @@ function googleTranslateElementInit() {
 - These two are interesting and I suspect she would have been the surgeon and he the nurse - big and strong enough to lift a body.
 - They had big bags for a short trip - she explained they've been traveling for years and that's why they needed such a big bag.
 - Could it have been full of medical equipment? They would have had to declare it at China customs.
-- Someone would have been ready to remove all my egs - and God knows what else - if I had died at Everest.
+- Someone would have been ready to remove all my eggs - and God knows what else - had I died at Everest.
 - I think they're the most likely.
 - They were late arriving, and Mani was upset with them, and I didn't really talk to them very much at all. They were kept away.
 
