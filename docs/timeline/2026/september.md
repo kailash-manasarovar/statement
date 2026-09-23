@@ -1,5 +1,30 @@
 # September 2026
 
+## KLM from Beijing to Amsterdam
+
+- I drink too much, watch too many Monty Python snippets, and *REALIZE* with a massive start, biting my lip horribly when I do, that the American salmon-mousses tasked the Lopez Cano's with the crime of the late 20th century, and then blamed the British for it!
+- I'm astounded.
+- And then it all makes sense.
+- If everyone believes this lie, and that the Lopez Cano's are untouchable because of it, then they can do whatever they want, and have been doing so for the last thirty years going quietly then loudly criminally insane.
+- Except, the Americans had planned to pay the Lopez Cano's for their efforts back in 1997, but the huge public response to the murder of Diana spooked them.
+- So they didn't pay them, knowing that their budgets would be viewable at some time in the future, and even a thousand years wouldn't save them; so they didn't pay them and blamed it on the British royals who had absolutely no idea about this until the Queen died, at which point the mess was so tangled - multiple criminal enterprises having taken advantage of the lie - that no-one knew what to do about it.
+- The sex-crime epidemic in Dénia and the region, and indeed the whole entire world, makes total sense and the Americans have been blocking any and all help for these people since then, to protect the lie and maintain their innocence.
+- It's all so obvious, and so catastrophic.
+- From here, everything unravels; Auggie's mistaken loyalties, no-one ever helping me, murdered British women, no-one seeming to care, everything.
+- I realize too that they must be, with the help of the UN, trying to pin everything onto another group in the region represented by those they kidnapped and took to Israel so that the Lopez Cano's won't make a big fuss and everyone get suspicious.
+- I write it all up, amazed.
+
+## Heather emails me
+
+- "Heather" wants to know if I'm coming to Dublin for Transforming Touch.
+- I write to [the whole cohort](../../content/documents/emails/why-you-wont-see-me-at-tt-again.pdf) explaining why they'll never see me again at class.
+- Steve responds in an helpful manner about maintaining my "privacy", which is amusing.
+
+## Is Richard Free Paloma's boss?
+
+- I email Inma asking her if Richard Freed is Paloma's boss. 
+- She does not reply.
+
 ## Cauterets
 
 - Because the mousses made such a fuss over me [in July/August 2025 when I stayed here and survived another round of poisoning by the Lopez Cano's](../2025/july.md#poisoning-ordered-by-the-americans), it seems everyone in the village thinks I'm famous!
@@ -18,9 +43,18 @@
 
 - Just like [the futarderie](../2025/august.md#the-futarderie) from July 2025.
 
+## I see Antonio in Lourdes
+
+- I do a double take, triple take and he's gone.
+- I realize he never went to Israel at all. He was hiding.
+- I remember a dream I had about that. I think I even know where he was. But I didn't realize till now.
+- Another huge unravel right here.
+- Every time I go up into the mountains, I come back with truths for the book, rather like when I went to the Wall in Jerusalem.
+- I guess, as I already knew, God is everywhere but always in the mountains.
+
 ## Two Announcements
 
-Before we get going, me and my beautiful feet, I have two important announcements to make.
+I have two important announcements to make.
 
 1. I hereby redefine the collocation *Salmon Mousse* to exclude ALL Brits (except perhaps some recalcitrant ones with Aries rising maybe...).
 
