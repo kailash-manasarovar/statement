@@ -174,11 +174,17 @@ function googleTranslateElementInit() {
 - The minute I'm back in North London, my `katharinejchardwood` gmail account is inexplicably unreachable.
 - I had been using it daily while I was away, and while I was staying next to the American Embassy in Bangkok I made multiple backups of all the emails on this account.
 - These are gone too!
-- None of the options to restore the email account are functioning, and I have two or three usable methods including a backup email which is working.
+- None of the options to restore the email account are functioning, the saved password is missing, and I have two or three usable methods to access the account including a backup email which is working.
 - This is utterly inexplicable to me.
 - The only reason I can fathom for blocking access to this account is an attempt to hide the many letters and emails I wrote to hundreds of organizations asking for help such as [Aqualia, the water board in Valencia](../2022/february.md#aqualia) to inform them the water connection to my house was being tampered with by poisoners.
-- My `DrKatharineMurphy` Facebook account I created when I was running for office at the UK general election in 2024, with over a thousand connections, suffers the same fate in just a few months time, and again this happens while I'm logged on in North London.
-- In September 2026, I'd put money on this being the Americans throwing their British friends in it, like they do.
+- Also all my emails with people like [Trish Penny who know too much and/or know everything (there's thousands of them in Spain)](../2024/december.md#trish-penny-communicates-terror-again) are gone.
+- After a few months of warnings, the account is deleted forever.
+
+### Suddenly the options to open the account up are back in September 2026
+
+- Yep, password and options for recovery all popped back up again.
+
+![kjc account possible to access again, except it's deleted now](../../content/images/kjc-account-recover-possible.png)
 
 ## During, after, now
 
