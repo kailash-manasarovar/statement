@@ -266,7 +266,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 
 ![Catherine vonRuhland](../../content/images/fake-accounts/dialysis.png)
 
-- I have to wonder if accounts like these were managed by the CIA rather than the porn-gangs of Dénia - given I had left the town a good six months previously and they probably stopped even thinking about me: better things to do, more product to prepare for filming. 
+- I have to wonder if accounts like these were managed by the CIA rather than the porn-gangs of Dénia - given I had left the town a good six months previously and they probably stopped even thinking about me: better things to do, more product to prepare for filming, busy busy... 
 
 ### Male family relations hovering around
 
