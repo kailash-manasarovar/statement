@@ -10,6 +10,10 @@ function googleTranslateElementInit() {
 
 ## Israel
 
+!!! info "Pre-draft and editorial, and written too soon after the events"
+    - I usually need a lot more time to sort things out in my mind before I write about them and all this happened just a few weeks ago.
+    - So please forgive me, this section is a bit disordered.
+
 - I stayed in Tel Aviv for four nights and checked out the sea swimming - which was spectacular, the waves are not nearly so amazing in Spain.
 - Then I stayed at the Dan Panorama in Jerusalem for nearly two weeks, then I moved to the YMCA and I stayed for probably about ten days in the front tower room on the second floor, with the narrow windows, then moved down the hall and stayed for another week or two until I left on 28th August.
 - I went to the Wall every day.

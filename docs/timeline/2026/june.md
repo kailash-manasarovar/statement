@@ -104,6 +104,7 @@ function googleTranslateElementInit() {
 
 - I think I was supposed to think she had been sent to spy on me (the American) and she was the only one who had, and the Russian had been sent to mind her.
 - She was Tina, the psychotherapist brought up in *Alaska* with a US military father.
+- A woman in Cauterets just triggered the memory by wearing a t-shirt with the word Tina on the back, and standing in front of me so that I'd definitely see it. Actually, I nearly missed it... but you can see how little I need for a whole load of info to bubble up. I do need a rest soon though. This is intense.
 - The Russian was a travel agent who'd been to Kailash before and was returning, like me.
 - These too were so exaggerated together, and when the mask slipped too business like, and when the mask was on just going through the *lets-be-chaotic* spy motions as usual.
 - She was pro-trans and really vocal about it; it was quite painful to listen to.
