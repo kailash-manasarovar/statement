@@ -180,6 +180,7 @@ function googleTranslateElementInit() {
 - Also all my emails with people like [Trish Penny who know too much and/or know everything (there's thousands of them in Spain)](../2024/december.md#trish-penny-communicates-terror-again) are gone.
 - After a few months of warnings, the account is deleted forever.
 - It doesn't escape my notice that they waited until I was back in the UK to do this, so that I'd continue to think the Brits, or British criminal gangs, had control of the matter when they have none at all.
+- Otherwise, I probably would never have gone back to Steve's courses in Dublin.
 
 ### Suddenly the options to open the account up are back in September 2026
 
