@@ -125,25 +125,28 @@ function googleTranslateElementInit() {
 
 ## Sedated-surgery egg extractions
 
-- And from here, slowly but surely, the evil starts to come to light and I realize I've not only been subject to rape while sedated, I've also been subjected to surgeries.
+- And from here, with the seven-devils out of the way, slowly but surely the evil starts to come to light and I realize I've not only been subject to rape while sedated, I've also been subjected to surgeries.
 - And the surgeries out-evil the rapes 1M-to-1, by the way.
 
 ## *Oeuf*
 
 - I don't know, this is all so recent I'll probably need a few months to process it before I can write it up properly.
-- Anyway. I had a dream a few years back of me in the future - I have a long puffy skirt on - and I'm with a younger woman who appears to be a daughter and I thought it would be Antonio's daughter.
+- Anyway. I had a dream a few years back of me in the future - I have a long puffy skirt on - and I'm with a younger woman who appears to be my adult daughter and I thought it could be Antonio's daughter.
 - And we're waiting to go on a TV show, we're the guests.
 - And my dad and I are watching the show in a parallel universe type way and he says this is when I was 96.
-- And I was sleeping in the tower room still, and something wakes me up in the middle of the night, 3am or so, and it's a voice, a young girl's voice, and she says: *oeuf*, gently.
+- And I was sleeping in the tower room at the YMCA still, and something wakes me up in the middle of the night, 3am or so, and it's a voice, a young girl's voice, and she says: *oeuf*, gently.
 - And I know it's my daughter.
 - And I get up and go to the tunnels, because I don't understand it.
 - And I start to think I was wrong about the woman in my dream being Antonio's daughter and rather she'll be mine instead.
-- And I think about when that could have happened, and I come up with April 2026 in Dublin when I noticed wounds and suspicious events at Beckett Locke as well as (unconscious) signals from Steve about it.
-- And all the signals from the Jews in Jerusalem the September and May before.
-- So I thought they had set them up to take the blame if anyone ever found out - Project Jonathan.
-- And from here I started thinking about Sullivan and how the Americans had blamed Israel for Lockerbie too.
-- And from here it just all started to come.. surely it wouldn't have just been that one time, really? I was thinking. And every day I went to the Wall, more of it came out.
-- And then I post the following.. because I still think Antonio is in Israel, although I cannot understand why I haven't seen him yet because I did see the pangolin, and I think it must be because the Americans are evil, and so I update the front page to add info about him *languishing in a mousse-controlled jail in the north or Israel*, etc.
+- And I think about how a daughter of mine could be born without my involvement, and I come up with April 2026 in Dublin when I noticed a wound on my lower abdomen and suspicious events at Beckett Locke, as well as the (unconscious) signals from Steve about it.
+- And then all the signals from the Jews in Jerusalem the September and May before start to make a more horrible sense.
+- So I thought the Americans must have set them up to take the blame if anyone ever found out - [*Project Jonathan*](july.md#the-psychological-torture-begins) as they had repeated in Bali.
+- And from here I started thinking about Sullivan, and how the Americans had blamed Israel for Lockerbie too.
+- And from here it just all started to come.. could it have been more than just that one time, really? I was thinking.
+- And every day I went to the Wall, more of it came out; Bangkok beside the American Embassy, Cauterets while being poisoned with digitalis, one by one the events because obvious.
+- And suddenly, I had a reason for being treated so abysmally by everyone for so long: they despised and loathed me yet wanted something I have for themselves, and believed they could get it by extracting body tissue from me! 
+- And then I post the following section... because I still think Antonio is in Israel - multiple triggers confirm this online and in the street such as Anat (the Facebook account the confirmed the CIA roasting in April 2026 posting a superhero at the Wall), he has a garnet not a diamond (written on a shop wall), just relentless - the Anat account incidentally makes art on pieces of wood.
+- Although, it makes no sense that I haven't seen him yet while I have seen the pangolin; so I think it must be because the Americans are evil, and so I update the front page to add info about him *languishing in a mousse-controlled jail in the north or Israel*, etc.
 - But I'm still wrong about everything.
 - Anyway.
 

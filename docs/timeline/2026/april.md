@@ -90,7 +90,7 @@ function googleTranslateElementInit() {
 - I'm drugged at least one time while I'm at Lourdes; I start feeling Mary very close to me, all around, and I'm having clear visions of a spectacular wedding dress.
 - Incidentally, this is the same time I remember [the Daniel incident](../2011-to-2020/2013.md#daniel) and I believe that was their main intention with it.
 - I think this was when I meet the Australian-Italian gypsy woman at the laundry, who was a lovely lady by the way and we had a nice chat, but right after I felt like I'd been heavily sedated.
-- She looks like a woman, *Anat*, an artist that friends me on Facebook shortly afterwards, and posts multiple mousse messages - including Snoopy roasting on a spit after [they roasted me in Dublin](#a-first-roasting).
+- She looks like a woman, *Anat*, an artist that friends me on Facebook (Anat) shortly afterwards, and posts multiple mousse messages - including Snoopy roasting on a spit after [they roasted me in Dublin](#a-first-roasting).
 - However, [my thumbnail ridges (Beau's lines)](../2001-to-2010/2006.md#beaus-lines) mark poisoning and maybe even drugging events too, and there have been multiple occasions.
 
 ### Mrs Wasserman is outside my door at the Mercure
