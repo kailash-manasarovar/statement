@@ -8,6 +8,17 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Israel
+
+- I stayed in Tel Aviv for four nights and checked out the sea swimming - which was spectacular, the waves are not so amazing in Spain.
+- Then I stayed at the Dan Panorama in Jerusalem for nearly two weeks, then I moved to the YMCA and I stayed for probably about ten days in the front tower room on the second floor, with the narrow windows, then moved down the hall and stayed for another week or two until I left on 28th August.
+- I went to the Wall every day.
+
+## The Wall and David's Tomb
+
+- In Jerusalem I visit the Wall every day, it's like visiting God Himself. Some days I visit David's tomb too - these are often the days when I feel like I'm on the battlefield and need some spiritual-warrior strength. I'm very conscious of the bloodline to Jesus but I'm not interested in the Christian sites so much.
+-, and every day I went, God gave me something to write about.
+
 ## True forgiveness, suicidal empathy, and confusing the levels
 
 - Forgiveness is in the heart and mind, not really the body, although..
@@ -27,9 +38,17 @@ function googleTranslateElementInit() {
 - This is always going to be a mini-(maybe maxi)-healing and never has to have anything to do with the other party.
 - So, that's my universal case for the forgivenet.
 
-## Auggie Augustus
+## 10th August
 
-- Good man Auggie <3
+- Seven devils, the Truth coming out now - was that eclipse day, two days before: https://github.com/kailash-manasarovar/statement/commits/main/docs/crimes/protagonists/vidal-sastre.md?after=69626facb6cbef526e96f80801a85201a7fc39a2+34
+
+## Egg extraction in Dublin
+
+- First realization about a week later.
+
+### Oeuf
+
+- Oeuf, the TV, TT's daughter. I heard her voice. She said *oeuf* like a young adult and like I knew her. This was a night God got me out of bed to visit him - I was staying in the tower still.
 
 ## The sheer volume of it..
 
@@ -133,6 +152,7 @@ function googleTranslateElementInit() {
 
 ## *Where are my friends, Father?*
 
+- This is when it *all* came out. I had moved room by then.
 - I was devastated about the children. I still am. 
 - This was the day I bumped into Mrs Wasserman's sister in the lift - she certainly looked like her - at the YMCA and the whole place was heaving.
 - And then Paul Gebheim from Polygon had been at the YMCA that day too! Which I didn't connect to the children at all. I can't imagine why they wheeled him out.
@@ -168,6 +188,10 @@ function googleTranslateElementInit() {
 - I will be harmless and helpful <3 
 - Squirrel and I will take our own biological children back as soon as is reasonably possible.
 - If, due to arrogance and lack of wisdom, any of the people that were capable of justifying such evil complain, they should remember well that stolen children are always despised by the families that stole them, and any psychologist or psychotherapist worth his license can confirm.
+
+## Confirmation mousses up India's arse even in Israel
+
+- One day in Jerusalem, I suggest to my online friends that squirrel and I might do well in India because if the mousses are controlling everyone, at least me and him might stand a chance together in India - I talk a lot like this online (I never save these things, but they always know) ... I also look up "asylum in India" processes online. The next morning outside David's tomb they've set up an Indian woman with a MASSIVE plastic sign saying something like "Join us, you will be safe", or some such.. this is why I say these things about escape to India... but if the mousses control India, then that's out too even!
 
 ## It's a (salmon and onion) wrap 
 
@@ -245,3 +269,8 @@ function googleTranslateElementInit() {
 - So I'm absolutely delighted and my heart is singing.
 - And I get up to leave, and I start to walk backwards, and I've gone a few steps and I'm maybe at where the prayer books are or just before, and these two fly, together, off the top of the Wall and in the direction I'm going, side by side.
 - I think a tear came that time.
+
+## Dubai
+
+- In Dubai after a month of swimming a km to a mile every day or every two days at the YMCA in Jerusalem, the groin injury - it is inner groin - is paining me during the night. It's something to do with the mattress which puts my rump/hips/groin in a lower position than my legs. I swim breaststroke and so kick out a lot and noticed the groin injury complaining a bit while swimming but it doesn't make sense unless it is structural, a caused injury, broken sutures, something surgical gone wrong and reopened again and again.
+- And who was the woman at departures? I got jealous and remembered how awful that all was and started thinking of a cave or the nunnery again... was she Brunhilda? Isaiah 57. A nest indeed. Gosh, this is gonna be such a cool parallel plot line.
