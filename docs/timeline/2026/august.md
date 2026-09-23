@@ -242,10 +242,12 @@ function googleTranslateElementInit() {
 
 ## Constant activity when I leave the YMCA, and in the YMCA too, until the Truth is fully out
 
-- Further to this... it was constant.
-- T-shirts, hats, bags with significant words and phrases.
+- Further to this... it was constant, mayhem.
+- Everything I was saying in here was sparking reactions off.
+- Words and phrases on T-shirts, hats, bags.
 - Hollywood actress lookalikes, TT student lookalikes, words, sly comments, he's a porn producer, ..
-- Constant prompts on Antonio being in Israel - which we know is a lie.
+- Constant prompts on Antonio definitely being in Israel - which we know is a lie; how he brought the ring with him, etc, I mean, just mayhem, constant, they *HAD* to make sure I kept believing the lie, I don't know why...
+- Perhaps they'd be concerned I might run off with the gypsies. Well, it sounds like a great idea to me right now I can tell you.
 - When I first mention the pinhole wound, I had men screaming *scribbles of Baal* at me outside David's tomb in French!, which was curious, and others furious with the Catholics, which I fully agree with... I went to mass for 15th August and felt like vomiting and left.
 - I showed the wound to the Wall (hoping they'd get it on film).. then as the other memories came steadily back there'd be less and less of this..
 - After I remembered Kathleen Love and wrote about her there was anger at the Wall: *Steve is OUT*, someone said.
