@@ -117,12 +117,24 @@ function googleTranslateElementInit() {
 
 ## Reform UK conference
 
-- Agents everywhere; in the next room at the hotel, wherever I go. This is becoming the norm for me now.
 - I attended the Reform UK conference early this month.
-- This was when I really noticed I could not at all look at bright lights.
+- Agents everywhere; in the next room at the hotel, wherever I go. This is becoming the norm for me now.
+- This was when I really noticed I could not at all look at bright lights - except that's a symptom I get when I'm poisoned, so I wonder if I was poisoned again at the hotel maybe.
+- Sedated surgery too?
 - I'd be in the audience, watching the show and listening to the speakers, and in between each person the lights would roll around the conference hall and I literally had to cover my eyes and close them till it was finished.
-- This is another thing that sparked my further concern.
-- I was reminded of the [first time I went to the optician about this weird and inexplicable problem](../2011-to-2020/2013.md#boots-opticians-north-finchley), probably sometime in 2013.
+- I don't think this is an every day thing for me, so I'm wondering what happened there.
+- I was reminded of the [first time I went to the optician about this weird and inexplicable reaction to light](../2011-to-2020/2013.md#boots-opticians-north-finchley), probably sometime in 2013 which suggests poisoning at my apartment in Ricardo Ortega.
+
+### Stalked by weirdo men trying to upset me
+
+- A couple of men approach me in the queue on the first morning I'm there.
+- One of them is Mr Lucas with a badge saying he's from Hastings or somewhere around there, and his mate is a Pakistani man (he eventually tells me) whose name I forget.
+- I thought they looked very similar, like brothers in fact and I told them that but they weren't.
+- Mrs Lucas is going on, 100 miles an hour, about how sexually depraved women are - so and so with their knickers off, this that and the other. It was vile. He sounded like he was on drugs.
+- I think I was supposed to freak out when the mate told me he was Pakistani.
+- I said to the Pakistani mate that I think his friend's been on drugs all night and not come down yet.
+- And there were a couple of tall white men standing around us, watching all this, and they reminded me of policemen.
+- So that was going on too.
 
 ## Current health
 
