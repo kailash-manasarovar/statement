@@ -36,7 +36,7 @@
 - When I arrived back in Cauterets, the first morning I used my Clarins toner I'd kept here, and I'm 100% it had something dreadful in it, my skin hasn't been right since, and when I went to the thermal centre about my cure, the woman was *horrified* when she saw me. *Tu cara*, she said in horror! Really she was asking if I'd eaten something poisonous. You should check the CCTV on that, I think she saw something "spiritual" going on - i.e. light body dealing with cyanide applied to the face. I had to go back the next day with a better face to reassure her. The rental woman saw the same thing, but wasn't quite so horrified, but did look away quickly. The cure woman knows me for a long time and had a good look at it.
 - It looks like my eyebrows either stopped growing or fell out!
 - I've just thrown everything else from those times (a few months ago) away too now. It's really a huge hassle you know. I wish it would stop. I hope it has stopped now.
-- Again, just like my pesticide-soaked belongings making it to the public dump in North Finchley in 2025, no-one giving the tiniest shit about regular people, all those items are now ending up God knows where and putting normal folk and wildlife in danger.
+- Again, just like my pesticide-soaked belongings making it to the public dump in North Finchley in 2025, no-one giving the tiniest sh*t about regular people and pets and animals, all those items are now ending up God knows where and putting normal folk and wildlife in danger.
 
 ### Madame Sordes
 
@@ -52,13 +52,13 @@
 ## I see Antonio in Lourdes
 
 - I do a double take, triple take and he's gone.
-- I make a quip about how he's already bilocating and the next day, when I'm in the mountains, I realize he never went to Israel at all.
+- I make a quip on X about how he's already bilocating and the next day, when I'm in the mountains, I realize he never went to Israel at all.
 - He was hiding.
 - I remember a dream I had about that. I think I even know where he was. But I didn't realize till now.
 - Another huge unravel right here.
-- Every time I go up into the mountains, I come back with truths for the book, rather like when I went to the Wall in Jerusalem.
-- I guess, as I already knew, God is everywhere but always in the mountains.
-- Up in the high mountains, where God is, there's a crow. And he's quite relaxed this year, and said hi, and dropped feathers for me, baby feathers.
+- Every time I go up into the mountains, I come back with truths for the book, rather like when I went to the Wall every day in Jerusalem.
+- I guess, as I already knew, God is everywhere but He is *always* in the mountains.
+- Up in the high mountains, where God is, there's a crow. And he's quite relaxed this year, and said hi, and dropped feathers for me, and old grey feather or his and three baby feathers.
 
 ## Two Announcements
 
