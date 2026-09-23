@@ -10,7 +10,7 @@
 - When I arrived back in Cauterets, the first morning I used my Clarins toner I'd kept here, and I'm 100% it had something dreadful in it, my skin hasn't been right since, and when I went to the thermal centre about my cure, the woman was *horrified* when she saw me. *Tu cara*, she said in horror! Really she was asking if I'd eaten something poisonous. You should check the CCTV on that, I think she saw something "spiritual" going on - i.e. light body dealing with cyanide applied to the face. I had to go back the next day with a better face to reassure her. The rental woman saw the same thing, but wasn't quite so horrified. The cure woman knows me for a long time.
 - It looks like my eyebrows either stopped growing or fell out!
 - I've just thrown everything else from those times (a few months ago) away too now. It's really a huge hassle you know. I wish it would stop. I hope it has stopped now.
-- Again, all those items are now ending up God knows where and putting normal folk in danger.
+- Again, just like my pesticide soaked belongings making it to the public dump in North Finchley in 2025, no-one giving the tiniest shit about regular people, all those items are now ending up God knows where and putting normal folk in danger.
 
 ### Madame Sordes
 
