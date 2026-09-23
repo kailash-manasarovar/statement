@@ -145,10 +145,11 @@ function googleTranslateElementInit() {
 - And from here it just all started to come.. could it have been more than just that one time, really? I was thinking.
 - And every day I went to the Wall, more of it came out; Bangkok beside the American Embassy, Cauterets while being poisoned with digitalis, one by one the events because obvious.
 - And suddenly, I had a reason for being treated so abysmally by everyone for so long: they despised and loathed me yet wanted something I have for themselves, and believed they could get it by extracting body tissue from me! 
-- And then I post the following section... because I still think Antonio is in Israel - multiple triggers confirm this online and in the street such as Anat (the Facebook account the confirmed the CIA roasting in April 2026 posting a superhero at the Wall), he has a garnet not a diamond (written on a shop wall), just relentless - the Anat account incidentally makes art on pieces of wood.
+- And then I post the following section... because I still think Antonio is in Israel - multiple triggers confirm this online and in the street such as Anat (the Facebook account that confirmed the [CIA roasting in April 2026](april.md#a-first-roasting) posting a superhero at the Wall), he has a garnet not a diamond (written on a shop window in Mamilla), just relentless - the Anat account incidentally makes art on pieces of wood.
 - Although, it makes no sense that I haven't seen him yet while I have seen the pangolin; so I think it must be because the Americans are evil, and so I update the front page to add info about him *languishing in a mousse-controlled jail in the north or Israel*, etc.
 - But I'm still wrong about everything.
 - Anyway.
+- Here's what I said at that time.
 
 ## Unfortunately, my love
 
