@@ -51,21 +51,31 @@ function googleTranslateElementInit() {
 - This is always going to be a mini-(maybe maxi)-healing and never has to have anything to do with the other party.
 - So, that's my universal case for the forgivenet.
 
-## 10th August
+## Tony Clifton
 
-- Seven devils, the Truth coming out now - was that eclipse day, two days before: https://github.com/kailash-manasarovar/statement/commits/main/docs/crimes/protagonists/vidal-sastre.md?after=69626facb6cbef526e96f80801a85201a7fc39a2+34
+- So I'm thinking about the pangolin, a lot, trying to figure it out.
+- I'm very confused about it.
+- And then one night I get a glass of wine at the bar in the Dan Panorama, come back to my room, and for some reason I start thinking about Tony Clifton from the Man in the Moon.
+- And something makes me think of the photograph of Antonio Ruiz with his father, and the father reminds me suddenly of Tony Clifton, and I start thinking that it wasn't his father it was the pangolin disguised.
+- And so I now believe that both Antonio and the pangolin were taken to Israel in July 2025, and everyone neglected to tell me about the other guy because they were worried I'd be upset.
+- And this is all going on online, and I'm posting on Facebook or Substack, or wherever, so everyone can see what I'm thinking.
+- So that's where I was with this, and I was listening to Jim Carrey sing Volare while dressed as Tony Clifton, and the next day on my way back from David's Tomb to Jaffa Gate they're playing a version of Volare from one of the cafe's.
 
-## Egg extraction in Dublin
+## Two days before the eclipse
 
-- First realization about a week later.
-
-### Oeuf
-
-- Oeuf, the TV, TT's daughter. I heard her voice. She said *oeuf* like a young adult and like I knew her. This was a night God got me out of bed to visit him - I was staying in the tower still.
+- Then, it's coming now...
+- Two days before the eclipse something happens and I realize I had never seen this man the pangolin consciously before in my life.
+- And from here I realize that he must be one of the "trumpet teachers" from Dénia nevertheless.
+- And I start to think more carefully about the trumpet teachers, how many there were, who they were, what they looked like, and what their physical and personal differences were.
+- And I realize there were seven men plus the man Antonio who I believed they all were, making eight in total.
+- So I write it up over the next days before the eclipse on St Clare's feast day - the intuitive (or remote viewer's) patron saint as Steve had told me the September previously.
+- And I guess that's what Saint Michael was referring to when [he cuffed me round the head](may.md#dreaming-of-saint-michael-on-ascension-day) in Cauterets in May.
+- And here it is: [seven trumpet-teacher devils and one angel](../../crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel).
+- And right after this, on the day of the eclipse, I write the following three sections.
 
 ## The sheer volume of it..
 
-- Is going to be the shock, isn't it.
+- Is going to be the shock, isn't it - referring to the porn with me in.
 - I was wondering if people had seen it and thought I was conscious and consenting because of the open eyes, like [I had seen Yasmin do](../2001-to-2010/2008.md#yasmin-falls-asleep-with-her-eyes-open)?
 - And that's why so many were so appalled with me?
 - Could 95% of all the porn in circulation be of sedated-victims?
@@ -105,6 +115,27 @@ function googleTranslateElementInit() {
 ![Brody and Hooper paddling home](../../content/images/brody-and-hooper-paddling-home.jpg)
 
 - (Aside: there's another moment in the film where someone says, "can we go home now". It's Charlie. *Swim Charlie swim! Don't look back...* I don't know if anyone noticed that #GreatRay).
+
+## Egg extraction in Dublin
+
+- And from here, slowly but surely, the evil starts to come to light and I realize I've not only been subject to rape while sedated, I've also been subjected to surgeries too.
+
+## *Oeuf*
+
+- I don't know, this is all so recent I'll probably need a few months to process it before I can write it up properly.
+- Anyway. I had a dream a few years back of me in the future - I have a long puffy skirt on - and I'm with a younger woman who appears to be a daughter and I thought it would be Antonio's daughter.
+- And we're waiting to go on a TV show, we're the guests.
+- And my dad and I are watching the show in a parallel universe type way and he says this is when I was 96.
+- And I was sleeping in the tower room still, and something wakes me up in the middle of the night, 3am or so, and it's a voice, a young girl's voice, and she says: *oeuf*, gently.
+- And I know it's my daughter.
+- And I get up and go to the tunnels, because I don't understand it.
+- And I start to think I was wrong about the woman in my dream being Antonio's daughter and rather she'll be mine instead.
+- And I think about when that could have happened, and I come up with April 2026 in Dublin when I noticed wounds and suspicious events at Beckett Locke as well as (unconscious) signals from Steve about it.
+- And all the signals from the Jews in Jerusalem the September and May before.
+- So I thought they had set them up to take the blame if anyone ever found out.
+- And then I started thinking about Sullivan.
+- And from here it just all started to come.. surely it wouldn't have just been that one time, really? I was thinking. And every day I went to the Wall, more of it came out.
+- And then I post the following.. because I still think Antonio is in Israel, although I cannot understand why I haven't seen him yet because I did see the pangolin, and I think it must be because the Americans are evil.
 
 ## Unfortunately, my love
 
