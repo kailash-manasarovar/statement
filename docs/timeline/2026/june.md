@@ -30,6 +30,7 @@ function googleTranslateElementInit() {
 !!! danger "Requesting constant safety-and-wellness checks for my friends"
     - Please keep these folk alive and out of danger.
     - Thank you.
+    - *Katharine do the cool!*
 
 - My trip to Kailash is attended by agents, as usual, and me.
 - At least one of these agents will be a surgeon, and one will be a nurse; for egg-extraction on my freshly dead body if they do manage to murder me which they don't.
