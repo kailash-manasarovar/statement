@@ -225,11 +225,12 @@ function googleTranslateElementInit() {
 
 ## *Where are my friends, Father?*
 
-- This is when it *all* came out.
+- This is when it *all* came out - bar [the extraction in Bali in May 2024](../2024/may.md#bali) and possibly at the [Theatron in March 2025](../2025/march.md#egg-extraction-at-the-theatron) although the jury is still out on that one.
 - I had moved room by then.
 - I was devastated about the children. I still am. 
-- This was the day I bumped into Mrs Wasserman's sister in the lift - she certainly looked like her - at the YMCA and the whole place was heaving.
-- And then Paul Gebheim from Polygon had been at the YMCA that day too! Which I didn't connect to the children at all. I can't imagine why they wheeled him out.
+- The YMCA was heaving with people and I know there were no booking for weeks, right up until the concert in September the place was supposed to be empty - Francis told me - so they're all last minute bookings, prompted by my scribblings.
+- This was the day I bumped into Mrs Wasserman's sister in the lift - she certainly looked like her.
+- And then [Paul Gebheim from Polygon](../2024/may.md#the-management-team-cant-look-me-in-the-eye-or-be-near-me) had been at the YMCA that day too! Which I didn't connect to the children at all. I can't imagine why they wheeled him out.
 - The place was heaving, and then once God really got going they all disappeared!
 - Anyway, it felt like I was not going to be able to carry all this. It was too much now.
 - Everything else that's happened to me feels like nothing compared to this.
