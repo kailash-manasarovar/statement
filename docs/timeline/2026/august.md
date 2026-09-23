@@ -105,7 +105,7 @@ function googleTranslateElementInit() {
 - He's been planning things for eternity, and already had our roles set out for us.
 - He knew that, at the right time, regardless of whatever we'd been doing up to that point, we would remember Him.
 - He knew that, from that instant, we would never question His Authority so that we could carry out His Plan exactly as He wants it carried out.
-- So we listen, and he tells us what to say, do, think, and more importantly when.
+- So we listen, and He tells us what to say, do, think, and more importantly when.
 - Just like real spies do. It's so wonderful.
 - And we obey Him.
 - And even when things look like a total catastrophe, and we cannot understand anything that's going on, and we're suffering and sad, we still trust the Way He has set us on.
@@ -123,9 +123,10 @@ function googleTranslateElementInit() {
 
 - (Aside: there's another moment in the film where someone says, "can we go home now". It's Charlie. *Swim Charlie swim! Don't look back...* I don't know if anyone noticed that #GreatRay).
 
-## Egg extraction in Dublin
+## Sedated-surgery egg extractions
 
-- And from here, slowly but surely, the evil starts to come to light and I realize I've not only been subject to rape while sedated, I've also been subjected to surgeries too.
+- And from here, slowly but surely, the evil starts to come to light and I realize I've not only been subject to rape while sedated, I've also been subjected to surgeries.
+- And the surgeries out-evil the rapes 1M-to-1, by the way.
 
 ## *Oeuf*
 
