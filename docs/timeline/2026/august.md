@@ -143,7 +143,8 @@ function googleTranslateElementInit() {
 - So I thought the Americans must have set them up to take the blame if anyone ever found out - [*Project Jonathan*](july.md#the-psychological-torture-begins) as they had repeated in Bali.
 - And from here I started thinking about Sullivan, and how the Americans had blamed Israel for Lockerbie too.
 - And from here it just all started to come.. could it have been more than just that one time, really? I was thinking.
-- And every day I went to the Wall, more of it came out; Bangkok beside the American Embassy, Cauterets while being poisoned with digitalis, one by one the events because obvious.
+- And I realize the unusual movements I have been making while sleeping since May are movements a baby makes, and so there must be a baby already born!
+- And every day I went to the Wall, more of it came out; Bangkok beside the American Embassy, Cauterets while being poisoned with digitalis, one by one these events because obvious.
 - And suddenly, I had a reason for being treated so abysmally by everyone for so long: they despised and loathed me yet wanted something I have for themselves, and believed they could get it by extracting body tissue from me! 
 - And then I post the following section... because I still think Antonio is in Israel - multiple triggers confirm this online and in the street such as Anat (the Facebook account that confirmed the [CIA roasting in April 2026](april.md#a-first-roasting) posting a superhero at the Wall), he has a garnet not a diamond (written on a shop window in Mamilla), just relentless - the Anat account incidentally makes art on pieces of wood.
 - Although, it makes no sense that I haven't seen him yet while I have seen the pangolin; so I think it must be because the Americans are evil, and so I add info about him [*languishing in a mousse-controlled jail in the north or Israel*](#squirrel-will-tell-his-story), etc.
