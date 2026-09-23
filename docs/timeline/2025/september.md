@@ -134,7 +134,9 @@ function googleTranslateElementInit() {
 - I think I was supposed to freak out when the mate told me he was Pakistani.
 - I said to the Pakistani mate that I think his friend's been on drugs all night and not come down yet.
 - And there were a couple of tall white men standing around us, watching all this, and they reminded me of policemen.
-- So that was going on too.
+- So that was going on too, as well as the MP standing up and snickering about his favorite porn genre.
+- I talk about that in the [April 2025 section](april.md#recoiling-on-meeting-a-violent-man).
+- They really think porn is normal and healthy don't they; precious enough to murder to protect?
 
 ## Current health
 
