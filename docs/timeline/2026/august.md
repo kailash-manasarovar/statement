@@ -193,6 +193,7 @@ function googleTranslateElementInit() {
 - But, of course, all this means is that we have children, already! - I thought they might have made children with my eggs and his sperm. 
 - I'm kinda sad that's not true, except I still believe we have time for this.
 - No breaking forth into joyful shouting yet. Soon maybe.
+- And just to say "All your children will be taught by the Lord, and great will be their peace." means we will be rescuing them from evildoers that wouldn't know the Lord if he popped round for tea.
 
 ### And as for your heart, my love - this is true
 
