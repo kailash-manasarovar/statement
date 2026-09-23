@@ -687,9 +687,10 @@ function googleTranslateElementInit() {
 - I realize that sedated-porn training includes violence towards a target while sedated with animal training techniques whereby if she sees the rapist in the future, she won't be able to look directly at him without quickly looking away.
 - The porn-gangs require this reaction to include animals in the ever-growing group of living beings the target believes is one man.
 - The fact that I see this man in Ben Gurion airport is perplexing to me, and I don't figure out for even longer that everyone was lying to me about Antonio Ruiz being rescued and taken to Israel in August 2025.
-- Instead the UN kidnapped a whole bunch of them, all together!
+- Instead the UN kidnapped a whole bunch of them, all together! And they *already knew* who was involved in the switcheroo-porn at the conservatory, long before I figured out there was more than one man involved!!!
+- WOW!
 - I update my notes accordingly, and then, on 11th September I see Antonio Ruiz in Lourdes and I realize they told me an even more wicked lie because he never went to Israel at all!
-- I mean, talk about lies upon lies upon lies... they probably forgot the original one mostly, and newbies will never hear about that one.
+- I mean, talk about lies upon lies upon lies... they probably forgot the original one mostly, and we know newbies to the game will never hear about that one.
 - Let's make amends on that.
 
 ### All over me like scabies at the Dan Panorama Jerusalem
