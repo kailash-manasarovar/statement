@@ -680,7 +680,7 @@ function googleTranslateElementInit() {
 - I can only look at the man in short glances; something's making me look away quickly every time I look at him.
 - I'm also scared, it's a fear reaction.
 - I find this weird and inexplicable.
-- A good few weeks later, I realize that I have never consciously seen this man before and he never attended conservatory classes, but nevertheless he's a *trumpet teacher*.
+- A good few weeks later, I realize that I have never consciously seen this man before and he never attended conservatory classes, but nevertheless he's a switcheroo-porn *trumpet teacher*.
 - At that moment, I add him to the list of trumpet teachers as [number seven](../../crimes/protagonists/vidal-sastre.md#7-the-pangolin).
 - I also realize he's the *pangolin* mentioned regularly online on fake X accounts.
 - Another curious thing is that I remembered having the same *only-able-to-look-at-him-in-short-glances* reaction to a statue outside the cave at Sainte Baume of the "bad" criminal to the left of Jesus.
