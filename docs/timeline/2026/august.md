@@ -291,7 +291,7 @@ function googleTranslateElementInit() {
 - I guess they realized it was only a matter of time and quit harassing me - do they think that can stop God?
 - I had a few chilled days after that, up till then it had been relentless stalking by the Americans - the embassy is right there after all.
 
-## It's a (salmon and onion) wrap 
+## It's a (salmon and onion) wrap - 25th August
 
 - I don't think God has anything else for now, but I will always let everyone know if that changes of course.
 - It's time to start something even more amazing.
