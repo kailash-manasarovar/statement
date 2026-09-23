@@ -113,19 +113,24 @@ function googleTranslateElementInit() {
 
 #### The Indians
 
-- Ganesh and his wife.
+- These two are interesting and I suspect she would have been the surgeon and he the nurse - big and strong enough to lift a body.
+- They had big bags for a short trip - she explained they've been traveling for years and that's why they needed such a big bag.
+- Could it have been full of medical equipment?
+- Someone would have been ready to remove all my egs - and God knows what else - if I had died at Everest.
+- I think they're the most likely.
+- They were late arriving, and Mani was upset with them, and I didn't really talk to them very much at all. They were kept away.
 
 #### The Germans 
 
-- Another couple.
+- The German couple made a point of asking me a logical question just before I got sick, and I wonder if that was a "medical test" of some sort; like before/after.
 
 #### The Frenchman
 
-- A man who teaches small aircraft flying, had had a crash with a student the year before, and lives in Corsica.
+- A man who teaches small aircraft flying, had had a crash with a student the year before, and he lives in Corsica.
 
 #### My suspicions
 
-- My guess is that they all knew what was going to happen, two of them did it (probably the Russian and the American women), two of them were ready to perform surgery if I died perhaps the Germans or the Indians maybe, Henry was the scapegoat, Randy was Elon's spy, Mani was the love interest tasked with getting me in a relationship and adopting one of my own babies, and Vilde was PM; everyone being an independent witness of my survival if I was to survive and they came from multiple jurisdictions, which I suppose is good in a way because there'll be a lot of corroboration when the world finds out what people are *really* like.
+- My guess is that they all knew what was going to happen, two of them did it (probably the Russian and the American), two of them were ready to perform surgery if I died perhaps the Germans or the Indians maybe, Henry was the scapegoat, Randy was Elon's spy, Mani was the love interest tasked with getting me in a relationship and adopting one of my own babies, and Vilde was PM; everyone being an independent witness of my survival if I was to survive and they came from multiple jurisdictions, which I suppose is good in a way because there'll be a lot of corroboration when the world finds out what people are *really* like.
 
 ### Antonio at a temple
 
