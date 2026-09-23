@@ -155,18 +155,26 @@ function googleTranslateElementInit() {
 
 - My rock solid confidence in God and His Love for us, and how He has planned all of this to get *all of us* out of our gargantuan, apocalyptic, and most-recent inevitable mess as quickly as possible, does not extend to many humans.
 - As usual, I think they're probably appalled at what God has delivered; it doesn't fit expectations, it threatens a deep reverence for porn and sexual violence, it threatens a more modern belief based in the ancient hate that the mother can be switcheroo-ed and thus made unnecessary, and that - with zero evidence and contrary to everything God tells us - miracles are a function of the cells of the body and have nothing to do with faith or God at all!
+- See about a million Indian gurus and holy men for more examples of this apparent contradiction
 - I refer my readers to the following principle of miracles: *Miracles are everyone's right, but purification is necessary first.*
-- God's representatives don't look right, and even when they do - coming backed with a prerequisite level of violence in the nature - their miracles are so shocking they must be stymied and controlled (see about a million Indian gurus and holy men for more examples of this apparent contradiction).
+- God's representatives don't look right, and even when they do - coming backed with a prerequisite level of violence in the nature - their miracles are so shocking they must be stymied and controlled.
 - It's amazing that they have put so much resource, time, and effort into the *Better Way* and then when it turned up, they decided they didn't like it much.
 - But expected.
 - So they'll be wanting to keep the violence and violation (hence my bizarrely unpleasant experiences of late), and to maintain the ancient hate and the murder of the mother (a tragedy of world-ending proportion), under the erroneous belief we humans are doing the right thing because, contrary to the glaringly obvious, we always think we do a better job than Him.
 - It seems to me the powers-that-be have decided that whatever political A-bomb I come with means the Instructions should be ignored; so I'm left with nothing to lose since [they salvaged whatever they could](april.md#un-oeuf-est-un-oeuf) from me and already [made their boldest attempt yet on my life](june.md#kailash).
 - It's only a matter of time before they destroy the only thing that can truly save them; like they always do.
 - Perhaps that day'll be the Day of the Lord.
+- (I don't believe this is true, but I still worry about it given the history).
 - The definition of insanity (believing we're better than God, or that we can eliminate Him, or that we *are* Him) is attempting to prove it again and again and expecting a different outcome.
 - And that is why my widowhood is apparently never ending...
 - And why I'm still here.
-- p.s. all this sparked by the truth coming out (egg-extractions over the last year - maybe even bumping into someone involved that made me cry for no reason, in the street) and people getting very angry about the truth coming out, and asking me if i want to disappear like [Kathleen Love](../2011-to-2020/2020.md#kathleen-love), and telling me i have to die... so... i've nothing to lose it seems. You've both (see [criminal gang comparison chart](july.md#comparing-the-criminal-porn-gangs-with-unscrupulous-and-insane-security-service-activities)) taken everything from me already, and Anne Hathaway lookalikes at the Wall are really a pretty useless way to make me think you're on my side. You're opinion of me is as if I'm a speck of dust on your shoe. So, the gigue is up. Do whatever you like, I don't care.
+- p.s. all this sparked by the truth coming out (egg-extractions over the last year - maybe even bumping into someone involved that made me cry for no reason, at the bar) and people getting very angry about the truth coming out, and asking me if i want to disappear like [Kathleen Love](../2011-to-2020/2020.md#kathleen-love), and telling me i have to die... so... i've nothing to lose it seems. You've both (see [criminal gang comparison chart](july.md#comparing-the-criminal-porn-gangs-with-unscrupulous-and-insane-security-service-activities)) taken everything from me already, and Anne Hathaway lookalikes at the Wall are really a pretty useless way to make me think you're on my side. You're opinion of me is as if I'm a speck of dust on your shoe. So, the gigue is up. Do whatever you like, I don't care.
+- And I don't, but I don't think they'll succeed.
+
+!!! tip "Scribbles of Baal"
+    - After this particular rant, when I went to David's Tomb the following day a Frenchman screamed "scribbles of Baal" at me, and an Israeli man was clearly FURIOUS with the Catholics!
+    - I tended to agree with the Israeli.
+    - I went to mass at the Dormition Abbey for 15th August - Mary's Assumption - and I felt like I was going to vomit, and left.
 
 ## What a world!
 
@@ -260,7 +268,6 @@ function googleTranslateElementInit() {
 - Hollywood actress lookalikes, TT student lookalikes, words, sly comments, he's a porn producer, ..
 - Constant prompts on Antonio definitely being in Israel - which we know is a lie; how he brought the ring with him, etc, I mean, just mayhem, constant, they *HAD* to make sure I kept believing the lie, I don't know why...
 - Perhaps they'd be concerned I might run off with the gypsies. Well, it sounds like a great idea to me right now I can tell you.
-- When I first mention the pinhole wound, I had men screaming *scribbles of Baal* at me outside David's tomb in French!, which was curious, and others furious with the Catholics, which I fully agree with... I went to mass for 15th August and felt like vomiting and left.
 - I showed the wound to the Wall (hoping they'd get it on film).. then as the other memories came steadily back there'd be less and less of this..
 - After I remembered Kathleen Love and wrote about her there was anger at the Wall: *Steve is OUT*, someone said.
 - And as it slowly, or quickly rather, came out day by day, and for the last few days of my stay, after the feeling I had had in my bed when I was devastated and realized the extent of it (bar Bali in May 2024, and Ruth, that was yet to come), there were only normal human beings at the Wall, and friends saying hi too.
