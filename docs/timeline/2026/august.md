@@ -138,7 +138,7 @@ function googleTranslateElementInit() {
 - And I know it's my daughter.
 - And I get up and go to the tunnels, because I don't understand it.
 - And I start to think I was wrong about the woman in my dream being Antonio's daughter and rather she'll be mine instead.
-- And I think about how a daughter of mine could be born without my involvement, and I come up with April 2026 in Dublin when I noticed a wound on my lower abdomen and suspicious events at Beckett Locke, as well as the (unconscious) signals from Steve about it.
+- And I think about how a daughter of mine could be born without my involvement, and I come up with April 2026 in Dublin when I noticed a wound on my lower abdomen and suspicious events at Beckett Locke, as well as the (unconscious) signals from Steve about it, and match the scar from then to the one that reopened in Bali.
 - And then all the signals from the Jews in Jerusalem the September and May before start to make a more horrible sense.
 - So I thought the Americans must have set them up to take the blame if anyone ever found out - [*Project Jonathan*](july.md#the-psychological-torture-begins) as they had repeated in Bali.
 - And from here I started thinking about Sullivan, and how the Americans had blamed Israel for Lockerbie too.
@@ -175,6 +175,7 @@ function googleTranslateElementInit() {
     - After this particular rant, when I went to David's Tomb the following day a Frenchman screamed "scribbles of Baal" at me, and an Israeli man was clearly FURIOUS with the Catholics!
     - I tended to agree with the Israeli.
     - I went to mass at the Dormition Abbey for 15th August - Mary's Assumption - and I felt like I was going to vomit, and left.
+    - I showed the keyhole scar at the Wall and hope it was caught on camera.
 
 ## What a world!
 
@@ -216,9 +217,15 @@ function googleTranslateElementInit() {
 - How could Topheth expand to all four corners of the earth?
 - Answer: when Caesar normalizes sacrificing children, the unwise amongst his subjects will follow suit.
 
+## I email Steve
+
+- I email Steve to ask him if he's aware of all this.
+- [His reply](../../content/documents/emails/un-oeuf-est-un-oeuf.pdf) is unhelpful.
+
 ## *Where are my friends, Father?*
 
-- This is when it *all* came out. I had moved room by then.
+- This is when it *all* came out.
+- I had moved room by then.
 - I was devastated about the children. I still am. 
 - This was the day I bumped into Mrs Wasserman's sister in the lift - she certainly looked like her - at the YMCA and the whole place was heaving.
 - And then Paul Gebheim from Polygon had been at the YMCA that day too! Which I didn't connect to the children at all. I can't imagine why they wheeled him out.
