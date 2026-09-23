@@ -673,16 +673,18 @@ function googleTranslateElementInit() {
 
 ### The pangolin at Ben Gurion
 
-- When I arrive at Tel Aviv airport, I have to wait a short time before I'm able to leave the airport.
-- So I'm sitting waiting for the visa woman to call me, and as I'm sitting there, all of a sudden the pangolin walks by.
-- Well, it's a man I recognize immediately as a [trumpet teacher](../../crimes/protagonists/vidal-sastre.md) from Dénia.
-- I notice also that I'm unable to look at him for more than a glance, and then I look down. I can only look at the man in short glances.
+- When I arrive at Tel Aviv, I have to wait a short time before I'm able to leave the airport.
+- So I'm sitting waiting for the visa woman to call me over, and as I'm sitting there, all of a sudden the pangolin walks by.
+- Well, it's a man I recognize immediately as a [trumpet teacher](../../crimes/protagonists/vidal-sastre.md#vidal-sastre-sanchez-hornero) from Dénia.
+- I notice also that I'm unable to look at him for more than a glance, and then I look down and away.
+- I can only look at the man in short glances; something's making me look away quickly every time I look at him.
 - I find this weird.
-- A good few weeks later, I realize that I have never consciously seen this man before and he never attended conservatory classes.
+- A good few weeks later, I realize that I have never consciously seen this man before and he never attended conservatory classes, but nevertheless he's a *trumpet teacher*.
 - At that moment, I add him to the list of trumpet teachers as [number seven](../../crimes/protagonists/vidal-sastre.md#7-the-pangolin).
-- I also realize he's the *pangolin* mentioned regularly online on fake accounts.
-- Another curious thing is that I remembered having the same *only-able-to-look-at-him-in-short-glances* reaction to a status at Sainte Baume of the "bad" criminal to the left of Jesus.
-- I realize that sedating training includes violence towards a target whereby if they see the rapist in the future, they won't be able to look directly at them without looking away, and the porn-gangs require this reaction to include animals in the growing group of living beings the target believes is one man.
+- I also realize he's the *pangolin* mentioned regularly online on fake X accounts.
+- Another curious thing is that I remembered having the same *only-able-to-look-at-him-in-short-glances* reaction to a statue outside the cave at Sainte Baume of the "bad" criminal to the left of Jesus.
+- I realize that sedated-porn training includes violence towards a target while sedated with animal training techniques whereby if she sees the rapist in the future, she won't be able to look directly at him without quickly looking away.
+- The porn-gangs require this reaction to include animals in the ever-growing group of living beings the target believes is one man.
 - The fact that I see this man in Ben Gurion airport is perplexing to me, and I don't figure that out for even longer: that everyone was lying to me about Antonio Ruiz being rescued and taken to Israel in August 2025, and instead they took a whole bunch of them all together!
 - I update my notes accordingly, and then, on 11th September I see Antonio Ruiz in Lourdes and I realize they told me an even more wicked lie because he never went to Israel.
 - I mean, talk about lies upon lies upon lies... they probably forgot the original one mostly, and newbies will never hear about it.
