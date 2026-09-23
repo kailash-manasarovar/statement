@@ -1,5 +1,13 @@
 # September 2026
 
+<div id="google_translate_element"></div>
+<script type="text/javascript" src="//translate.google.com/translate_a/element.js?cb=googleTranslateElementInit"></script>
+<script type="text/javascript">
+function googleTranslateElementInit() {
+  new google.translate.TranslateElement({pageLanguage: 'en'}, 'google_translate_element');
+}
+</script>
+
 ## KLM from Beijing to Amsterdam
 
 - I drink too much, watch too many Monty Python snippets, and *REALIZE* with a massive start, biting my lip horribly when I do, that the American salmon-mousses tasked the Lopez Cano's with the crime of the late 20th century, and then blamed the British for it!
