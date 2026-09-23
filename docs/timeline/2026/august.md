@@ -395,5 +395,5 @@ function googleTranslateElementInit() {
 - I realize that tent-widening (Isaiah 54) is about getting the book out to as many non-mousse environments as possible.
 - The people in Dubai are jubilant about it too!
 - As are the Chinese when I get there.
-- I buy a ticket to Beijing to pick up my hiking gear and manage to publish the book in China markets.
+- I buy a ticket to Beijing to pick up my hiking gear and manage to publish the ebook in China markets while I'm there for 24 hours.
 - I will spare not, you can count on it.
