@@ -243,8 +243,9 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - This is another man I have no recollection of seeing inside the conservatory building, and I wonder if this is because he is an extremely well known sex offender in the region.
 - I do have numerous memories of seeing this man since 2001.
 - He was the man I saw in the banged up Peugeot driving on my road on the 11th June 2023, [the day before my *funeral*](../../timeline/2023/june.md#sunday-11th-june).
-- I had also seen him [driving past my building](#) in the same car as I was going to class one morning in May. This was the day that the conservatory teachers were having a big meeting so I assumed he had to leave early to get back to Valencia and his job at the secondary school!
+- I had also seen him [driving past my building](../../timeline/2023/may.md#assessment-day-at-the-conservatory) in the same car as I was going to class one morning in May. 
 - I also saw this man in the same Peugeot in a [drive-by at the beach, with the doctor in the passenger seat](../../timeline/2023/june.md#the-trumpet-teacher-and-the-doctor-joan-drive-past-me); a solid link to the chamber music classes at the conservatory.
+- He was the man I saw fully clothed with his back to the camera, feet in ballet first-position, [throwing the naked bank teller from the Marquis de Campo around her kitchen by the neck](../../timeline/2023/june.md#the-excessive-porn-on-x-begins) on porn flashed up on my X timeline.
 - In the Autumn of 2023, I saw him [driving Ana Requena's (trumpet teacher girlfriend) blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) close to my apartment.
 - He knew I'd recognize him as *trumpet teacher*.
 - My view today is that whenever he did this, he was about to enter, or just had been in my apartment while I was sedated. A few times I saw men that looked just like him in cars outside my apartment, but I never mistook any of them for the trumpet teacher. I knew they were relations though. Some of them were driving flash cars. I expect these men had been in my home too. I'd remember them as well as this man.
@@ -272,6 +273,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - There were distinctly familial characters, relations to the above, popping up all over during this time.
 - One of them was [Patricia Penny's husband](../../timeline/2021/december.md#christmas) who is probably the same [man who came out to terrorize me on Halloween](../../timeline/2023/october.md#halloween).
 - [The man who stalked me at EthCC](../../timeline/2024/july.md#meeting-a-weird-guy), who said he was from Alicante, also looked like a relation of trumpet teachers.
+- Then there was [the man with the British Walmart trophy wife](../../timeline/2023/december.md#the-walmart-trophy-wife) I met walking on New Year's Eve 2023 with the expats.
 - The photo of the boy that came up first on my Google search results for well over a year looked like none of the above but someone was trying to make me think he was included - and I did.
 
 ![The deep-set man](../../content/images/fake-accounts/family/Vigas%20as%20a%20young%20man.jpg)

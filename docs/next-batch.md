@@ -22,9 +22,5 @@
 - Do the porn-loving men do things like that to "weaken" the abused women?
 - They've had months to set this up. There appears to be something quite toxic in my belongings, water I left in the car, or perhaps bed sheets. Still trying to make me think, make me think.. etc. I suppose.
 
-### Vidal Sastre Sanchez Hornero
-
-1. Number 6 trumpet teacher: add Viktor porn with the bankteller example.
-1. Add Walmart trophy hunter to *male family members* in protagonists.
 
 
