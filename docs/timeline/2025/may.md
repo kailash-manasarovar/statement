@@ -123,6 +123,7 @@ function googleTranslateElementInit() {
 ### Adam has pain in his hands
 
 - I've been suspicious of Adam since the first course he attended.
+- He apparently runs windsurfing courses in Sweden: https://www.adamholm.com/. I think he's probably also an actor by trade.
 - I always assumed he was working for the porn gangs and had been sent to spy on me, just like some other course participants I already mentioned.
 - My car has been doused with pesticides and this seeps into the plastics and won't come out.
 - Whenever I drive without gloves, I start feeling that bone ache I had in my body when I was wearing pesticide-soaked clothes and shoes, and sleeping under the toxic duvet I brought to London with me from Spain.
