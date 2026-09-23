@@ -374,17 +374,20 @@ function googleTranslateElementInit() {
 - One woman I saw repeatedly; ripping up my leaflets, and shouting and glaring at me at tube stations, turned out to be an election officer for the Labour Party.
 - I guess some of my volunteers could have been Labour Party too, or perhaps Green Party infiltrators.
 
-#### An old friend
+#### Geetha is shaking
 
-- One morning at East Finchley tube station while handing out leaflets, I see an old friend from the time the Tottenham rape-gang got hold of me in 1989, Geetha.
-- Her mother and her mother's boyfriend Colin had been staunch members of the Labour Party in East Finchley.
-- She's never been my friend - she bullied me horribly on three different occasions; the first time in 1980, and again viciously after the rape-gang attacks in which she wasn't targeted - I assume because she's black and they were predominantly black gangs.
-- I wondered if the original bullying when I was really small had been brought about by parents and guardians angry with my dad about something.
-- I'm happy to see her in any case.
-- She doesn't have anything nice to say to me.
-- She's seems nervous, her voice is shaking.
-- She takes a photo of me and her, and leaves.
-- I'm happy she came over to say hello and think nothing more of it.
+- One morning at East Finchley tube station while handing out leaflets, I see an old friend from when the Tottenham rape-gang got hold of me in 1989, Geetha Joseph (previously Singham).
+- She's never been my friend - she bullied me horribly on three different occasions; the first time in 1980, and again viciously after the rape-gang attacks in which I don't believe she was sedated like the rest of us were.
+- Her mother and her mother's boyfriend Colin had been staunch members of the Labour Party in East Finchley, and I think they must have all hated me - because they did - due to my dad's bad behavior.
+- One of her uncles living in the Caribbean was connected to the US military, somehow, and another living in London was a bit shady and may have known Howard, the connect to Winston May.
+- Anyway.
+- I'm happy to see her.
+- She doesn't have anything nice to say.
+- No formalities, like how's it going, what's been happening; all she wants it to take a picture of me.
+- I can see why she's not speaking much.
+- She's nervous, her hands and voice are shaking.
+- She takes a photo of me and then she leaves.
+- I'm happy she came over to say hello, and think nothing more of it.
 
 ### Party of Women party
 
