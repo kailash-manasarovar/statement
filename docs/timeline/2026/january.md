@@ -179,6 +179,7 @@ function googleTranslateElementInit() {
 - The only reason I can fathom for blocking access to this account is an attempt to hide the many letters and emails I wrote to hundreds of organizations asking for help such as [Aqualia, the water board in Valencia](../2022/february.md#aqualia) to inform them the water connection to my house was being tampered with by poisoners.
 - Also all my emails with people like [Trish Penny who know too much and/or know everything (there's thousands of them in Spain)](../2024/december.md#trish-penny-communicates-terror-again) are gone.
 - After a few months of warnings, the account is deleted forever.
+- It doesn't escape my notice that they waited until I was back in the UK to do this, so that I'd continue to think the Brits, or British criminal gangs, had control of the matter when they have none at all.
 
 ### Suddenly the options to open the account up are back in September 2026
 
