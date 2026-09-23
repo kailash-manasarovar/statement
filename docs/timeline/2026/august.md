@@ -305,7 +305,7 @@ function googleTranslateElementInit() {
 - They've obliterated my access to jobs, healthcare, support, friends who aren't spies, a normal life and more.
 - They've obliterated my access to communities on social media by battering me relentlessly online, forcing me to delete all my accounts for a bit of peace.
 - They attempt to weaken me in *any way* possible.
-- They've block my payments on my bank cards and on payment platforms too.
+- They block my payments on my bank cards and on payment platforms too.
 - They're now blocking my book production online.
 - They're now blocking me opening new social media accounts I want to use to market my book.
 - This is not the behavior of people who don't intend you serious harm.
@@ -332,6 +332,7 @@ function googleTranslateElementInit() {
 - Thank you LORD for Your firm promises which You never break. Please keep them all safe until we come for them.
 - Maybe India can take us BOTH until everyone's in jail and dealt with howaboutit?
 - Whatever I've done already is only half of my potential.
+- Amazing. I still thought he was in Israel.
 
 ## Dear gypsy friends and devotees
 
@@ -370,5 +371,29 @@ function googleTranslateElementInit() {
 
 ## Dubai
 
-- In Dubai after a month of swimming a km to a mile every day or every two days at the YMCA in Jerusalem, the groin injury - it is inner groin - is paining me during the night. It's something to do with the mattress which puts my rump/hips/groin in a lower position than my legs. I swim breaststroke and so kick out a lot and noticed the groin injury complaining a bit while swimming but it doesn't make sense unless it is structural, a caused injury, broken sutures, something surgical gone wrong and reopened again and again.
-- And who was the woman at departures? I got jealous and remembered how awful that all was and started thinking of a cave or the nunnery again... was she Brunhilda? Isaiah 57. A nest indeed. Gosh, this is gonna be such a cool parallel plot line.
+- I get a taxi to Ben Gurion without having a flight ticket.
+- At the airport, I debate whether to go immediately to Beijing for my hiking gear, or perhaps up to Haifa where I've been informed Antonio is - he isn't.
+- In the end I decide on a few days in Dubai.
+
+### The woman at the airport
+
+- I see another one of the gang kidnapped by the UN and brought to Israel in July/August 2025.
+- It's a woman and she's sitting watching me as I head to security.
+- I feel an intense jealousy rising up, and it reminds me of how the porn-gang honey-trap hypno-tech used to make me feel.
+- I realize she's from Dénia, and they must have taken a whole load of people.
+- I remember the report in the paper about the [mass arrest on 22 July](https://www.europapress.es/nacional/noticia-liberadas-162-mujeres-victimas-red-explotacion-sexual-varias-provincias-espana-20250722093030.html) and realize it must be these people, and there's not just three of them!
+- When I think of these people, languishing in a UN mousse-prison, I also think of Isaiah 57.
+
+### Feeling the internal injuries
+
+- In Dubai, after a month of swimming a km to a mile every day or every two days at the YMCA in Jerusalem, the groin injury - it is inner groin - is paining me during the night.
+- It's something to do with the mattress which puts my rump/hips/groin in a lower position than my legs.
+- I swim breaststroke and so kick out a lot and noticed the groin injury complaining a bit while swimming but it doesn't make sense unless it is structural, a caused injury, broken sutures, something surgical gone wrong and reopened again and again.
+
+### Ebook publishing
+
+- I realize that tent-widening (Isaiah 54) is about getting the book out to as many non-mousse environments as possible.
+- The people in Dubai are jubilant about it too!
+- As are the Chinese when I get there.
+- I buy a ticket to Beijing to pick up my hiking gear and manage to publish the book in China markets.
+- I will spare not, you can count on it.
