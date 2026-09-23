@@ -69,15 +69,16 @@ function googleTranslateElementInit() {
 
 ## Two days before the eclipse
 
-- Then, it's coming now...
-- Two days before the eclipse something happens and I realize I had never seen this man the pangolin consciously before in my life.
+- Then, every day at the Wall, something new.. and the truth is really starting to come out now...
+- Two days before the eclipse something happens and I realize I had never seen this man the pangolin consciously before in my life (apart from possibly briefly for about two seconds while I was extremely high on hallucinogens).
 - And from here I realize that he must be one of the "trumpet teachers" from Dénia nevertheless.
 - And I start to think more carefully about the trumpet teachers, how many there were, who they were, what they looked like, and what their physical and personal differences were.
+- I have the time in Jerusalem to think about this properly and do a full analysis.
 - And I realize there were seven men plus the man Antonio who I believed they all were, making eight in total.
 - So I write it up over the next days before the eclipse on St Clare's feast day - the intuitive (or remote viewer's) patron saint as Steve had told me the September previously.
-- And I guess that's what Saint Michael was referring to when [he cuffed me round the head](may.md#dreaming-of-saint-michael-on-ascension-day) in Cauterets in May.
+- And I guess these painful truths coming out is what Saint Michael was referring to when [he cuffed me round the head](may.md#dreaming-of-saint-michael-on-ascension-day) in Cauterets in May.
 - And here it is: [seven trumpet-teacher devils and one angel](../../crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel).
-- And right after this, on the day of the eclipse, I write the following three sections.
+- And right after this, on the day of the eclipse, I write up the following three sections.
 
 ## The sheer volume of it..
 
