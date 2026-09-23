@@ -278,17 +278,18 @@ function googleTranslateElementInit() {
 
 ## Constant activity when I leave the YMCA, and in the YMCA too, until the Truth is fully out
 
-- Further to this... it was constant, mayhem.
+- Further to all this... the activity around me was constant, it was mayhem.
 - Everything I was saying in here was sparking reactions off.
-- Words and phrases on T-shirts, hats, bags.
-- Hollywood actress lookalikes, TT student lookalikes, words, sly comments, he's a porn producer, ..
-- Constant prompts on Antonio definitely being in Israel - which we know is a lie; how he brought the ring with him, etc, I mean, just mayhem, constant, they *HAD* to make sure I kept believing the lie, I don't know why...
+- Words and phrases on T-shirts, hats, bags, dog-collars, luggage-tags.
+- Hollywood actress lookalikes, Hollywood director lookalikes, small girls that look like me when I was little wearing strawberry dresses, the TT student who was desperate to get pregnant - get an egg of mine? - lookalike, words, sly comments, constant denigration of Antonio, "he was a porn producer" - I DON'T CARE!!
+- Constant prompts on Antonio definitely being in Israel - which we know is a lie; how he brought the ring with him, it's garnet not diamond, I mean, just mayhem, constant, they *HAD* to make sure I kept believing the lie, I don't know why...
 - Perhaps they'd be concerned I might run off with the gypsies. Well, it sounds like a great idea to me right now I can tell you.
-- I showed the wound to the Wall (hoping they'd get it on film).. then as the other memories came steadily back there'd be less and less of this..
-- After I remembered Kathleen Love and wrote about her there was anger at the Wall: *Steve is OUT*, someone said.
+- I showed the keyhole wound scar to the Wall (hoping they'd get it on film).
+- Then as the more and more memories of other extraction came steadily back, there'd be less madness, less signaling, less mayhem on my trips to the Wall every day.
+- After I remembered Kathleen Love and wrote about her there was anger at the Wall: *Steve is OUT!*, someone said loudly as I walked by.
 - And as it slowly, or quickly rather, came out day by day, and for the last few days of my stay, after the feeling I had had in my bed when I was devastated and realized the extent of it (bar Bali in May 2024, and Ruth, that was yet to come), there were only normal human beings at the Wall, and friends saying hi too.
-- I guess they realized it was only a matter of time now.
-- I had a few chilled days after that, up till then it had been relentless stalking by the Americans.
+- I guess they realized it was only a matter of time and quit harassing me - do they think that can stop God?
+- I had a few chilled days after that, up till then it had been relentless stalking by the Americans - the embassy is right there after all.
 
 ## It's a (salmon and onion) wrap 
 
