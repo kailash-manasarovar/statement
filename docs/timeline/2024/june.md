@@ -388,6 +388,8 @@ function googleTranslateElementInit() {
 - She's nervous, her hands and voice are shaking.
 - She takes a photo of me and then she leaves.
 - I'm happy she came over to say hello, and think nothing more of it.
+- What's Geetha so worried about?
+- I remember seeing her mother in 2018. They were having a street party in Leslie Road on Philip Glass's birthday. I was heading into town to listen to some of his music, and saw them when I walked through. Sonia saw me and spun around, putting her back to me, which I thought was utterly extraordinary!
 
 ### Party of Women party
 
