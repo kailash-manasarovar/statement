@@ -28,6 +28,11 @@ function googleTranslateElementInit() {
 
 ## True forgiveness, suicidal empathy, and confusing the levels
 
+!!! tip "Thoughts after seeing the pangolin"
+    - I was trying to figure out why [I had seen the pangolin at Ben Gurion](july.md#the-pangolin-at-ben-gurion), and the trauma reaction I had had at the same time.
+    - I was thinking about forgiving people for evil acts, and what that really entails.
+    - It's a bit of a rant but I'll leave it in as my thought processes were working through to the truth.
+
 - Forgiveness is in the heart and mind, not really the body, although..
 - Jesus on the cross had a perfect heart and mind, but he suffered excruciating pain and distress while it was happening.
 - However, after his physical death the body reconstructed because of his pure heart and mind, and his unequivocal connection to God, and because that's what God had planned.
