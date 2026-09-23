@@ -268,8 +268,13 @@ function googleTranslateElementInit() {
 
 ## Confirmation mousses up India's arse even in Israel
 
-- 23rd the mountain was at the Wall, and I remembered meeting the couple who had family on the Air India flight.
-- One day in Jerusalem, I suggest to my online friends that squirrel and I might do well in India because if the mousses are controlling everyone, at least me and him might stand a chance together in India - I talk a lot like this online (I never save these things, but they always know) ... I also look up "asylum in India" processes online. The next morning outside David's tomb they've set up an Indian woman with a MASSIVE plastic sign saying something like "Join us, you will be safe", or some such.. this is why I say these things about escape to India... but if the mousses control India, then that's out too even!
+- On the 23rd, I saw a vision of Kailash while I was at the Wall.
+- I also remembered meeting the couple who had family on the Air India flight with [guruji in Rishikesh in October 2019](../2011-to-2020/2019.md#hanuman-puja-with-guruji-in-rishikesh).
+- So much was coming up, I couldn't possibly relate it all in one go.
+- One day in Jerusalem, I suggest to my online friends that squirrel and I might do well in India because if the mousses are controlling everyone, at least me and him might stand a chance together rather than alone against all odds.
+- I talk a lot like this online (I never save these things, but they always know) ...
+- I also look up "asylum in India" processes online at the same time.
+- The next morning outside David's tomb they've set up an Indian woman with a MASSIVE plastic sign saying something like "Join us, you will be safe", or some such.. I mean it's just a welcome to the lab again, isn't it.
 
 ## Constant activity when I leave the YMCA, and in the YMCA too, until the Truth is fully out
 
