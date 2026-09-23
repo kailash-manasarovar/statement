@@ -686,10 +686,11 @@ function googleTranslateElementInit() {
 - Another curious thing is that I remembered having the same *only-able-to-look-at-him-in-short-glances* reaction to a statue outside the cave at Sainte Baume of the "bad" criminal to the left of Jesus.
 - I realize that sedated-porn training includes violence towards a target while sedated with animal training techniques whereby if she sees the rapist in the future, she won't be able to look directly at him without quickly looking away.
 - The porn-gangs require this reaction to include animals in the ever-growing group of living beings the target believes is one man.
-- The fact that I see this man in Ben Gurion airport is perplexing to me, and I don't figure that out for even longer: that everyone was lying to me about Antonio Ruiz being rescued and taken to Israel in August 2025, and instead they took a whole bunch of them all together!
-- I update my notes accordingly, and then, on 11th September I see Antonio Ruiz in Lourdes and I realize they told me an even more wicked lie because he never went to Israel.
-- I mean, talk about lies upon lies upon lies... they probably forgot the original one mostly, and newbies will never hear about it.
-- Let's make amends.
+- The fact that I see this man in Ben Gurion airport is perplexing to me, and I don't figure out for even longer that everyone was lying to me about Antonio Ruiz being rescued and taken to Israel in August 2025.
+- Instead the UN kidnapped a whole bunch of them, all together!
+- I update my notes accordingly, and then, on 11th September I see Antonio Ruiz in Lourdes and I realize they told me an even more wicked lie because he never went to Israel at all!
+- I mean, talk about lies upon lies upon lies... they probably forgot the original one mostly, and newbies will never hear about that one.
+- Let's make amends on that.
 
 ### All over me like scabies at the Dan Panorama Jerusalem
 
