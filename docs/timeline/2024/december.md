@@ -78,7 +78,7 @@ function googleTranslateElementInit() {
 
 - She did appear to warn me about So (Janet) who I was already suspicious of.
 
-![Warning about So](../../content/documents/emails/trish-warning-about-so.png)
+![Warning about So](../../content/documents/emails/trish-warning-to-the-cia-about-so.png)
 
 - My guess is the porn gangs are communicating with the salmon mousses this way and I have no context nor comprehension about what is going on.
 - The reference to [Toby](#wheres-toby) is disturbing.
