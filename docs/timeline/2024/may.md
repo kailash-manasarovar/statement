@@ -758,9 +758,11 @@ function googleTranslateElementInit() {
 - One man stays behind to talk to me, the restaurant is empty now.
 - It's the Project Manager Paul Gebheim.
 - We chat about work.
-- I will see Paul Gebheim in Jerusalem outside the YMCA where I was staying in August 2026 just as God is telling me everything at the Kotel every day.
-- This is the day the whole place is heaving with people, some of who look like Mrs Wasserman - I'm sure I bumped into Mrs Wasserman's sister in the lift that day.
-- I'm not keeping detailed notes on what happened when, but the place just rammed up with them after I started realizing I'd been sedated for surgery too.
+
+#### Paul Gebheim's interest in me
+
+- I will see Paul Gebheim again in [Jerusalem in August 2026](../2026/august.md#where-are-my-friends-father), just as I am discovering that not only was I being sedated and raped repeatedly for porn-world's enjoyment, but that other sinister groups had been organizing multiple sedated surgeries where they might steal my eggs.
+- If this is true, and they did extract egg(s) from me in Bali, one of which ended up forming Ruth who attended the Transforming Touch courses in May and September 2025, then this is the link to Hazel Smith being tasked to [murder me by poisoning in 2007](../2001-to-2010/2007.md#hazel-tries-to-kill-me), the [Kabbalah conference with Richard Freed](../2001-to-2010/2007.md#kabbalah-conference) the week before, my survival, and her mother Sandra taking me to Trudy's [A Course In Miracles workshop](../2001-to-2010/2008.md#a-course-in-miracles) the following year.
 
 ### People telling me they're leaving, some promotions
 
