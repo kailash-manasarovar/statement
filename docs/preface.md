@@ -16,6 +16,10 @@ function googleTranslateElementInit() {
 
 Dear reader,
 
+!!! tip "Section written in August 2025"
+    - There was *a lot* more truth still hiding...
+    - Removing this section from the ebook.
+
 This book started life as a police statement.
 
 It was written under extraordinary pressures, and while the author was being poisoned, drugged, and terrorized by criminal sex gangs operating freely in Spanish public schools amongst minor children, teenagers, and young people.
@@ -44,13 +48,13 @@ The fiercest warrior-woman had been waiting so long to emerge.
 
 ![A lioness inside](content/images/lioness-2.png)
 
-As the conspiracy's knots began to unravel, the author realized with horror that while she was living in her apartment in Dénia, set up with spy-cam and sedating tech, she had been the [Gisele Pelicot](timeline/2001-to-2010/2007.md#rewards-for-footage-of-the-worlds-most-sedated-and-raped-woman) of Spain.
+As the conspiracy's knots began to unravel, the author realized with horror that while she was living in her apartment in Dénia, set up with spy-cam and sedating tech, she had been the [Gisele Pelicot](timeline/2001-to-2010/2007.md#rewards-for-footage-of-the-worlds-most-sedated-and-raped-woman) of Spain, perhaps the world.
 
 Not only that, but every job this small, unassuming, quiet and intelligent computer scientist had done over that time was part of the same sedated porn conspiracy, particularly her job at [Spanish crypto firm Polygon](timeline/2023/november.md#polygon) but undoubtedly others too, and including the recruitment agents involved in getting her those jobs. The spidery tentacles of sex-offending at a Spanish public school, where students including children are regularly drugged by teachers, reached far and wide; perhaps right up to [Elon Musk himself](timeline/2023/june.md#elon).
 
 You might think the police would be keen to root out sex offending networks as quick as possible, particularly when their main targets have morphed from single, wealthy and foreign, vulnerable females working in tech (or males given the right circumstances) into children and most likely babies too.
 
-Yet targets have been happenstance wandering into the town for many decades, bumping into one of the numerous [*"introduction agents"*](crimes/introduction-agents.md) and ending up in rape porn, with or without their knowledge. One wonders how many complaints the police have buried over the years.  Certainly all the author's requests for help were silenced and ignored; by the Spanish police three times, and by UK police numerous times as well.
+Yet targets have been happenstance wandering into the town for many decades, bumping into one of the numerous [*"introduction agents"*](crimes/introduction-agents.md) and ending up in rape porn, with or without their knowledge, and if they're British, perhaps murdered too. One wonders how many complaints the police have buried over the years.  Certainly all the author's requests for help were silenced and ignored; by the Spanish police three times, and by UK police numerous times as well.
 
 I suppose if the official protocol is to ignore and bury all complaints about serious sex offenses, and has been for decades, you might well be persuaded to join in.
 
