@@ -11,7 +11,7 @@
 - Whose idea was it, I wonder?
 - I suspect the CIA may have even requested my dad and brother be brought in, just in case, as I was so special.
 - They may have ordered my brother's rape too.
-- Criminal gangs now feeling more favorably towards me in September 2026 will certainly let us know (wolves lying down with lambs, leopards with kids, etc.).
+- Criminal gangs now feeling more favorably towards me in September 2026 will certainly let us know (wolves lying down with lambs, leopards with kids, etc.). Thank you.
 - All this means that surgeries began much earlier than I expected, and the baby the CIA were passing around at the thermal baths in Cauterets in August 2025 - after surviving poisoning by digitalis and while eggs were being extracted while I was sedated at my holiday apartment - was mine.
 - The small child reached for me - I thought they were trying to see if I'd raise the alarm about the safety of a toddler who looked like she was all alone amongst a crowd of adult men and a few women, it wasn't clear who her parents were.
 - I knew it was spy activity - of course, it's not possible to guess at the true nature of their evildoing - so I did not raise the alarm. It will all be on CCTV, and double-agent footage.
