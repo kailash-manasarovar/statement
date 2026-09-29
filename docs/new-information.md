@@ -31,3 +31,7 @@
 - Have the CIA been in my head, as it were, since 1989?
 - Did they order Winston May and his rape-gang to target me via friends and then get it shut it down a month or so later?
 - Who are the 144K, and have we all reincarnated from the Ramayana to build that bridge to Lanka again?
+
+![Ram kills Ravana](content/christmas-new-year-ebook-additions/ram-kills-ravana.png)
+
+- (I wrote a whole load more tweets about this over the last years... but only found four! We have backups, however, always there are backups - red follows red, right?)
