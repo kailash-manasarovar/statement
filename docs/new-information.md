@@ -1,4 +1,5 @@
 # New information - coming in from sources
+## First addition after ebook publishing 29 September 2026
 
 - Hazel's real name is Kim Holland.
 - Hazel was recruited by the CIA to work closely with (report back on) the gitano gangs in Dénia in 2005, specifically the Cano Lopez's (*oh, just a family we know*).
