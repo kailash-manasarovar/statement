@@ -73,3 +73,4 @@
 - He won't lie for them.
 - He may well be a toilet cleaner too, nothing wrong with that. But it would be so interesting if he wasn't, don't you think.
 - He was a potential outlier, someone who knew everything, knew Matthew and what he was capable of, and who knew what had happened to me... someone who might pull me off being lured back to Denia by the Americans, and brain damage, and sedated rape-porn stardom, and all the rest of it.
+- His brother Joshua will also not lie. And can verify my brother's unfortunate evil nature too.
