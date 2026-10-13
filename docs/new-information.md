@@ -83,3 +83,7 @@
 - First, she didn't realize they'd target all of us (me the worst), all the white girls - at least three of her close friends - and second, she didn't count on my dad's connections to porn (did he see me immediately in porn?, hence the snickering whenever I came home) cos something spooked her probably in.. hmm not sure maybe the winter of 1990 and she and her uncle created this whole "drama" of where she had been targeted and robbed .. and she was very keen I knew about it (the woman couldn't talk to me without insulting me, and suddenly they're sitting me down, telling me this whole business, carefully, making sure I hear it, all the details, bringing me along for the fix, to her uncles house, and I always thought, why are they telling me all this, they haven't spoken to me like I'm human in months - severe PTSD time) well, it makes sense now, as does her shaking at the GE.
 - So it was all such a mess, and getting messier and messier, they thought up something even more evil to distract everyone from it but more importantly to threaten the country in perpetuity over it... silly woman, what was she thinking.
 - Moses put the cat amongst the pigeons, didn't he.
+
+## He sends rainbows
+
+- See email.
