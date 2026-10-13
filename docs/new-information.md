@@ -5,7 +5,7 @@
 - Hazel's real name is Kim Holland.
 - Hazel was recruited by the CIA to work closely with (report back on) the gitano gangs in Dénia in 2005, specifically the Cano Lopez's (*oh, just a family we know*).
 - Hazel was tasked with murdering me by poison in 2007 by the CIA's ACIM division (once called Shield, now Joy), and at the same time making sure to mention "Paco Sendra" (Antonio) who was a person of interest for them too.
-- When I didn't die, they will have suspected I was one of Christ's followers - like the others - and they requested I be introduced to the Course which I was via Sandra ("Hazel's" mum; real name outstanding) who took me to Trudy's talk a year later.
+- When I didn't die (November time), they will have suspected I was one of Christ's followers - like the others - and they requested I be introduced to the Course which I was via Sandra ("Hazel's" mum; real name outstanding) who took me to Trudy's talk the following Spring.
 - Hazel's attitudes/emotions towards me the night she tried to murder me were very interesting. She was angry I told her I had been sexually abused so early on because it made me more human, and she was able to relate. From that moment, her "energy", as it were, was exactly like Tina's in 2026 - bitterly purposeful.
 - Due to this early survival in 2007, it's highly likely surgeries began early on; although perhaps it was inconceivable to even them at that time, and they started by ordering my continued and prolonged crucifixion at the hands of the porn-gangs instead.
 - Whose idea was it, I wonder?
@@ -74,3 +74,12 @@
 - He may well be a toilet cleaner too, nothing wrong with that. But it would be so interesting if he wasn't, don't you think.
 - He was a potential outlier, someone who knew everything, knew Matthew and what he was capable of, and who knew what had happened to me... someone who might pull me off being lured back to Denia by the Americans, and brain damage, and sedated rape-porn stardom, and all the rest of it.
 - His brother Joshua will also not lie. And can verify my brother's unfortunate evil nature too.
+
+## The ramifications of Sullivan
+
+- A "little knowledge" is not dangerous except to the ego.
+- Sullivan would have been enough here, after my dad going on about him - and my dad goes on and on about things - right after the funeral in Januay 1989...
+- That would have been enough to get us all targeted for "silencing", wouldn't it, except Geets made 2 errors.
+- First, she didn't realize they'd target all of us (me the worst), all the white girls - at least three of her close friends - and second, she didn't count on my dad's connections to porn (did he see me immediately in porn?, hence the snickering whenever I came home) cos something spooked her probably in.. hmm not sure maybe the winter of 1990 and she and her uncle created this whole "drama" of where she had been targeted and robbed .. and she was very keen I knew about it (the woman couldn't talk to me without insulting me, and suddenly they're sitting me down, telling me this whole business, carefully, making sure I hear it, all the details, bringing me along for the fix, to her uncles house, and I always thought, why are they telling me all this, they haven't spoken to me like I'm human in months - severe PTSD time) well, it makes sense now, as does her shaking at the GE.
+- So it was all such a mess, and getting messier and messier, they thought up something even more evil to distract everyone from it but more importantly to threaten the country in perpetuity over it... silly woman, what was she thinking.
+- Moses put the cat amongst the pigeons, didn't he.
