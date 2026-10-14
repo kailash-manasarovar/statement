@@ -84,6 +84,10 @@
 - So it was all such a mess, and getting messier and messier, they thought up something even more evil to distract everyone from it but more importantly to threaten the country in perpetuity over it... silly woman, what was she thinking.
 - Moses put the cat amongst the pigeons, didn't he.
 
+## Hillsborough
+
+- After Sullivan.
+
 ## He sends rainbows
 
 - See email.
@@ -91,3 +95,4 @@
 ## Jen from the Almeida
 
 - todo in Paul section
+
