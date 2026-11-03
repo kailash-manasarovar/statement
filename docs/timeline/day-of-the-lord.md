@@ -14,9 +14,9 @@ function googleTranslateElementInit() {
 }
 </script>
 
-The Day Of The Lord, as mentioned in the Bible, may refer to a seven year period related to the end times and the return of Lord Jesus Christ.
+The Day Of The Lord, as mentioned in the Bible, may refer to a seven year period related to the *end-times* and the return of Lord Jesus Christ.
 
-It's not clear when exactly this period began; whether it was at the setting up of the Abomination of Desolation in December 2021, or when I began Jesus's teachings from the workbook of A Course In Miracles - one lesson a week - in February 2022.
+It's not clear when this period began; whether it was at the setting up of the Abomination of Desolation in December 2021, or when I began Jesus's teachings from the workbook of A Course In Miracles - one lesson a week - in February 2022.
 
 Or some other time...
 

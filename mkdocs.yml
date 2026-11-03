@@ -122,8 +122,8 @@ nav:
       - July: timeline/2026/july.md
       - August: timeline/2026/august.md
       - September: timeline/2026/september.md
-  - How it began:
-    - How it began: timeline/how-it-began.md
+  - How it all began:
+    - How it all began: timeline/how-it-began.md
     - pre-2001:
       - "1980": timeline/pre-2001/1980.md
       - "1984": timeline/pre-2001/1984.md
@@ -156,6 +156,9 @@ nav:
       - "2018": timeline/2011-to-2020/2018.md
       - "2019": timeline/2011-to-2020/2019.md
       - "2020": timeline/2011-to-2020/2020.md
+  - How's it going to end?:
+    - Theories: how-will-it-end/theories.md
+    - Justice: how-will-it-end/justice.md
   - Crimes:
     - Egg theft: crimes/egg-theft.md
     - Protagonists: 
@@ -187,9 +190,6 @@ nav:
     - Health: personal/health.md
     - Expenses: personal/expenses.md
     - Hacking: personal/hacking.md
-  - How's it going to end?:
-    - Theories: how-will-it-end/theories.md
-    - Justice: how-will-it-end/justice.md
   - The novel:
     - Fear and loathing in Las Marinas, Dénia: the-novel/book-cover.md
     - Optional book covers: the-novel/optional-covers.md
