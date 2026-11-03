@@ -629,7 +629,7 @@ function googleTranslateElementInit() {
 - I was right to replace my bathroom products; that afternoon I also replace my toothpaste, toothbrush and some other things I use regularly.
 - Symptoms decrease even more.
 - Eventually, I will throw away everything ingestible I brought from home; sun tan lotion, liquid supplements, eye drops, everything.
-- I realize that the poisoning was behind the [unusually high eye pressure reported by Alain Afflelou](../../personal/health.md#eyes) the opticians in Ondara when I moved back to Denia in 2022, something I had never suffered from previously.
+- I realize that the poisoning was behind the [unusually high eye pressure reported by Alain Afflelou](../../evidence/health.md#eyes) the opticians in Ondara when I moved back to Denia in 2022, something I had never suffered from previously.
 - I'm beginning to realize I have been being drugged and poisoned from the moment I moved back to Spain in February 2022.
 - It's horrifying.
 - It looks like I was lured back to that apartment specifically for sinister and criminal purposes.

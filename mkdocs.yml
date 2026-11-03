@@ -172,17 +172,15 @@ nav:
     - Hacking: crimes/hacking.md
     - Cyber-stalking: crimes/cyberstalking.md
   - Evidence:
+    - Health: evidence/health.md
     - Manipulation techniques: evidence/manipulation.md
     - CCTV & surveillance: evidence/cctv.md
     - Memes and triggers: evidence/memes-and-triggers.md
     - Twitter accounts: evidence/twitter-account.md
     - Google searches: evidence/google-searches.md
     - Maybe's: evidence/maybes.md
-  - Personal experience: 
-    - Pictures of me: personal/pictures-of-me.md
-    - Health: personal/health.md
-    - Expenses: personal/expenses.md
-    - Hacking: personal/hacking.md
+  - My children: 
+    - Pictures of me: my-children/pictures-of-me.md
   - The novel:
     - Fear and loathing in Las Marinas, Dénia: the-novel/book-cover.md
     - Optional book covers: the-novel/optional-covers.md
