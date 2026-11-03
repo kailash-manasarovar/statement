@@ -30,6 +30,6 @@ hide:
 
 <img src="/content/images/remembering-lorraine.jpg" alt="Remembering">
   <div class="quote">
-    This book is dedicated to my friend Lorraine Blackbourn who should still be with us,</br>Antonio,
-    </br>And my children, every last one of them.<sup>∞</sup>
+    To Lorraine Blackbourn who should still be with us,</br>To Antonio,
+    </br>And to all my children, every last one of them.
   </div>

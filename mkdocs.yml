@@ -47,7 +47,6 @@ theme:
     - content.action.edit
 
 nav:
-  - Preface: preface.md
   - Dedication: dedication.md
   - Home: 
     - Summary: index.md
