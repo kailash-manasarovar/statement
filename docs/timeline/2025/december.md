@@ -8,7 +8,9 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## A stich pops at Fitkoh
+## Fitkoh
+
+### A stich pops open
 
 - I attend a Thai boxing course at Fitkoh.
 - On the first morning, while warming up, after having taken two or three paces jogging with everyone around the fitness space, I feel a crunch in my left groin/hip area and massive pain.
@@ -19,8 +21,22 @@ function googleTranslateElementInit() {
 - It isn't.
 - It's a surgical stich popping open - I guess this incision was repeated a few times on the left side, probably through a weird wounded-area I have still today on my inner groin which didn't behave like a normal boil or spot.
 - I suspect this injury is why they started going in via the right side in 2026, although in January/February in Dorset, I believe they went in again on the left side because my left ovary ached.
+- It healed well by October 2026, except after serving at the baths - or being sedated and raped again on my last night in Lourdes by very angry man or men.
 
-## A man tests me for the effects of poisoning
+### Bring-and-buy sale
+
+- There's a family there from the North of England: parents and adult children, a boy and a girl, and a woman who is a family friend.
+- The dad is Indian, Sikh he tells me, and a builder. He seems to be working-class wealthy.
+- The son with the bleached hair seems to know me. He calls my by name, Katharine, as if we've met before and he knows me personally - like someone might do to a famous person perhaps.
+- The girl traveling with them lives in the South and commutes to London to manage a bag shop - it's a brand name, I'll remember.
+- I wonder if she was a surrogate.
+- There's a French couple there too, at the hotel, VERY interested in me. They're quite old, probably in their late 70s.
+- He is desperate to talk to me; and then he's obviously warned off doing that because he ignores me from then on.
+- There were agents EVERYWHERE, for weeks, following me around wherever I went.
+- It only makes sense if they were selling my eggs, my children, to anyone who can pay, because I'm the most famous sedated rape-porn star ever known!
+- It's hideous!
+
+### A man tests me for the effects of poisoning
 
 - At Fitkoh, a man starts chatting with me.
 - His name is Oliver.
@@ -35,8 +51,9 @@ function googleTranslateElementInit() {
 - I ask if he can help me.
 - He's an agent though, so he doesn't speak to me again and makes sure no-one with him does either.
 - His wife barely looks at me whenever I see her.
+- He's interested in my groin injury. I wonder if that's why he was sent to check up on me.
 
-## A man is devastated on hearing what happened to me
+### A man is devastated on hearing what happened to me
 
 - I meet another man, cabin crew, at FitKoh.
 - Seems like a lot of cabin crew double as kind of law-enforcement... anyway.
