@@ -35,6 +35,8 @@ function googleTranslateElementInit() {
 - I didn't know this and kept thinking Carmen Lopez Cano was still harassing me and making me feel terrible.
 - I also felt unwell, tired, I was worried about my hip, and my rib, and I asked for help.
 - I said I just wanted to go home and that I probably need medical attention.
+- I find this absolutely disgusting that they would be performing repeated surgeries on me all over the world and ignore my request for medical help. Absolute monsters.
+- I realize the whole Antonio is in Israel lie was to keep me guessing, to keep me running around, to keep me available for egg-extraction.
 - That night, I hear Mrs Wasserman's voice in the room.
 - I think they staged it through the iPhone.
 
