@@ -97,7 +97,7 @@ function googleTranslateElementInit() {
 - We got on but he was trying it on a bit and he was obviously a spy.
 - He kept telling me about how he's thinking about adopting a baby, but he doesn't think his wife will agree!
 - Was he there to buy an egg once I'd been murdered by mercury poisoning?
-- I wonder if one of the women on a trip was a surrogate. Tina was pretty chunky already and had links into Alaska.
+- I wonder if one of the women on the trip was a surrogate. Tina was pretty chunky already and had links into Alaska.
 - Mani was sharing with Henry.
 - Henry introduced him as Gerald before anyone met him; he said Gerald had arrived already and was sleeping.
 - Mani and Randy became "available men" over the trip, and Jyotir made sure to tell me.
@@ -391,7 +391,7 @@ function googleTranslateElementInit() {
 - Did she know they intended to bump me off - or perhaps lobotomise me or something awful - at Loka Yoga?
 - Were these two there for the end-of-line egg sale? 
 - I think Yvonne was a surrogate, and tasked to get near to me.
-- Why do they think this is a good idea? Is it because they know there are solid connections between biological mothers to their children? Is it because children of surrogates stolen from their parents through sedated surgery or other tricks are desperately unhappy?
+- Why do they think this is a good idea? Is it because they know there are solid connections between biological mothers to their children? Is it because children of surrogates stolen from their parents through sedated surgery or other tricks are desperately unhappy and destined for extreme rage in adulthood?
 
 ### Elon visits the hotel
 
