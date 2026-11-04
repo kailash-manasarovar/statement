@@ -92,7 +92,8 @@ function googleTranslateElementInit() {
 
 #### Mani
 
-- A British Sikh (like the man at Fitkoh who brought the surrogate) from Nuneaton - obviously a lie. Nuneaton was a joke I used to tell my dad in the car, so it was a comfort trigger *and* proof the Americans were listening to us continually.
+- A British Sikh (like the man at Fitkoh who brought the surrogate) from Nuneaton - obviously all lies.
+- Nuneaton was a joke I used to tell my dad in the car, so it was a comfort trigger *and* proof the Americans were listening to us continually.
 - We got on but he was trying it on a bit and he was obviously a spy.
 - He kept telling me about how he's thinking about adopting a baby, but he doesn't think his wife will agree!
 - Was he there to buy an egg once I'd been murdered by mercury poisoning?
