@@ -12,7 +12,7 @@ function googleTranslateElementInit() {
 
 ### Snakes at Napasai
 
-- The first time I go to Fitkoh - just after the stich snaps in my groin - I was staying at a hotel called Napasai.
+- The first time I go to Fitkoh - when the surgical stich snaps in my groin - I was staying at a hotel called Napasai.
 - It's a short bike ride to Fitkoh, like 5 minutes.
 - I just remember being so utterly exhausted I could hardly get it up the hill, but I guess surgery in Bangkok and Napasai again maybe can explain that.
 - I was pushing myself because there was no explanation for it.
@@ -23,8 +23,8 @@ function googleTranslateElementInit() {
 - It does.
 - The Asian-American beside me at the beach is surprised I knew that; was he a surgeon or a buyer?
 - I think there were probably three surgeries: one at the Anantara, one at the Bangkok Residences, and one at Napasai too.
-- And I think they all went in via the same incision, weakening it every time, and causing me total and inexplicable exhaustion which was normal but I should have been told to bed rest, except they were sedating me to perform surgery.
-- And then I believe they reinjured the internal surgical-injury caused in Cauterets.
+- And I think they all went in via the same incision, weakening it every time, and causing me total and inexplicable exhaustion which was normal but I should have been told to bed rest, except they were sedating me to perform surgery so they had no inclination to tell me or to take care of me in any way at all.
+- And then I believe they reinjured the internal surgical-injury caused in Cauterets in August.
 - So not knowing what's going on I start Thai Boxing and I'm injured in the very first seconds.
 - Absolute b*&*&*tards.
 
@@ -34,17 +34,20 @@ function googleTranslateElementInit() {
 - On the first morning, while warming up, after having taken two or three paces jogging with everyone around the fitness space, I feel a crunch in my left groin/hip area and massive pain.
 - I cannot run another step.
 - I'm so disappointed about this, and honestly I don't really understand what could have happened.
-- I probably should have got it seen to, but I know mousse agents are all over everything I do, so I don't.
+- I probably should have got it seen to, but I know mousse agents are all over everything I do, so I don't because there's no point if they're controlling everything, right?
 - I explain it to myself as a hip injury, and ChatGPT tells me it's a pulled muscle.
 - It isn't.
 - It's a surgical stich popping open - I guess this incision was repeated a few times on the left side, probably through a weird wounded-area I have still today on my inner groin which didn't behave like a normal boil or spot.
 - I suspect this injury is why they started going in via the right side in 2026, although in January/February in Dorset, I believe they went in again on the left side because my left ovary ached.
-- It healed well by October 2026, except after serving at the baths - or being sedated and raped again on my last night in Lourdes by very angry man or men.
+- It healed well by October 2026, except after serving at the baths - or being sedated and raped again on my last night in Lourdes by men furious at me for raising the alarm, and hopping up and down backwards to pin it on the transvestite thing.
 
 ### A man tests me for the effects of poisoning
 
 - At Fitkoh, a man starts chatting with me.
 - His name is Oliver.
+
+![Oliver](../../content/images/the-medic.jpg)
+
 - He's British, lives in Dubai, and has a Romanian mobile number.
 - He's with his wife and small boy. 
 - The wife is speaking Spanish to the boy.
