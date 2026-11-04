@@ -371,12 +371,12 @@ function googleTranslateElementInit() {
 ### Yvonne and Mike
 
 - Agents, everywhere.
-- There's a couple who sit on the beach with me every day.
+- There's a couple - apparently from Brisbane Australia - who sit on the beach with me every day.
 - One day, the woman pulls up her beach lounger and puts it right beside mine, as if we're in a double bed.
-- I see her do this - had I gone to the toilet and it was like this when I got back? - anyway, I go and lie down beside her and introduce myself.
+- I see her do this bizarre thing - had I gone to the toilet and it was like this when I got back? - anyway, I go and lie down beside her and introduce myself.
 - She calls herself Yvonne.
 - I tell her that this is very cosy indeed and she giggles.
-- It's all a bit too weird for me - I know they're agents - so I decide I'll go for lunch now.
+- It's all a bit too weird for me - I know they're agents - so I decide I'll go for lunch.
 - When I get back she's gone but she's left her lounger there. Her husband - Mike - is still there for a while then he leaves.
 - I don't see them for days.
 - Eventually, online in the way I communicate with them, I say, *oh yeah, what happened to Yvonne?*
