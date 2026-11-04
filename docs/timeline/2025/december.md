@@ -221,12 +221,12 @@ function googleTranslateElementInit() {
 
 - There's a family there from the North of England: parents and adult children, a boy and a girl, and a woman who is a family friend.
 - The dad is Indian, Sikh he tells me, and a builder. He seems to be working-class wealthy.
-- The son with the bleached hair seems to know me. He calls my by name, Katharine, as if we've met before and he knows me personally - like someone might do to a famous person perhaps.
-- The girl traveling with them lives in the South and commutes to London to manage a bag shop - it's a brand name, I'll remember.
-- I wonder if she was a surrogate.
+- The son with the bleached hair seems to know me. He calls my by name, Katharine, as if we've met before and he knows me personally - like someone might do to a famous person.
+- The young woman traveling with them lives in the South and commutes two hours to London every day to manage a bag shop - Michael Kors.
+- I wonder if she was a surrogate and if they do the implants in Lamai.
 - There's a French couple there too, at the hotel, VERY interested in me. They're quite old, probably in their late 70s.
 - He is desperate to talk to me; and then he's obviously warned off doing that because he ignores me from then on.
-- There were agents EVERYWHERE, for weeks, following me around wherever I went.
+- There were agents EVERYWHERE, for weeks, following me around wherever I went: a lot of American military minders, Germans, old-boyfriend lookalikes, a Russian, the obligatory Jewish family.
 - It only makes sense if they were selling my eggs, my children, to anyone who can pay, because I'm the most famous sedated rape-porn star ever known!
 - It's hideous!
 
