@@ -95,7 +95,8 @@ function googleTranslateElementInit() {
 - A British Sikh from Nuneaton (who I had initially thought was Muslim and still wonder because of the accent).
 - We got on but he was trying it on a bit and he was obviously a spy.
 - He kept telling me about how he's thinking about adopting a baby, but he doesn't think his wife will agree ! Hmmm, now, isn't it.
-- He was sharing with Henry.
+- Was he there to buy an egg once I'd been murdered by mercury poisoning? I wonder if one of the women on a trip was a surrogate. Tina was pretty chunky already and had links into Alaska.
+- Mani was sharing with Henry.
 - Henry introduced him as Gerald before anyone met him; he said Gerald had arrived already and was sleeping.
 - Mani and the Canadian became "available men" over the trip, and Jyotir made sure to tell me.
 - Yawn.
@@ -358,6 +359,13 @@ function googleTranslateElementInit() {
 - I put the extremely good mood of the place, of me, and of the staff around me who knew me as *Dr. Katharine* down to even the agents getting into the vibe, just a little, they couldn't help it.
 - One of the staff told me I was *shining*, and I expect I was.
 
+### Bring-and-buy egg sale
+
+- Like [Napasai, Fitkoh, and Lamai in December 2025](../2025/december.md#im-having-a-detrimental-effect-on-the-local-economy), the infestation of American spies at the Holiday Inn Nusa Dua can only mean one thing.
+- It was a bring-and-buy sale: bring your surrogate, buy your egg, and meet the mother.
+- I'm told one of my eggs costs $350K which means I'm spectacularly famous in sedated rape-porn and anyone buying my eggs intends to rape my children.
+- Clearly, these people were told not to worry about me finding out and, just like in the Dénia criminal-porn hellhole, everyone was 100% assured of my impending demise by murder.
+
 ### Yvonne and Mike
 
 - Agents, everywhere.
@@ -380,6 +388,8 @@ function googleTranslateElementInit() {
 - I tell Yvonne, as we're parting (I don't know why), *I'll see you here in ten years time*, and she looks downcast and sad, as if she doesn't believe that could possibly happen.
 - Did she know they intended to bump me off - or perhaps lobotomise me or something awful - at Loka Yoga?
 - Were these two there for the end-of-line egg sale? 
+- I think Yvonne was a surrogate, and tasked to get near to me.
+- Why do they think this is a good idea? Is it because they know there are solid connections between biological mothers to their children? Is it because children of surrogates stolen from their parents through sedated surgery or other tricks are desperately unhappy?
 
 ### Elon visits the hotel
 
@@ -404,6 +414,7 @@ function googleTranslateElementInit() {
 - The next morning I tell them all on Substack that I love them, but would they please stop fannying around.
 - At breakfast, some of them are giggling at me as I walk past.
 - Was Elon there to supply some bodily fluids for his latest rape-porn-themed trophy, and take the opportunity to mock me at the same time?
+- I think Elon was there to buy an egg, he'll probably admit it now.
 
 ### Getting me ready for next week
 
