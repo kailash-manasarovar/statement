@@ -92,15 +92,16 @@ function googleTranslateElementInit() {
 
 #### Mani
 
-- A British Sikh from Nuneaton (who I had initially thought was Muslim and still wonder because of the accent).
+- A British Sikh (like the man at Fitkoh who brought the surrogate) from Nuneaton - obviously a lie. Nuneaton was a joke I used to tell my dad in the car, so it was a comfort trigger *and* proof the Americans were listening to us continually.
 - We got on but he was trying it on a bit and he was obviously a spy.
-- He kept telling me about how he's thinking about adopting a baby, but he doesn't think his wife will agree ! Hmmm, now, isn't it.
-- Was he there to buy an egg once I'd been murdered by mercury poisoning? I wonder if one of the women on a trip was a surrogate. Tina was pretty chunky already and had links into Alaska.
+- He kept telling me about how he's thinking about adopting a baby, but he doesn't think his wife will agree!
+- Was he there to buy an egg once I'd been murdered by mercury poisoning?
+- I wonder if one of the women on a trip was a surrogate. Tina was pretty chunky already and had links into Alaska.
 - Mani was sharing with Henry.
 - Henry introduced him as Gerald before anyone met him; he said Gerald had arrived already and was sleeping.
-- Mani and the Canadian became "available men" over the trip, and Jyotir made sure to tell me.
+- Mani and Randy became "available men" over the trip, and Jyotir made sure to tell me.
 - Yawn.
-- Mani and Henry get really sick at the end of the trip.
+- Mani and Henry get really sick at the end of the trip and end up looking pretty sorry for themselves.
 
 #### The American and the Russian
 
