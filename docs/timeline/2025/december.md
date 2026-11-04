@@ -10,6 +10,24 @@ function googleTranslateElementInit() {
 
 ## Fitkoh
 
+### Snakes at Napasai
+
+- The first time I go to Fitkoh - just after the stich snaps in my groin - I was staying at a hotel called Napasai.
+- It's a short bike ride to Fitkoh, like 5 minutes.
+- I just remember being so utterly exhausted I could hardly get it up the hill, but I guess surgery in Bangkok and Napasai again maybe can explain that.
+- I was pushing myself because there was no explanation for it.
+- Anyway, as before, there are agents all over me at the hotel, many of them very Jewish looking.
+- I'm at the beach one day, and I see a snake, quite a big one coming down the tree into the sand.
+- I point to it and the beach man goes over - nice man, can't remember his name, I made a lot of hotel-staff friends over the last years, they're the only people who spoke semi-normally to me - and it bites him as he picks it up to leave it in the forest area.
+- At the same time, I see a baby snake coming down the tree after the big one, and for some reason I know it's going to be coming in my direction.
+- It does.
+- The Asian-American beside me at the beach is surprised I knew that; was he a surgeon or a buyer?
+- I think there were probably three surgeries: one at the Anantara, one at the Bangkok Residences, and one at Napasai too.
+- And I think they all went in via the same incision, weakening it every time, and causing me total and inexplicable exhaustion which was normal but I should have been told to bed rest, except they were sedating me to perform surgery.
+- And then I believe they reinjured the internal surgical-injury caused in Cauterets.
+- So not knowing what's going on I start Thai Boxing and I'm injured in the very first seconds.
+- Absolute b*&*&*tards.
+
 ### A stich pops open
 
 - I attend a Thai boxing course at Fitkoh.
@@ -22,19 +40,6 @@ function googleTranslateElementInit() {
 - It's a surgical stich popping open - I guess this incision was repeated a few times on the left side, probably through a weird wounded-area I have still today on my inner groin which didn't behave like a normal boil or spot.
 - I suspect this injury is why they started going in via the right side in 2026, although in January/February in Dorset, I believe they went in again on the left side because my left ovary ached.
 - It healed well by October 2026, except after serving at the baths - or being sedated and raped again on my last night in Lourdes by very angry man or men.
-
-### Bring-and-buy sale
-
-- There's a family there from the North of England: parents and adult children, a boy and a girl, and a woman who is a family friend.
-- The dad is Indian, Sikh he tells me, and a builder. He seems to be working-class wealthy.
-- The son with the bleached hair seems to know me. He calls my by name, Katharine, as if we've met before and he knows me personally - like someone might do to a famous person perhaps.
-- The girl traveling with them lives in the South and commutes to London to manage a bag shop - it's a brand name, I'll remember.
-- I wonder if she was a surrogate.
-- There's a French couple there too, at the hotel, VERY interested in me. They're quite old, probably in their late 70s.
-- He is desperate to talk to me; and then he's obviously warned off doing that because he ignores me from then on.
-- There were agents EVERYWHERE, for weeks, following me around wherever I went.
-- It only makes sense if they were selling my eggs, my children, to anyone who can pay, because I'm the most famous sedated rape-porn star ever known!
-- It's hideous!
 
 ### A man tests me for the effects of poisoning
 
@@ -64,24 +69,9 @@ function googleTranslateElementInit() {
 - Fake X accounts confirm it.
 - I forgot his name but he'll remember me.
 
-## Snakes at Napasai
+## Lamai
 
-- The first time I go to Fitkoh - just after the stich snaps in my groin - I was staying at a hotel called Napasai.
-- It's a short bike ride to Fitkoh, like 5 minutes.
-- I just remember being so utterly exhausted I could hardly get it up the hill, but I guess surgery in Bangkok can explain that.
-- I was pushing myself because there was no explanation for it.
-- Anyway, as before, there are agents all over me at the hotel, many of them very Jewish looking.
-- I'm at the beach one day, and I see a snake, quite a big one coming down the tree into the sand.
-- I point to it and the beach man goes over - nice man, can't remember his name, I made a lot of hotel-staff friends over the last years, they're the only people who spoke semi-normally to me - and it bites him as he picks it up to leave it in the forest area.
-- At the same time, I see a baby snake coming down the tree after the big one, and for some reason I know it's going to be coming in my direction.
-- It does.
-- The Asian-American beside me at the beach is surprised I knew that.
-- I think there were probably three surgeries: one at the Anantara, one at the Bangkok Residences, and one at Napasai too.
-- And I think they all went in via the same incision, weakening it every time, and causing me total and inexplicable exhaustion which was normal but I should have been told to bed rest, except they were sedating me to perform surgery.
-- So not knowing what's going on I start Thai Boxing and I'm injured in the very first seconds.
-- Absolute b*&*&*tards.
-
-## Thailand fasting and detox clarity
+### Thailand fasting and detox clarity
 
 - After Napasai, I go to Lamai to fast and detox as normal.
 - It's day seven of the fast and detox program.
@@ -129,7 +119,7 @@ function googleTranslateElementInit() {
     - Probably [the British girl](../2024/february.md#the-britishrussian-girl-at-the-conservatory) given we Brits seem to be the main source of feed for these animals; the feed that *no-one* will do anything to help.
     - Must have been really annoying for them, all that delay.
 
-## Someone dresses up as Gabriel Silva from Polygon
+### Someone dresses up as Gabriel Silva from Polygon
 
 - I'm relaxing by the beach a couple of days after arriving.
 - An American is standing at the posh hut nearest the beach talking to someone.
@@ -144,7 +134,7 @@ function googleTranslateElementInit() {
 - I see the man a few days later, and he looks *completely* different and appears to be with a bunch of other Americans and his accent is nothing at all like Gabriel's, but he is definitely the same size, shape, and hair-color, the way they do.
 - In September 2026, I'm glad to see evidence of how they were messing with my head back then about an ongoing investigation, and I also think Gabriel Silva is a CIA spy sent to Polygon knowing fully well what was intended for me in [Bali](../2024/may.md#bali).
 
-## Someone tells me to pack and puts a date and time in my Google calendar
+### Someone tells me to pack and puts a date and time in my Google calendar
 
 - I'm at the restaurant. 
 - A couple sits beside me talking loudly about how they had to do something related to leaving suddenly...
@@ -161,7 +151,7 @@ function googleTranslateElementInit() {
 - Just before they did this, on the run up to it, I see messages, posts, and adverts about a intense 30 day AI course I'm going to be beginning.. the implication is once I've been rescued I'll be learning AI intensely.
 - After the date debacle, these references stop completely.
 
-## The cockney geezer with the emotionless young women
+### The cockney geezer with the emotionless young women
 
 - A cockney geezer is hanging out on Lamai beach every day.
 - He's about 60, black hair probably dyed, geezer.
@@ -174,7 +164,7 @@ function googleTranslateElementInit() {
 - I think: *twenty-five*.
 - Someone flashes a name for him up on X later on after I post this section but I don't remember it.
 
-## I'm having a detrimental effect on the local economy
+### I'm having a detrimental effect on the local economy
 
 - I seem to be under house arrest of some sort.
 - When I go to have a massage at the pier near the resort, a very serious looking older Thai couple walk past me and the woman says, *you should stay at home*, as she passes me.
@@ -213,3 +203,32 @@ function googleTranslateElementInit() {
 
 - Amazing.
 - [Dennis Moore](../2026/september.md#two-announcements) may have topped it.
+
+## Back to Fitkoh
+
+- I return to Fitkoh after Lamai to see if my fitness levels have improved and maybe the groin injury has healed.
+- It hasn't. At all. I can't run a step without it feeling like something is going to go seriously wrong in my left hip and groin area.
+- I swap over from the Thai Boxing to general fitness and meet some interesting people (spies).
+
+### The UN woman
+
+- wip
+
+### Bring-and-buy sale
+
+- There's a family there from the North of England: parents and adult children, a boy and a girl, and a woman who is a family friend.
+- The dad is Indian, Sikh he tells me, and a builder. He seems to be working-class wealthy.
+- The son with the bleached hair seems to know me. He calls my by name, Katharine, as if we've met before and he knows me personally - like someone might do to a famous person perhaps.
+- The girl traveling with them lives in the South and commutes to London to manage a bag shop - it's a brand name, I'll remember.
+- I wonder if she was a surrogate.
+- There's a French couple there too, at the hotel, VERY interested in me. They're quite old, probably in their late 70s.
+- He is desperate to talk to me; and then he's obviously warned off doing that because he ignores me from then on.
+- There were agents EVERYWHERE, for weeks, following me around wherever I went.
+- It only makes sense if they were selling my eggs, my children, to anyone who can pay, because I'm the most famous sedated rape-porn star ever known!
+- It's hideous!
+
+### The gay couple
+
+- The UN woman was keen I sat with the gay couple.
+- Were they egg-buyers?
+- Was she a surrogate? She was chunky.
