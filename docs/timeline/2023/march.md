@@ -95,7 +95,7 @@ function googleTranslateElementInit() {
 
 - It seems likely the CIA had a big problem with Antonio early on - he may have recordings of the American Lockerbie bombers discussing the delay of Flight 103 - and the CIA may have murdered his daughter to keep him quiet about it.
 - Criminal gangs have been aware of who was behind the Lockerbie bombing for a very long time and there are suggestions that, specifically Liverpudlian for some reason, criminals have been paid off in the region of 300K for their silence about it and other matters related to it.
-- This is how Auggie was aware of my impending wealth; he was told about me and others by his CIA friends (possibly even via [the Liverpudlian gangster I mentioned](timeline/2001-to-2010/2001.md#what-i-didnt-know-at-that-moment-was) who was in prison in Amsterdam - Curtis Warren) way back in 1998/1999 - they couldn't jail him in the UK obviously.
+- This is how Auggie was aware of my impending wealth; he was told about me and others by his CIA friends (possibly even via [the Liverpudlian gangster I mentioned](../2001-to-2010/2001.md#what-i-didnt-know-at-that-moment-was) who was in prison in Amsterdam - Curtis Warren) way back in 1998/1999 - they couldn't jail him in the UK obviously.
 - He never once suspected the CIA murdered Diana - some lies are even *that* big - but some did, especially Antonio who may also have some hacking evidence towards it or perhaps he was just suspicious that they would have tasked the Cano Lopez's with such an "important" (for them) crime. It didn't make sense.
 - And then, after the unexpected and massive reaction from the public, and then everyone heard how they didn't get paid, he knew.
 - It's curious that the police phoned my mum up about her white Fiat Uno in regards to the investigation - early hints maybe?
@@ -108,7 +108,7 @@ function googleTranslateElementInit() {
 - Did they order Winston May and his rape-gang to target me via friends and then get it shut it down a month or so later?
 - Who are the 144K, and have we all reincarnated from the Ramayana to build that bridge to Lanka again?
 
-![Ram kills Ravana](content/christmas-new-year-ebook-additions/ram-kills-ravana.png)
+![Ram kills Ravana](../../content/christmas-new-year-ebook-additions/ram-kills-ravana.png)
 
 - And is the fact that Geetha, Arul, Paul, Matthew, Roseanne, Romany, and Chris Ludwick and all his rapist-brothers (you can sue me) are all Sri Lankan just a coincidence?
 

@@ -263,7 +263,7 @@ function googleTranslateElementInit() {
 
 ### New information on this poisoning event
 
-- This means that [rhabdo on 28th January 2023 in class](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) - incidentally Sarah Smith's and Paul Pompeus's birthday - was probably a murder-dose, which I survived, and they may have extracted eggs immediately.
+- This means that [rhabdo on 28th January 2023 in class](#serious-poisoning-at-chamber-music-class) - incidentally Sarah Smith's and Paul Pompeus's birthday - was probably a murder-dose, which I survived, and they may have extracted eggs immediately.
 - The CIA will have requested the police in Dénia to close the roads the following weekend (via a "make sure nothing happens to her" order or similar, which had a concomitant "rape her as much as you like and in as many criminal ways as you like"). 
 - The doctor who was taking classes with the trumpet teacher is likely the surgeon tasked with egg-extraction at that time - as well as being tasked with amputating the legs, arms, and things of that nature that murder-porn victims kidnapped by the Lopez Cano's have been suffering - no one able to do anything about it because of the CIA ownership of the criminals in Dénia.
 - Perhaps their evil suited segments of powerful CIA representatives with vile tastes in pornography - did they order it too?
