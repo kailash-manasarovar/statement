@@ -89,6 +89,20 @@ function googleTranslateElementInit() {
 - The Cano Lopez family appears to be made up of a nest of poisoning vipers that can do whatever they like to innocents in the Marina Alta region.
 - And I heard they were partnering up with another family, the Toledo's, to wreak switcheroo and child-porn havoc nationally with the support of the government school board in its entirety.
 
+### How the Americans control the Lopez-Cano's
+
+- It's obvious that Domingo Lopez Cano and maybe Paqui Fornet too were given instructions on the intense stalking activities and psychological torture at the conservatory:
+    - How to arrange the classrooms (e.g. Alfonso putting the chairs in a circle one time, after a session at my house, on instruction).
+    - What "playbook" to use - CIA processes I discovered through personal experience.
+    - What "words/memes" to use.
+    - Etc.
+- These were things designed to upset, destabilize, weaken (at a minimum and while drugged) that I had noticed were "exactly the same" process, often content too, at Loka Yoga in Bali - like they were operating from the same official manual.
+- So, it will be *very interesting* to find out who was directing Domingo (and maybe Paqui too) and whether their instructions were coming directly from a similar live "production suite" wired up to spy-cams and audio in the music school and my house, just as was the case in Bali.
+- It seems highly likely given the nature of the timed sequences at the school and throughout the town, that there was a "director" overseeing everything and giving instructions at any moment, which makes one wonder if the CIA uses the town as their own personal sick playground given it's unique status in the world of a place where literally no-one has any rights at all.
+- It's easy to point to a monster and say "you dun it"... but there's always someone pulling his strings too.
+- I wonder how free to do whatever they like the Lopez Cano's really are, or - apart from foolish things like jumping up and down outside Buckingham Palace years ago - whether everything they do is on instruction too, they're just one step down from the big bosses, as it were... and whether over the years the town has evolved into a complex CIA criminal (Bali-esque) playground supplying Epstein and co, and a million other evil things the public need to know about and QUICK!
+- Lord of the Flies, but with perverted murderous unseen bosses.
+
 ## Accomplices
 
 ### Paqui Fornet Pastor

@@ -15,7 +15,7 @@ function googleTranslateElementInit() {
 
 ### The Cure
 
-### Poisoning and sedated surgery, again
+#### Poisoning and sedated surgery, again
 
 - For sure, they accessed my belongings in my car parked in Toulouse and added some poisons in there, I think I wrote about that in September.
 - Looking back, I was a bit high still there so they were still affecting my thinking processes.
@@ -24,6 +24,32 @@ function googleTranslateElementInit() {
 - I did that another couple of times too.
 - I had a weakness in my left armpit breast side, and my breasts became very large - this is a symptom of CO2 gas to the chest cavity.
 - I guess they film everything and we'll find out.
+- It was very stressful though and I ended up opening all the curtains before bed so that everyone across the road could see what was going on and film it.
+
+#### Stefan is filming me
+
+- My first morning of soins, I have the hose.
+- Stefan one of the staff at the cure is doing this.
+- He is wearing his phone around his neck and I realize later he's probably filming me.
+- The hose goes on the left breast area and whatever they were doing to me while I was sedated in the apartment snaps.
+- I'm injured, again.
+- I can hardly pull myself out of the bed for the pain.
+- It last about a week intensely.
+
+#### He sends rainbows
+
+- One morning after all this, he sends a rainbow to reassure me.
+
+![He sends rainbows](../../content/images/he-sends-rainbows.jpg)
+
+- The amount of rainbows he sent on 13th June 2023... they were ALL OVER the town of Dénia and Las Marinas.
+- Then again when Nadim was bullying me like crazy at Polygon in November 2023, he got fired - or they called it off rather cos they saw I was onto him - and the rainbow came.
+- And then I started to remember other significant rainbows.
+- One was when I returned home from Madrid in I think July 2006, and I was devastated (I think there must have been a massively brutal attack on me fairly recently at my flat in Boadilla, or perhaps somewhere to do with my Hot English job, or perhaps in a hotel along my route up through France), there was a rainbow as I came into Dover on the ferry.
+- The following morning I chain-smoked about twenty cigarettes at the kitchen table while sat with my mum. I haven't done it before or since. I thought it was because of her. It wasn't at all, was it.
+- I was at Chartres the night before and there was a man I felt exposed to somehow in the restaurant.
+- I bet it happened all the time, to my mother too in Saint-Malo, I heard, when she was with my dad on holiday.
+- My dad had been going there since he was a young man. I think he set my aunt Bernadette up who was sexually assaulted/raped on a trip to France when she was 16 and never recovered from the trauma.
 
 ## Lourdes
 

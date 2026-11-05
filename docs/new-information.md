@@ -38,61 +38,9 @@
 
 ![Ram kills Ravana](content/christmas-new-year-ebook-additions/ram-kills-ravana.png)
 
-- And is the fact that Geetha, Arul, Paul, Matthew, Roseanne, and Chris Ludwick are all Sri Lankan just a coincidence?
+- And is the fact that Geetha, Arul, Paul, Matthew, Roseanne, Romany, and Chris Ludwick and all his rapist-brothers (you can sue me) are all Sri Lankan just a coincidence?
 
-## Who was directing Domingo?
 
-- It's obvious that Domingo Lopez Cano and maybe Paqui Fornet too were giving instructions on the intense stalking activities and psychological torture at the conservatory:
-    - How to arrange the classrooms (e.g. Alfonso putting the chairs in a circle one time, after a session at my house, on instruction).
-    - What "playlist" to use.
-    - What "words/memes" to use.
-    - Etc.
-- These were things designed to upset, destabilize, weaken (at a minimum and while drugged) that I had noticed were "exactly the same" process, often content too, at Loka Yoga in Bali - like they were operating from the same official manual.
-- So, it will be *very interesting* to find out who was directing Domingo (and maybe Paqui too) and whether their instructions were coming directly from a similar live "production suite" wired up to spy-cams and audio in the music school and my house, just as was the case in Bali.
-- It seems highly likely given the nature of the timed sequences at the school and throughout the town, that there was a "director" overseeing everything and giving instructions at any moment, which makes one wonder if the CIA uses the town as their own personal sick playground given it's unique status in the world of a place where literally no-one has any rights at all.
-- It's easy to point to a monster and say "you dun it"... but there's always someone pulling his strings too.
-- I wonder how free to do whatever they like the Lopez Cano's really are, or - apart from foolish things like jumping up and down outside Buckingham Palace years ago - whether everything they do is on instruction too, they're just one step down from the big bosses, as it were... and whether over the years the town has evolved into a complex CIA criminal (Bali-esque) playground supplying Epstein and co, and a million other evil things the public need to know about and QUICK!
-- Lord of the Flies, but with perverted murderous unseen bosses.
 
-## Sam Meadows
 
-- He will tell the truth, and he knew in 1995, because everyone knew.
-- We were an "item" for a short while, and we really connected well, and then someone must have told him about my rape-porn stardom, and he dropped me, utterly. It was horrible.
-- He tried to be kind about it, but he wouldn't tell me the truth either.
-- For Christmas 1995 he bought me a book about a man who was in a coma for a long time, and memories, and things like that, very interesting.
-- He also made me read a book, Perfume, even more interesting.
-- The whole thing upset him. He won't lie.
-
-### Even more interesting than that is...
-
-- I was warned off him, online, by hackers.
-- How do I know, I was living in Lourdes in 2021, feeling really isolated, thinking about the past, and I tried to find him, again and again and again.
-- I'd contacted another old boyfriend Ben Webber just before about Winston May saying some horrible things to him on the phone - but he didn't want to talk about it.
-- So I was trying to find Sam, I looked a lot, over a few years actually, and eventually - after a hundred goes at searching for him in a million different ways in Lourdes - they popped him up on LinkedIn, working as a toilet cleaner!
-- Hmmmm. Interesting, don't you think.
-- He won't lie for them.
-- He may well be a toilet cleaner too, nothing wrong with that. But it would be so interesting if he wasn't, don't you think.
-- He was a potential outlier, someone who knew everything, knew Matthew and what he was capable of, and who knew what had happened to me... someone who might pull me off being lured back to Denia by the Americans, and brain damage, and sedated rape-porn stardom, and all the rest of it.
-- His brother Joshua will also not lie. And can verify my brother's unfortunate evil nature too.
-
-## The ramifications of Sullivan
-
-- A "little knowledge" is not dangerous except to the ego.
-- Sullivan would have been enough here, after my dad going on about him - and my dad goes on and on about things - right after the funeral in Januay 1989...
-- That would have been enough to get us all targeted for "silencing", wouldn't it, except Geets made 2 errors.
-- First, she didn't realize they'd target all of us (me the worst), all the white girls - at least three of her close friends - and second, she didn't count on my dad's connections to porn (did he see me immediately in porn?, hence the snickering whenever I came home) cos something spooked her probably in.. hmm not sure maybe the winter of 1990 and she and her uncle created this whole "drama" of where she had been targeted and robbed .. and she was very keen I knew about it (the woman couldn't talk to me without insulting me, and suddenly they're sitting me down, telling me this whole business, carefully, making sure I hear it, all the details, bringing me along for the fix, to her uncles house, and I always thought, why are they telling me all this, they haven't spoken to me like I'm human in months - severe PTSD time) well, it makes sense now, as does her shaking at the GE.
-- So it was all such a mess, and getting messier and messier, they thought up something even more evil to distract everyone from it but more importantly to threaten the country in perpetuity over it... silly woman, what was she thinking.
-- Moses put the cat amongst the pigeons, didn't he.
-
-## Hillsborough
-
-- After Sullivan.
-
-## He sends rainbows
-
-- See email.
-
-## Jen from the Almeida
-
-- todo in Paul section
 

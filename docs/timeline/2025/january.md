@@ -244,6 +244,32 @@ function googleTranslateElementInit() {
 - Interesting.
 - I guess the sedating-porn sort of evil-doing has disastrous outcomes too, for all, particularly those making a lot of money from their sedated and raped friends, one prays for FULL and complete justice so that the world might know what men are really like (not that we don't already know very well).
 
+#### Sedating-and-raping
+
+- It turns out Paul was very much involved with the mass rape efforts back in the 90s.
+- He conspired with Brian, my boyfriend at the time.
+- We lived together in Hastings and Brian's small children came to stay with us every week!
+- Paul knows everything.
+- He may have participated in the [party rape back in 1991](../pre-2001/1991.md#a-party-in-hornsey). That is where I met him.
+- He pretended to be my friend - it's what they do to all of us - while secretly conspiring to rape us without us ever knowing.
+- When I think about men doing this, I'm overwhelmed and gobsmacked by the levels of cowardice this involves.
+- Anyway, he let slip even back then the way they do, tell-tale tics, although I only noticed these last years.
+
+#### Jen at the Almeida
+
+- We had a common friend, Jen.
+- I worked with her at the Almeida theatre front of house in 1998.
+- We were at a party one weekend, probably 1992-1993 sometime.
+- Jen was there.
+- At some point I saw Jen sitting down and she was clearly having a panic attack - I didn't know what this was at the time.
+- She was twitching. Her eyes were twitching wildly. It was very disturbing.
+- I was with Paul and I asked him what was wrong with her.
+- He said: *Oh, Jen was raped on the palace a year ago, and when the man had finished, another one came and did it again*.
+- The palace in Alexandra Palace; I assumed he meant she was walking there.
+- Of course, any mention of rape to an unhealed rape-survivor sends us into a spin so I had nothing more to say about this because I felt the terror rising myself.
+- I think Paul knew very well that he could say these things to women about other women, knowing we would not talk to each other about it because it was so painful.
+- I think Jen had just been sedated-and-gang-raped at this party also in Hornsey or nearby; just like I had at the [other party in Hornsey](../pre-2001/1991.md#a-party-in-hornsey) I wrote about before.
+
 ## Ritzy
 
 - I call Paul from Thailand the night before I fly back to Spain to arrange to meet him at Madrid airport.
