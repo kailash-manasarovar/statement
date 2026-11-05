@@ -260,3 +260,12 @@ function googleTranslateElementInit() {
 - Was it that, along with everything else, men in Dénia had started making women and girls pregnant - with the help of online manipulation - so that they could earn thousands on the baby and pedo porn they discovered could make them into millionaires?
 - Or is it something even more horrible, if there could be anything more horrible.
 - Do the global tech porn-addict elite know they're funding the baby rape capital of the world? I guess they do, and I guess it must make them feel triumphant.
+
+### New information on this poisoning event
+
+- This means that [rhabdo on 28th January 2023 in class](timeline/2023/january.md#serious-poisoning-at-chamber-music-class) - incidentally Sarah Smith's and Paul Pompeus's birthday - was probably a murder-dose, which I survived, and they may have extracted eggs immediately.
+- The CIA will have requested the police in Dénia to close the roads the following weekend (via a "make sure nothing happens to her" order or similar, which had a concomitant "rape her as much as you like and in as many criminal ways as you like"). 
+- The doctor who was taking classes with the trumpet teacher is likely the surgeon tasked with egg-extraction at that time - as well as being tasked with amputating the legs, arms, and things of that nature that murder-porn victims kidnapped by the Lopez Cano's have been suffering - no one able to do anything about it because of the CIA ownership of the criminals in Dénia.
+- Perhaps their evil suited segments of powerful CIA representatives with vile tastes in pornography - did they order it too?
+- Perhaps they left their surgical interest there initially to avoid raising suspicions amongst the gypsy community - but some will have known, Antonio for sure - or it's not out of the question that I might have hundreds of children!
+

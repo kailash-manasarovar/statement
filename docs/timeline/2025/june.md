@@ -27,6 +27,10 @@ function googleTranslateElementInit() {
 - God told me he'd put the wipes back, and where they were too.
 - Extraordinary business.
 
+#### Egg extraction obviously
+
+- Events like the fasting retreat in June 2025 - ram packed with agents and intuitive industry specialists - also probably set up surgeries (my room mates were extraordinarily weird and unpleasant, and they had made the bunk bed I wanted to sleep in very itchy so I ended up having to sleep in the middle of the room where I didn't want to sleep - she was probably a surgeon).
+
 ### Murdered by the gypsies in Madrid
 
 - A therapist on the retreat is someone I know from the US trauma world.

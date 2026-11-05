@@ -57,3 +57,8 @@ function googleTranslateElementInit() {
 - I wonder if that was one of the clips my French friend had seen?
 - Did he know about the mass pedophilia and baby-rape industry down there?
 - I bet if he had've known about that, Ugly's friend might not have made it out of Lourdes so intact so easily.
+
+## Online TT courses
+
+- Transforming Touch courses I was undertaking at the time where Steve would talk about "a client" which sounded like my doppelganger (but I never suspected - all on film of course) mean Steve and co. were wholly aware about what was happening to me, for years, and didn't care. Their weird non-reactions to my personal horror further proof of that - were they involved in making those murderous and sex-offending decisions too?
+

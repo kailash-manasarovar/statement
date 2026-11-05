@@ -30,6 +30,12 @@ function googleTranslateElementInit() {
 - What was the purpose of it all; it was really getting silly by then, but I was so high my head was swimming.
 - Oh, that was it. Keep me from thinking straight and seeing the obvious.
 
+#### The toddler they were passing around
+
+- All this means that surgeries began much earlier than I expected, and the baby the CIA were passing around at the thermal baths in Cauterets in August 2025 - after surviving poisoning by digitalis and while eggs were being extracted while I was sedated at my holiday apartment - was mine.
+- The small child reached for me - I thought they were trying to see if I'd raise the alarm about the safety of a toddler who looked like she was all alone amongst a crowd of adult men and a few women, it wasn't clear who her parents were.
+- I knew it was spy activity - of course, it's not possible to guess at the true nature of their evildoing - so I did not raise the alarm. It will all be on CCTV, and double-agent footage.
+
 ### Jitendra Das lookalike at the thermal baths
 
 - Yup, they even did this!
