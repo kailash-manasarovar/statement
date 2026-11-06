@@ -24,8 +24,9 @@ function googleTranslateElementInit() {
 
 - He was very keen for me to know this, shared his website, etc.
 - I wonder who he really was telling this to.
-- Does it mean he knows madam, Eddie, my dad, and Ray Archer personally from the rape-house in Queen's Avenue?
+- Does it mean he knows madam, Eddie, my dad, Kevin Joice, and Ray Archer personally from the rape-house in Queen's Avenue?
 - Or is there some kind of internal secret service war going on between the perverts who are producing pre-birth porn and the relatively sane spies?
+- I never met Kevin, wouldn't know what he looked like. My dad always said he had met me, emphasizing even. Of course I wouldn't dream of him meaning that the man had raped me while I was unconscious or that my father would even SAY something like that to me knowing that it had happened. Or Eddie for that matter. I only know madam from the hairdressers.
 
 ### Andrew wants to keep the porn
 
