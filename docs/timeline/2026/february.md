@@ -145,6 +145,16 @@ function googleTranslateElementInit() {
 - Another American distraction?
 - If so, it's very ironic given we now know they instigated the rape-gang phenomena in the UK.
 
+### I throw the key away in Nevers
+
+- For some reason, I walk off with the key to the annex house where I was staying (there's multiple doors to the building so it was just for show really).
+- I realize in Nevers, I still have the key.
+- I'm looking at it, in my hand, and I get an overwhelming urge (yes, one of those) to throw it out of the window. Which I do eventually because the urge is so strong. It's a God urge.
+- I tell Andrew I did this when I'm in Milan.
+- It's so curious. I have to wonder about this.
+- And I do wonder if it means they threw out the surgical implements and some nice kind person picked them up for safe keeping, and it wouldn't surprise me God's so much on my side and always has been and always will be!
+- <3
+
 ## What, wait, another (fake) collapsible bridge again?
 
 - Ask me the questions, bridge-keeper. I am not afraid.
