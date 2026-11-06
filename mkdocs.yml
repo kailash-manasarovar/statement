@@ -24,7 +24,7 @@ theme:
         icon: material/eye-outline
         name: Switch to light mode
   language: en
-  favicon: content/images/favicon.png
+  favicon: content/images/favicon.ico
   logo: content/images/logo.png
   features:
     - search.suggest
