@@ -137,3 +137,17 @@ function googleTranslateElementInit() {
 - I wore these boots all the time last year when I was in London, and I didn't notice.
 - This means I must have been on quite heavy painkillers for most of last year - which makes a lot of sense given the repeated sedated surgeries.
 
+#### The other thing about boots is..
+
+- I bought two pairs.
+- The other pair wouldn't go on over my massive calves hardly, I thought there was something wrong with them, or I had bought boots for very skinny, like stick legs.
+- They're fine now; tight over big socks but they go on no problem.
+- I didn't have the energy to think about it further last year.
+- It seems swollen calves can relate to repeated surgeries and perhaps repeated periods of sedation/unconsciousness, and perhaps repeated CO2 insertion.
+- I went for a scan for this in 2016 when I noticed it badly after getting back from Burma; which is interesting (were those two at my hotel where I got sick surgeon-spies?).
+- The NHS mucked up all my appointments for a scan!! Interesting!
+- The private appointment I ended up going for was also unhelpful.
+- Both interesting.
+- I was warned about this when I put trousers on that had always fit me well, in December 2016 when I got back from Burma, and one calf would only squeeze in tightly.
+- I went to the GP, Dr Singh about this, and she measured them and confirmed it and ordered a scan which never happened.
+
