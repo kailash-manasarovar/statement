@@ -150,4 +150,5 @@ function googleTranslateElementInit() {
 - Both interesting.
 - I was warned about this when I put trousers on that had always fit me well, in December 2016 when I got back from Burma, and one calf would only squeeze in tightly.
 - I went to the GP, Dr Singh about this, and she measured them and confirmed it and ordered a scan which never happened.
+- I wonder if this explains the keyhole scar in the back of my thigh... were they checking for DVTs?
 
