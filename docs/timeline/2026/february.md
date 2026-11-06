@@ -12,6 +12,7 @@ function googleTranslateElementInit() {
 
 ### Andrew
 
+- Was his wife called Sarah?
 - He looks like King Charles and I'm getting masses of King Charles triggers the whole time I stay with them.
 - Again, I only have warm feelings about the king.
 - Again, I booked the place about three weeks in advance so they have had time to set up.
@@ -22,9 +23,9 @@ function googleTranslateElementInit() {
 ### Andrew is a photographer from Muswell Hill
 
 - He was very keen for me to know this, shared his website, etc.
-- I wonder who he really was telling this.
+- I wonder who he really was telling this to.
 - Does it mean he knows madam, Eddie, my dad, and Ray Archer personally from the rape-house in Queen's Avenue?
-- Or is there some kind of internal secret service war going on between the perverts who are producing pre-birth porn and the relatively sane?
+- Or is there some kind of internal secret service war going on between the perverts who are producing pre-birth porn and the relatively sane spies?
 
 ### Andrew wants to keep the porn
 
