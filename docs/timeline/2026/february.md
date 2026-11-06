@@ -8,23 +8,101 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## Threats with close proximity, however, continue
+## Dorset continued...
 
-- I have everything I own in my car.
+### Andrew
+
+- He looks like King Charles and I'm getting masses of King Charles triggers the whole time I stay with them.
+- Again, I only have warm feelings about the king.
+- Again, I booked the place about three weeks in advance so they have had time to set up.
+- They REALLY set up.
+- Pictures, bathroom decoration, helicopter landing field, a fashion dummy male swimmer with black shorts head in the ground outside that looks like the `@jctot19` man, ... relentless.
+- I don't know what to make of it because I don't know the truth yet about the Americans, but I'm very clear it is ALL FOR ME!
+
+### Bridge
+
+- Constant triggers about the bridge, and how I'm going to be rescued.
+- Andrew is out in the helicopter field checking the ground every day.
+- We're conveniently located next to RAF Yeovil so there are helicopters flying over constantly.
+- I'm hopeful.
+- No-one comes to rescue me.
+- It's mental and I cannot understand what's going on at all.
+
+### The room under my bedroom
+
+- They have some contraption set up in here right below where I sleep.
+- The doors have no locks and people can exit and enter anywhere they like with no problem.
+- I'm starting to feel and remember these sedated surgery events to a tiny extent.
+- I come away from this place believing they have medically scanned me because I survive poisoning and that makes me special.
+- It's not this, they stole eggs to make babies.
+- They may have indeed scanned me first - I guess they do that to check for viable eggs.
+
+### My left ovary aches
+
+- I'm reminded of Antonio all the time with the decorations, the pictures, and with the man upside down in the ground, I think they want me to believe he's dead.
+- One morning, my left ovary is really aching.
+- I tweet about it saying; *even just the thought of him makes my ovary's twitch*.
+- You see, I've been sure we will have children for a long time, and the Bible confirmed it.
+- I could not imagine they would have been stolen from me; it's just, not even a horror writer like myself could think something so despicable up!
+- A big shock in Jerusalem was coming; thank God I was there with the Holy One, I would never have survived it otherwise.
+
+### The persistent widow
+
+- I'm prompted with this parable of Jesus, which is like a precis of my life these last years.
+- It's reassuring.
+- I realize the "widow" from this parable, refers to the "widowhood" mentioned in Isaiah 54, which is clearly also me.
+- But I thought the children mentioned by Isaiah would be coming from me, in a normal way (apart from the age), because God has no limits, and that's why I think I could be pregnant now even though tests say I'm not!
+- So just leave me alone please. It's enough.
+
+### Andrew talks about sexual trauma
+
+- I like Andrew.
+- His wife seems not to like me.
+- It is interesting actually. Quite often, the women are really sort of huffy and moody with me while the men are quite upbeat. I noticed this at the bring-and-buy sale in Bali too.
+- Do you think it's because the women know what's going on, disagree, and can't do anything about it? Or have they lied to them about me with the trans thing or some other nonsense like they do in Lourdes?
+- He wants to know about an old friend who went camping one summer as a young man and all of a sudden started to say aliens had landed and were controlling him in his head.
+- I said if someone had come in and raped him violently, his mind might have only been able to deal with it by creating a story like this.
+- Andrew was referring to so many things here:
+  - The CIA in my head since 1989.
+  - My PTSD reaction to severe sexual trauma in 1989.
+  - How other people might react to sedated egg-extraction surgery - and I wonder if Brittany and other broken-and-robbed-vamosos are good examples of how the mind copes with what the "body" always knows, that one's very life-force has been ripped away.
+- I wonder if "The Body Keeps The Score" author was targeted because he knows we always know. Did he know more?
+
+### Israel everywhere
+
+- They're pretending they're connected to Israel... I guess this was the first really obvious example of this and Loka Yoga was the most intense and extreme.
+- I think Antonio is in Israel still, remember, so they talk about that a lot as if it's true.
+- They also set up accounts pretending to be him and they give themselves away badly here because they always make him extraordinarily ignorant in tone, in a manner in which I know he could never be.
+
+### CIA intuitive
+
+- Someone pretending to be Israel online says I'm a CIA intuitive.
+- I agree, yes I am, fatuously.
+- Then say I'm not.
+- I start thinking about this though, and it becomes a kind of reasoning to everything that's been happening and I talk about it repeatedly before I understand the truth which does contain a bit of this but A WHOLE LOT MORE evil.
+- I think this was a way to explain things to me before they murdered me without revealing the horrible truth.
+- Well God told me you miserable *********s (that's a word so insulting, it doesn't even exist yet).
+
+### Threats online
+
+- Threats with close proximity, however, continue.
+- I have everything I own in my car. I packed the morning I left for Dorset.
+- Their manor house is in the middle of nowhere and I didn't stop.
 - In the boot, I have a fold up yoga chair and on top of that I put my Ikea pillow.
-- While in Dorset, a way too close-proximity threatening fake account pops up.
+- While in Dorset, before I've gone anywhere, a way too close-proximity threatening fake account pops up.
 
 ![Pillow chair](../../content/images/pillow-chair.png)
 
+- This comes directly from Andrew and co at the house - I guess a lot of people turned up once I was sedated after going to bed.
 - My guess is that agents in the business a long time will recognize this sort of thing immediately, and likely confirm that whoever is stalking me relentlessly - clearly those who have the power to get nearly everyone in the world to do what they say - their intention for me is inevitably murder.
-- I leave the UK on the understanding that I have zero human rights in the country.
+- I leave the UK on the understanding that I have zero human rights in the UK.
 - On my drive to the boat at Portsmouth, I'm chased by fast sports cars with "significant" registrations down the M3.
 
 ### Dolphin
 
-- I think there's a couple of likelies on the boat too.
+- I think there's a couple of criminal notables on the boat too.
 - I'm sitting behind them at lunch.
-- I'm sad and depressed.
+- I'm sad and depressed. Actually really depressed.
 - It's really difficult being a non-human with no rights but everyone seems to want *something* from you but won't tell you what it is and never offer a helping hand in return.
 - It's getting overwhelming.
 - I'm going into a poor-me.
@@ -36,6 +114,30 @@ function googleTranslateElementInit() {
 - My words are all I have left (who could imagine they'd even take my eggs!) so I'd better make them good.
 - The man from earlier is sitting a little away from me, staring at me. He seems amazed.
 
+### Prep for surgery
+
+- I think I wore my nice grey winter boots a fair bit during this trip.
+- I didn't notice the right boot was a size and a half smaller than the left.
+- I must have been on some heavy painkilling medication and pre-op stuff I suppose, as well as the after effects of anaesthesia and internal surgery.
+
+### Distraction from surgery
+
+- They know money can be a weak point for me - I've stopped caring about even that now!
+- They set up a situation which will bother me a lot to explain to me how I'm feeling.
+- The tax office in Denia takes 6000 euros from my Spanish bank account spuriously.
+- I believe this is on instruction from the Americans.
+- In November, they try to take another 2000 euros but there is only 31 cents in the account.
+
+### A BBC reporter from Panorama wants to speak to me
+
+- Another distraction I'm sure.
+- She's doing a program on the rape-gang phenomena.
+- I have 2 minutes to tell her as much as I can about what's going on for me; I hardly take a breath.
+- I start with: *this is the scoop of the millennia*, she laughs, and I say *no, really, it is*, and do my best to get my point over making sure to mention I have no human rights in the UK and I am seeking asylum in Israel where I'm safe.
+- I never hear from her again.
+- Another American distraction?
+- If so, it's very ironic given we now know they instigated the rape-gang phenomena in the UK.
+
 ## What, wait, another (fake) collapsible bridge again?
 
 - Ask me the questions, bridge-keeper. I am not afraid.
@@ -46,6 +148,8 @@ function googleTranslateElementInit() {
 - Golf.
 - It's the wrong sketch. It's a full body scan.
 - Aaaaaaaahhhhhhhhhhhhh.
+- The fact that Monty Python is a Great Ray supporting Merry England amazes me.
+- There must have been so many quadrillions of prayers gone up.
 
 ## Shenten in Blou
 
