@@ -132,7 +132,8 @@ function googleTranslateElementInit() {
 ### Prep for surgery
 
 - I think I wore my nice grey winter boots a fair bit during this trip.
-- I didn't notice the right boot was a size and a half smaller than the left.
+- I drove down in them, a good three hour drive, and I drove away in them too and wore them all day on the boat.
+- I didn't notice the right boot was a size and a half smaller than the left until October 2026 when I wore them again and they were crippling, in fact.
 - I must have been on some heavy painkilling medication and pre-op stuff I suppose, as well as the after effects of anaesthesia and internal surgery.
 
 ### Distraction from surgery
@@ -152,6 +153,14 @@ function googleTranslateElementInit() {
 - I never hear from her again.
 - Another American distraction?
 - If so, it's very ironic given we now know they instigated the rape-gang phenomena in the UK.
+
+### The rainbow
+
+- I guess this must have been after successful surgery, because God sent a rainbow.
+- It covered the house like a picture postcard.
+- Andrew took a photo of it and sent it to me on WhatsApp.
+- It was extraordinary.
+- I take it to mean, now I know what they were doing, that God is on my side even when I'm sedated, robbed of my children, and high on painkillers, and he's going to sort them all out very shortly.
 
 ### I throw the key away in Nevers
 
