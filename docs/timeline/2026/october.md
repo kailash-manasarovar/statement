@@ -59,6 +59,7 @@ function googleTranslateElementInit() {
 - My social media activity seems to be a meeting point for numerous interested parties and I start feeling like I have friends all over the place; wolves, lions, snakes, as well as sheep, kids, and children.
 - This is good.
 - There must be a defined split of who could even tolerate egg and semen theft for the elite.
+- Some of these conversations in symbols I feel I dreamt about years ago!
 
 #### Trump
 
