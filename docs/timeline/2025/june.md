@@ -31,6 +31,35 @@ function googleTranslateElementInit() {
 
 - Events like the fasting retreat in June 2025 - ram packed with agents and intuitive industry specialists - also probably set up surgeries (my room mates were extraordinarily weird and unpleasant, and they had made the bunk bed I wanted to sleep in very itchy so I ended up having to sleep in the middle of the room where I didn't want to sleep - she was probably a surgeon).
 
+### Daniels tells them to come to him if anything goes wrong
+
+- So me finding out they'd been in my room (I could feel it, but then with the missing wipes, I knew and challenged him), was unexpected.
+- The man (Louis T lookalike) says he's going off to see Daniel.
+- My guess is that was the instruction if "anything happened".
+- He didn't make it to Daniel, because God showed me where he'd put them and I initially thought it was my fault.
+- If he had've made it to Daniel, would that've been murder time?
+
+### Daniel talks about them in a group session
+
+- We meet to talk about therapy, or something; oh yes, our comfort zones.
+- Daniel makes explanations for their behavior. 
+- She has said she's a CEO of a company and her comfort zone is being in meetings with colleagues.
+- Daniel says later on about how business people operate in a tricky way, using people all the time, and I understand he's referring to her, and it does explain her behavior (Louis seems to be under her spell a little).
+
+### I tell two spies what happened
+
+- One of them is having a "hard time at work" with her favorite job she got and apparently enthused about the last time she was there - there's a lot of repeaters.
+- And the other is too lively.
+- It was weird, I told the lively one all about Louis's bizarre behavior and she was so excited to hear every word, oh wow, what a story, what happened then, so exciting...
+- Then the other one wanted to hear it and she was slooooow, oh, ok,... oh... it was very strange.
+- I think they were both spies playing their games with me.
+
+### I write notes to them
+
+- I start to write notes on a piece of paper in my bedroom to them, because I know they're coming in.
+- Surprising notes of friendship and love.
+- That didn't get through, did it :)
+
 ### Murdered by the gypsies in Madrid
 
 - A therapist on the retreat is someone I know from the US trauma world.

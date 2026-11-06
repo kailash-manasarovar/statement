@@ -19,6 +19,13 @@ function googleTranslateElementInit() {
 - Pictures, bathroom decoration, helicopter landing field, a fashion dummy male swimmer with black shorts head in the ground outside that looks like the `@jctot19` man, ... relentless.
 - I don't know what to make of it because I don't know the truth yet about the Americans, but I'm very clear it is ALL FOR ME!
 
+### Andrew is a photographer from Muswell Hill
+
+- He was very keen for me to know this, shared his website, etc.
+- I wonder who he really was telling this.
+- Does it mean he knows madam, Eddie, my dad, and Ray Archer personally from the rape-house in Queen's Avenue?
+- Or is there some kind of internal secret service war going on between the perverts who are producing pre-birth porn and the relatively sane?
+
 ### Andrew wants to keep the porn
 
 - I tell him what's going on for me.
