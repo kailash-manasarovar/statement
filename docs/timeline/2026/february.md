@@ -19,6 +19,13 @@ function googleTranslateElementInit() {
 - Pictures, bathroom decoration, helicopter landing field, a fashion dummy male swimmer with black shorts head in the ground outside that looks like the `@jctot19` man, ... relentless.
 - I don't know what to make of it because I don't know the truth yet about the Americans, but I'm very clear it is ALL FOR ME!
 
+### Andrew wants to keep the porn
+
+- I tell him what's going on for me.
+- He's not surprised, or concerned.
+- He asks me; *so what about AI porn then?*.
+- I'm dumbfounded!
+
 ### Bridge
 
 - Constant triggers about the bridge, and how I'm going to be rescued.
