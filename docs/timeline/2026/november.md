@@ -18,5 +18,5 @@ function googleTranslateElementInit() {
 
 [![Garnishment order](../../content/images/garnishment-order.png)](../../content/documents/emails/garnishment-orders.pdf)
 
-- My N26 account has only had 31 cents in it since March.
+- My N26 account has only had **31** cents in it since March.
 - I always found that interesting.
