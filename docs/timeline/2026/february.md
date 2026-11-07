@@ -12,7 +12,13 @@ function googleTranslateElementInit() {
 
 ### Andrew
 
-- Was his wife called Sarah?
+- I had to get away from the perverts at 31 who were still arrogantly looking down their noses at me, or jubilantly telling me I was imagining it all, and quick.
+- Booking.com offered me a ridiculously cheap two weeks in Dorset and I jump at the chance.
+
+![Dorset](../../content/images/dorset-egg-extraction-porn-lab.png)
+
+- I know the Americans totally control my Booking.com account but the flood is getting to me, I'm exhausted, I'm injured, and I'm devastated about my father.
+- Andrew lives there with his wife and adult kids (boys in their twenties). Was his wife called Sarah?
 - He looks like King Charles and I'm getting masses of King Charles triggers the whole time I stay with them.
 - Again, I only have warm feelings about the king.
 - Again, I booked the place about three weeks in advance so they have had time to set up.
