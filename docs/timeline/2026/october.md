@@ -155,3 +155,20 @@ function googleTranslateElementInit() {
 - I went to the GP, Dr Singh about this, and she measured them and confirmed it and ordered a scan which never happened.
 - I wonder if this explains the keyhole scar in the back of my thigh... were they checking for DVTs?
 
+### Telling the women
+
+- I tell the women at the baths what's going on.
+- They're horrified.
+- One of them asks me if I know who it is.
+- I say yes.
+- The boss then tells me there's nothing they can do; it's too big.
+
+### Hiding behind the transvestites
+
+- The sedating-rapists are using their time-tested trick of hiding behind the transvestites, knowing this is a contentious issue and upsets women.
+- They know about me standing for Party Of Women in the UK in 2024.
+- They send a transvestite to work with me in the baths.
+- It's shameful, but it's a ruse too.
+- They want to be left in peace to sedate-and-rape as much as they like.
+- They've been doing it so long now, they must have upped the ante by now.
+- They're not telling though, are they.
