@@ -110,14 +110,6 @@ function googleTranslateElementInit() {
 - These two sit with an elderly friend of mine who is vulnerable, and I don't like it - remember Benedetta was grooming the French pensioners in the choir in 2023/24 the last time I saw her/him. 
 - I bet she's a transvestite. It would be poetic.
 
-### My last night in Lourdes
-
-- I go to bed. 
-- About half-an-hour later I wake up with SEVERE cystitis.
-- It's as if I've been raped violently.
-- I haven't had cystitis since 2016.
-- I remember my mum used to get it whenever she visited me in Dénia.
-
 ### Restoration/cleansing of the sanctuary
 
 - I've done something good; it's not clear what, but something big enough to get me "punished" on my last night for sure.

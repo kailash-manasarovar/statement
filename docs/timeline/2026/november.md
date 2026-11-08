@@ -8,6 +8,18 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Cystitis 
+
+- It's my last night in Lourdes, the 1st November, All Saints.
+- I go to bed. 
+- About half-an-hour later I wake up with SEVERE cystitis.
+- It's as if I've been raped violently.
+- I haven't had cystitis since 2016.
+- I remember my mum used to get it whenever she visited me in Dénia.
+- I have to get antibiotics for it as I'm bleeding and the urgent need to pee is excruciatingly painful.
+- Here's the proof: [test for bacteria and blood in urine](../../content/documents/health/cystitis-last-day-of-lourdes.pdf).
+- By the way, they're lying about me now in Lourdes, A LOT! Wait till you hear what they're saying...
+
 ## Dénia tax office steals more money from me
 
 - In February 2026, while my eggs were being stolen by secret service porn-addicts for their pre-birth porn and clone-your-favorite-victim program in [Dorset by a secret-service porn-apocalypse operative](february.md#andrew), the Americans task the Dénia tax office to rob me of 6,000 euros.
