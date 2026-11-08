@@ -19,6 +19,7 @@ function googleTranslateElementInit() {
 - I have to get antibiotics for it as I'm bleeding and the urgent need to pee is excruciatingly painful.
 - Here's the proof: [test for bacteria and blood in urine](../../content/documents/health/cystitis-last-day-of-lourdes.pdf).
 - They're emboldened by no action. They get worse. I am the tip of the tip of the iceberg of pure cowardice, evil, and stupidity.
+- I guess they don't know I could be pregnant with Jesus. Or, maybe they do - whole world knows after all - and it excites them even more! We don't need this sort of mental aberration in the world.
 
 ## Dénia tax office steals more money from me
 
