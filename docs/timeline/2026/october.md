@@ -110,6 +110,16 @@ function googleTranslateElementInit() {
 - These two sit with an elderly friend of mine who is vulnerable, and I don't like it - remember Benedetta was grooming the French pensioners in the choir in 2023/24 the last time I saw her/him. 
 - I bet she's a transvestite. It would be poetic.
 
+### The blond official
+
+- I'm shown pictures of a man on Facebook.
+- I see him the next day at the grotto; he works for the sanctuary.
+- They set him up to see me after service, I'm walking past him, he looks at me and his face does a sort of half-snicker/half-shame smile.
+- He recognizes me.
+- I have never seen this man before in my life; consciously.
+- Shortly after this, they pop up Jonathan... dropping him in it?
+- A day or two later this same man is prepping the grotto for the candlelight service and he says, loudly so I can hear it, *we're not telling*.
+
 ### Restoration/cleansing of the sanctuary
 
 - I've done something good; it's not clear what, but something big enough to get me "punished" on my last night for sure.
