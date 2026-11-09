@@ -110,6 +110,14 @@ function googleTranslateElementInit() {
 - These two sit with an elderly friend of mine who is vulnerable, and I don't like it - remember Benedetta was grooming the French pensioners in the choir in 2023/24 the last time I saw her/him. 
 - I bet she's a transvestite. It would be poetic.
 
+### The woman smelling of heather
+
+- She kept walking past me at the SAME PLACE every morning.
+- Woah, she smelt of heather.
+- I assume she wanted me to tell everyone they're offering Heather and Steve et all up.
+- It's Joy though, and they're as evil as the lot of them!
+- A thought about how they could put trillions into their evil schemes, and just a tiny droplet of Love would render them helpless.
+
 ### The blond official
 
 - I'm shown pictures of a man on Facebook.
