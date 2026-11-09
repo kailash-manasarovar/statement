@@ -116,7 +116,7 @@ function googleTranslateElementInit() {
 - Woah, she smelt of heather.
 - I assume she wanted me to tell everyone they're offering Heather and Steve et all up.
 - It's Joy though, and they're as evil as the lot of them!
-- A thought about how they could put trillions into their evil schemes, and just a tiny droplet of Love would render them helpless.
+- A thought about how they could put trillions into their evil schemes, and just a tiny droplet of True Love would render them helpless.
 
 ### The blond official
 
