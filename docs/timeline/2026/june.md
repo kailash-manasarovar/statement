@@ -302,6 +302,36 @@ function googleTranslateElementInit() {
 - I did start seeing faces I've seen before, and I'm certain some of the faces on the beach turned up at the yoga course too.
 - Some of them got a bit excited at times - the Americans/Brits - and I had to tell them to stop fannying around, which was funny, everyone laughed.
 
+### Bring-and-buy egg sale
+
+- Like [Napasai, Fitkoh, and Lamai in December 2025](../2025/december.md#im-having-a-detrimental-effect-on-the-local-economy), the infestation of American spies at the Holiday Inn Nusa Dua can only mean one thing.
+- It was a bring-and-buy sale: bring your surrogate, buy your egg, and meet the mother.
+- I'm told one of my eggs costs $350K which means I'm spectacularly famous in sedated rape-porn and anyone buying my eggs intends to rape my children.
+- Clearly, these people were told not to worry about me finding out and, just like in the Dénia criminal-porn hellhole, everyone was 100% assured of my impending demise by murder.
+
+### Another crucifixion, a quick one, just three weeks this time
+
+- I've survived serious poisoning yet again; to many's dismay.
+- I'm told it was mercury and indeed I was extremely unwell.
+- It's likely the American and her Russian counterpart were surgeons, they were left with me for the last few days and I slept 22 hours a day for those final days in Lhasa.
+- Anyway. I'm very special, but everyone still despises me, more so now - how dare the sedated-rape-victim be a superhero, we MUST murder her, and soon.
+- They have already taken around 40 viable eggs from me over the last 25-odd years.
+- It's time for some more.
+- This time, they have a solid way they can justify the egg-extraction to the women; assuring them I'll be murdered shortly after (I'm not sure quite how they justify this, I'm sure we'll find out).
+- Only the high management, and Elon and co, know the truth that extracting my eggs was always a porn-genre.
+
+![Egg-extraction in Bali](../../content/images/crucifying-for-hatred.png)
+
+- My view is that this hatred of women that makes them do such things for masturbation purposes - the idea of a woman's children being stolen from her in this way must give them such a boner -  and then the idea that they can produce murder porn of her, and then go for her children especially the ones who look like her, is their next horrible step into their addiction, and it started such a long time ago that one shudders to think what they're actually doing now still in secret!
+- I suffer a very public, very famous in spy-land, three week long crucifixion at Nusa Dua, where the whole hotel is full of American spies from all over the world, surrogates and my-children buyers, everyone assured I'll be murdered (disappeared/sad accident/whatever) after egg-extraction while I'm at Loka Yoga in a couple of weeks.
+- And there's, of course, the usual detective spies tasked with pretending they're helping me find out who's been sedating-and-raping me all these years wherever I go - do they tell these too I'm to be murdered once all my eggs are stolen? My guess is no.
+- These spies give me information about my time at the Obel Tower in Belfast, which means the Americans are complicit in all that too, including Noah! Wow!
+- Even an excited giggly snickery Elon turns up to take the piss and torment me.
+- Is he buying too, again? 
+- Does he get to rape me at the same time the eggs are extracted - like they do every time they do an egg-extraction and snap my rib again - the main reason for it all? 
+- All the American men are hopping up and down, grinning, delighted to be stealing my life force, getting boners about it, certain of my death.
+- The women, generally, seem unhappy, some are crying and saying "thank you" to me.
+
 ### Disclosure Day
 
 - Randy is still communicating and he tells me about a film I have to see, Disclosure Day.
@@ -360,13 +390,6 @@ function googleTranslateElementInit() {
 - I was famous!
 - I put the extremely good mood of the place, of me, and of the staff around me who knew me as *Dr. Katharine* down to even the agents getting into the vibe, just a little, they couldn't help it.
 - One of the staff told me I was *shining*, and I expect I was.
-
-### Bring-and-buy egg sale
-
-- Like [Napasai, Fitkoh, and Lamai in December 2025](../2025/december.md#im-having-a-detrimental-effect-on-the-local-economy), the infestation of American spies at the Holiday Inn Nusa Dua can only mean one thing.
-- It was a bring-and-buy sale: bring your surrogate, buy your egg, and meet the mother.
-- I'm told one of my eggs costs $350K which means I'm spectacularly famous in sedated rape-porn and anyone buying my eggs intends to rape my children.
-- Clearly, these people were told not to worry about me finding out and, just like in the Dénia criminal-porn hellhole, everyone was 100% assured of my impending demise by murder.
 
 ### Yvonne and Mike
 
