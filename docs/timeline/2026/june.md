@@ -313,12 +313,12 @@ function googleTranslateElementInit() {
 
 - I've survived serious poisoning yet again; to many's dismay.
 - I'm told it was mercury and indeed I was extremely unwell.
-- It's likely the American and her Russian counterpart were surgeons, they were left with me for the last few days and I slept 22 hours a day for those final days in Lhasa.
-- Anyway. I'm very special, but everyone still despises me, more so now - how dare the sedated-rape-victim be a superhero, we MUST murder her, and soon.
+- It's likely the American and her Russian counterpart were surgeons, they were left with me for the last few days and I slept 22 hours a day for those final days in Lhasa - do they get to charge more exorbitant fees if the eggs are extracted in holy places too?
+- Anyway. I'm very special, but everyone still despises me, more so now - how dare the sedated-rape-victim be a superhero, we MUST murder her, and soon!
 - They have already taken around 40 viable eggs from me over the last 25-odd years.
 - It's time for some more.
-- This time, they have a solid way they can justify the egg-extraction to the women; assuring them I'll be murdered shortly after (I'm not sure quite how they justify this, I'm sure we'll find out).
-- Only the high management, and Elon and co, know the truth that extracting my eggs was always a porn-genre.
+- This time, they have a solid way they can justify the egg-extraction to the women; assuring them I'll be murdered shortly after (I'm not sure quite how they justify this, so no-one finds out they did it maybe).
+- Only the men, the highest management, and Elon and co, know the truth that extracting my eggs was always just a tawdry porn-genre for their boners.
 
 ![Egg-extraction in Bali](../../content/images/crucifying-for-hatred.png)
 
@@ -328,9 +328,10 @@ function googleTranslateElementInit() {
 - These spies give me information about my time at the Obel Tower in Belfast, which means the Americans are complicit in all that too, including Noah! Wow!
 - Even an excited giggly snickery Elon turns up to take the piss and torment me.
 - Is he buying too, again? 
-- Does he get to rape me at the same time the eggs are extracted - like they do every time they do an egg-extraction and snap my rib again - the main reason for it all? 
-- All the American men are hopping up and down, grinning, delighted to be stealing my life force, getting boners about it, certain of my death.
-- The women, generally, seem unhappy, some are crying and saying "thank you" to me.
+- Does he get to rape me at the same time the eggs are extracted - like they do every time they do an egg-extraction and snap my rib again, doing their *very best* to get me to snap it again during yoga classes the following week for an explanation.
+- The rape porn is what motivates them, nothing else. 
+- All the American men are hopping up and down, grinning, snickering, delighted to be stealing my life force, getting boners about it, certain of my death.
+- The women, generally, seem unhappy, angry even; some are crying and saying "thank you" to me.
 
 ### Disclosure Day
 
