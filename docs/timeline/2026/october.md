@@ -61,6 +61,12 @@ function googleTranslateElementInit() {
 - There must be a defined split of who could even tolerate egg and semen theft for the elite.
 - Some of these conversations in symbols I feel I dreamt about years ago!
 
+#### Words from my will are repeated back to me
+
+- Details of the Will I wrote in private, and submitted to the public archive in the UK, are written back to me online.
+- I assume this is because the Americans accessed my car while it was in the parking in Toulouse and added poisons to my toiletries, and examined all my paperwork.
+- They want me to think the Brits did it; although it's possible the recalcitrant porn-addict spies with horrible histories they're so proud of, yet so terrified of being found out, have done so.
+
 #### Trump
 
 - wip
