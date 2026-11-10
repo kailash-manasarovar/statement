@@ -82,6 +82,8 @@ function googleTranslateElementInit() {
 - Thousands: as many as the leaves on a tree.
 - The wealthy and privileged gone totally mad.
 
+![As much as the leaves on the tree](../../content/images/as-much-as-the-leaves-on-the-tree.png)
+
 ### Writing to myself
 
 - When I start to serve Our Lady, my internet access is very intermittent so I start to write emails to myself on my phone about things I'm thinking.
