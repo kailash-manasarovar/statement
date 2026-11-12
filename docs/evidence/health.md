@@ -8,7 +8,37 @@ function googleTranslateElementInit() {
 }
 </script>
 
-## Post-surgical internal injury in the left hip/groin region
+## Brain damage
+
+### Ocular process, recognizing objects
+
+- Criminal porn-gangs in Las Marinas were instructed by the Americans to give me brain damage and this started from the moment I moved there in 2006.
+- They do this with specific extremely poisonous herbs added to food over long periods - which is why Vincente refused to eat anything at my house.
+- The criminal gangs of Dénia will confirm they were tasked with this by the Americans.
+- The general purpose is so that women may not identify rapists, and for exaggerated women-loathing porn-specials such as the switcheroo porn running at the children's music school in Dénia where I mistook seven very different looking men as one man, all of them posing as the same music teacher (the context).
+- The brain damage is at the ocular nerve function whereby I am unable to distinguish or recognize objects out of context, like a stroke symptom, and it is most noticeable with people's faces.
+- This injury is quite pronounced and is happening to me all the time.
+
+### Higher brain function destroyed
+
+- I refused to leave my studies at the music school while the Americans had planned and set up the Bali sedated-rape-porn special, starring me.
+- This "special" had been arranged for much earlier, November 2023 in Barcelona I believe, but I found out that my colleague was an actor and so they postponed.
+- So they went all-out instead on a company-wide sedated rape-porn frenzy in Bali scheduled for May 2024.
+- The Americans needed me to leave my studies at the music school which - prior to me standing in the UK election in June 2024 - were the only thing keeping me from total isolation and clear for the horse-porn then murder-porn track, which is what the spies in London including my father were desperate for.
+- Dénia criminals will confirm all this.
+- So, they instructed Bruno and his people to frighten me so much - while sedated as usual - that I would leave my studies.
+- The way they did this was to suffocate me while sedated with my own pillows; teachers such as Maria Hontanilla and Paqui in attendance in my bedroom.
+- This was all broadcast live on the porn networks to the Americans, and even Steve had seen it - they tried to trigger a memory of it from me at a TT course in Dublin in August 2026 where they got a woman to reenact the sounds I had made when they eventually let me out from under the pillow.
+- *Pillow* became a bit of a terror meme - repeated to me by apparent Israeli "bridge" operatives on a flight from India to BKK in December 2025, and mentioned often online.
+- Anyway, the day after this event on Wednesday 13th March, I was unable to do basic things such as change a PIN number on my bank account and later on I discovered my previously exceptional skills at chess had disappeared entirely.
+- I believe they stopped the air to my brain for a significant period giving me more brain damage, and this was on instruction from the Americans too.
+
+## Egg theft
+
+- Multiple occurrences of sedated-surgery. 
+- From July 2025 it was so frenzied, they injured me.
+
+### Post-surgical internal injury in the left hip/groin region
 
 - In December 2025, during the first few seconds of a Thai boxing fitness course I had signed up for at Fitkoh in Samui, my hip crunched and gave way.
 - It was extremely painful, but only when I did certain body movements. Other than that, it was unnoticeable.
@@ -65,6 +95,10 @@ function googleTranslateElementInit() {
 !!! tip "From here..."
     - All sections from here were written when I considered my only enemies to be the porn-gangs of Spain, North London's finest, and my tech colleagues and had no idea who was really behind it all.
 
+### Heavy painkillers
+
+- Constant application of painkillers either in the same way they did it in Dénia, or perhaps with injections.
+
 ### I create a callous in my palm while they do it
 
 - I started to see this callous on my left palm and there is no explanation for it.
@@ -83,6 +117,22 @@ function googleTranslateElementInit() {
 
 - The nice thing about this tweet is that I wrote it while surrounded by mousses at the Anantara Riverside in Bangkok... and wait till I tell you about the first time I noticed the mousses there, when they made themselves known to me in 2017, and I mistakenly thought they were my friends which is why I returned there.
 
+### Keyhole surgery scars for a long time
+
+- I have been noticing these little round bumps for a long time, but I never knew what they were.
+- They were noticeable because they're not like spots.
+- I have seen them a lot over the years.
+- In April 2026, in Dublin, I noticed one.
+- It reappeared in July 2026 at Loka Yoga in Bali.
+
+### Depression and anxiety
+
+- It is my belief that stealing people's eggs and sperms and making children from them without the parents knowledge causes extreme depression and anxiety, and I think we're going to find out this is true when the full extent of what the CIA has been doing to famous people and holy people (and rape porn stars like me) is public.
+- It explains my depression and anxiety which felt so deep and really I only had Winston May in 1989 to explain it, which doesn't make sense of course.
+- And then I had dad and the sedated rape-porn frenzy to explain it, but you know what dad is such an unpleasant person it's not hard to see that he would behave like this.
+- No, it was deeper, and the fact that I have children robbed from me in such a manner makes the most sense concerning my deep depression and sudden onset suicidal feelings and continued inexplicable sadness.
+- No doubt they hoped I would commit suicide.
+
 ## Physical tension and stress related rib injury
 
 - I believe, since watching all these disaster investigations, that because my rib had had a break earlier in my life, it was structurally weak and would fail quality testing for exaggerated levels of stress.
@@ -93,6 +143,12 @@ function googleTranslateElementInit() {
 - So, this makes me wonder if the "surgeons" didn't also have a quick go at me too, especially if they had a porn-subscription and knew who I was, which is hardly unlikely.
 - Is this why I felt and remembered them entering my back passage in Bali.
 - I bet there's photographic evidence of all that too.
+
+### Rape at the same time as sedated-surgery
+
+- It's a porn genre, always has been, right from the beginning.
+- Because porn is essentially murder and humiliation, raping while stealing a woman's eggs has to be a most sought after porn genre. 
+- And this is why my rib always snapped right after egg-extraction surgery as well as after prolonged sedate-and-rape periods at my house in Dénia - cos they'd rape me too, and film it.
 
 ## Homeopath
 
@@ -121,14 +177,15 @@ function googleTranslateElementInit() {
 
 ## Cognitive loss
 
-- I believe I have lost my previous level of cognitive skills to a large degree and I can only assume this is due to being poisoned over time in my apartment.
+- I believe I have lost my previous level of cognitive skills to a large degree and I can only assume this is due to being poisoned over time in my apartment and from suffocating - see above.
 - I mentioned in my description of [March's traumatic events](../timeline/2024/march/13-end.md#changing-my-bankcard-pin-numbers) that I had great difficulty performing simple tasks.
 - In fact, I have noticed my writing skills declining over the last year. It used to be extremely simple for me to prepare and execute writing tasks, now it isn't. 
 - I believe this makes it highly unlikely for me to continue working in the way I was before as things are now difficult.
 - I have also completely lost my ability to play chess well. I used to be extremely good at chess, and quick to understand the board and game status, and I always beat average players. I was always able to see the permutations of about 5 or 6 moves in advance.
 - Even when addicted to valium in 2018, I beat the men in the tech department during a chess tournament we set up at Goldman Sachs, much to their annoyance.
 - I subscribed to Chess.com in August and I couldn't quite believe how useless I am at chess. I'm below average now, if that, and I make ridiculous mistakes constantly.
-- I think this must be proof of poisoning; methanol is my guess.
+- I think this must be proof of poisoning; methanol is my guess...
+- No, poisoning leaves me unharmed it's in the Bible - this was from suffocation and cutting the oxygen supply to my brain for a minute or two on Wednesday 13th March 2024; ordered by the Americans so that I would be completely isolated after their Bali event in May 2024.
 
 ## Hair narcotic test
 
@@ -136,6 +193,7 @@ function googleTranslateElementInit() {
 - The results came back negative.
 - I remained unconvinced and asked them to repeat the test with the second hair sample they took.
 - They didn't have the second hair sample.
+- The sample would not only be packed full of mind-altering substances, anaesthetic substances, etc, it would also be packed full of intense painkilling medication used after internal surgeries.
 
 ## Heavy metal analysis
 
@@ -145,6 +203,7 @@ function googleTranslateElementInit() {
 ## Kidneys
 
 - Since December 2022, when the trumpet teacher began at the conservatory,  I have had trouble with my kidneys, particularly the right one.
+- (I think this injury was because I believed the trumpet teacher - the love of my life - had poisoned me and that would indeed have injured me. But he didn't. And now I know, it's totally gone. A false belief corrected.)
 - At Christmas 2022, I had a seizure of some sort in Samui on holiday and I went to A&E at Bangkok Hospital. They told me everything was fine, it was just panic, but nevertheless I had frothy urine for a few days after that.
 - On 28th January, I got a mild form of rhabdo at chamber music class with the trumpet teacher.
 - I suffered frothy urine and other ill effects after that for some time.
@@ -182,6 +241,7 @@ function googleTranslateElementInit() {
 - It was not so, as I had another period in July 2025, after five months away from Dénia and having undertaken some detoxing and health changes.
 - I believe I skipped 18-months of periods due to overwhelming levels of fear stress affecting my physical body.
 - See [January 2024 statement](../timeline/2024/january.md#menstruation) for more information.
+- I was wrong about this bleed - it was after surgical injury in Cauterets, eventually causing the bigger injury at FitKoh in December.
 
 ## Psycho-emotional effects
 
@@ -197,12 +257,16 @@ function googleTranslateElementInit() {
 - It can be a [side-effect of certain drugs and medications](https://pubmed.ncbi.nlm.nih.gov/12662255/), such as antidepressants.
 - I wonder if certain substances, together with continued NLP/hypnosis techniques online, could imprint an erotomania effect on an unsuspecting target for abuse.
 - I wonder also if some other side-effects could arise from similar substances; such as autoimmune complaints like frozen shoulder, rheumatoid arthritis, lupus-type kidney complaints, etc.
+- While the CIA flooding (this is a technical spy-term by the way) was in full effect - started in August 2023 when they realized I had met him consciously and remembered him - and the Americans were desperate for me to think that this man who was in fact helping me was against me, I was very confused about everything and this seemed reasonable.
+- Of course, manipulated feelings of love are part and parcel of the porn-game, but there was always something more to this.
+- I was BATTERED with lies about him. BATTERED!
 
 ### Work
 
 - While I was being drugged it became impossible to deal with difficult situations at work.
 - The anxiety I was feeling was so intense, I couldn't cope with it and had to leave two jobs.
 - At the time, I thought it was because I had been suffering from anxiety and depression for a long while, but now I'm not so sure it was *all* my own original anxiety because it was intense in a way it had never been before at work.
+- I realize now that all my colleagues had been subscribing to my 24-7 sedated-rape porn channel and so had no qualms about being extraordinarily hateful to me, directly, in the office, and it has been intolerable!
 
 ### Negative
 
@@ -213,10 +277,10 @@ function googleTranslateElementInit() {
 
 ### Positive
 
-- Ironically, whatever NLP plus medication combo they were using on me that made me fall in love healed me completely of anxiety and depression. 
-- I wonder if I was on an informal drug trial.
-- I thought what I was experiencing was true love, and it probably was a little bit, but the real trigger was the drugs and sexual feelings in the context of love that I hadn't experienced for twenty years.
-- Another extremely positive effect of me enduring these NLP seduction techniques online in the context of sexual grooming of women and children is that I am now able to describe it.
+- Ironically, whatever NLP plus medication combo they were using on me that made me fall in love healed me completely of anxiety and depression.
+- I think this was a genuine spiritual healing actually.
+- I recognized someone after a very long time. 
+- Of course, the CIA manipulated these genuine feelings into toxic porn desire for their sick snickering appetites.
 
 ## Boils
 
