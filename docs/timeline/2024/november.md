@@ -223,6 +223,26 @@ function googleTranslateElementInit() {
 - He's playing the horror-porn-town game.
 - I guess they do this sort of thing to all their sedated-rape victims.
 
+### Why we never notice
+
+- Thinking back on this, it's possible they sedated me while I was standing at the counter paying for my groceries.
+- At the moment I was paying, a man came up and stood beside me on the left.
+- We know how easy it is to render a person unconscious with something applied to the skin and I believe this probably happened here.
+- The shopkeeper at the till said something to me.
+- The next thing I know, the shopkeeper at the till says exactly the same phrase to me again.
+- I think he's taking the piss.
+- I'm high, poisons are running through my system, and I don't realize it is highly likely I was sedated at that moment and was unconscious for a time.
+- You literally don't notice a thing.
+- They've drugged you so you're high already anyway.
+- And they have access to all your online activity and devices, so they can adjust the time so you never realize you have lost time.
+- You trust men, generally; especially apparently normal men with jobs and families, shopkeepers, taxi-drivers, etc.
+- It's a total dream come true for women-haters: render them unconscious whenever you want, they'll never notice, do whatever you want to them while they're unconscious... and now they're starting in on the obvious murders, or perhaps we're only just noticing that too.
+- Notice how during the numerous court cases coming up of men sedating women and raping them that are being reported in the media, they NEVER mention the substances used.
+- It's like they're determined to keep it happening - because it's so easy to get away with, these poor souls in court were just unlucky.
+- And the many hundreds of millions of us suffering this abuse constantly from the men we know and love, have yet to realize because you literally DON'T NOTICE A THING!
+- Day Of The Lord indeed.
+- Time to shame them.
+
 ## Cacophony coming from my phone while I'm driving
 
 - As I'm driving to Valencia airport, on a particularly dangerous part of the road, my phone suddenly makes an unimaginably loud and alarming noise.
