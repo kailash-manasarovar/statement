@@ -225,7 +225,7 @@ function googleTranslateElementInit() {
 
 ### Why we never notice
 
-- Thinking back on this, it's possible they sedated me while I was standing at the counter paying for my groceries.
+- Thinking back on this, just two years ago, it's possible they sedated me while I was standing at the counter paying for my groceries.
 - At the moment I was paying, a man came up and stood beside me on the left.
 - We know how easy it is to render a person unconscious with something applied to the skin and I believe this probably happened here.
 - The shopkeeper at the till said something to me.
