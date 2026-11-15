@@ -95,9 +95,14 @@ function googleTranslateElementInit() {
 - They respond to things I say on these emails I send to myself.
 - They ask questions of me, or trigger memories of the past in underhand ways, that I respond to (see Trump email) politely.
 - I tell them a lot.
-- Some seem to be interested in what I have to say, others not.
-- They try to upset me, a lot (words spoken so I can hear them, a man organizing to step on my toe outside the accommodation, sending their snickering female representatives - see Alletru - relentless bullying, a woman smelling of heather, and then likely a violent rape on All Saints Day after going to bed).
+- Some seem to be interested in what I have to say, others not. 
+- I believe Interpol must be watching, so I tell them everything.
+- The porn-addicts try to upset me, a lot (words spoken so I can hear them, a man organizing to step on my toe outside the accommodation, sending their snickering female representatives - see Alletru - relentless bullying, a woman smelling of heather, and then likely a violent rape on All Saints Day after going to bed).
 - Eventually, they piss me off so much I decide I have no choice but to speak to Marie Therese again and give her the updates [since April](april.md#service-at-lourdes) - when I still thought, naively, that the Americans were friends.
+
+### The blond man
+
+- wip
 
 ### I decide to tell everyone everything
 
