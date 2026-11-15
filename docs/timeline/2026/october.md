@@ -99,6 +99,7 @@ function googleTranslateElementInit() {
 - I believe Interpol must be watching, so I tell them everything.
 - The porn-addicts try to upset me, a lot (words spoken so I can hear them, a man organizing to step on my toe outside the accommodation, sending their snickering female representatives - see Alletru - relentless bullying, a woman smelling of heather, and then likely a violent rape on All Saints Day after going to bed).
 - Eventually, they piss me off so much I decide I have no choice but to speak to Marie Therese again and give her the updates [since April](april.md#service-at-lourdes) - when I still thought, naively, that the Americans were friends.
+- Find all [the emails here](../../content/documents/emails/lourdes-emails/). I will publish them shortly.
 
 ### The blond man
 
@@ -106,7 +107,7 @@ function googleTranslateElementInit() {
 
 ### I decide to tell everyone everything
 
-- It gets so bad, so constant, relentless bullying and snickering, even one of my own children (or a lookalike) at the grotto, I decide to tell everyone everything.
+- It gets so bad, so constant, relentless bullying and snickering, they even one of my own children (or a lookalike) to the grotto, I decide to tell everyone everything.
 - I write a message in English, French, Spanish, and Italian and show everyone.
 - They're shocked mostly, but the evildoers make it all about the transvestites and so seed the lies and distraction.
 - Brilliant really, it's gonna be the end of it all.
