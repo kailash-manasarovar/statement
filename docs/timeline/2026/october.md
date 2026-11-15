@@ -36,7 +36,7 @@ function googleTranslateElementInit() {
 - I can hardly pull myself out of the bed for the pain.
 - It last about a week intensely.
 
-#### He sends rainbows
+### He sends rainbows
 
 - One morning after all this, he sends a rainbow to reassure me.
 
@@ -51,7 +51,60 @@ function googleTranslateElementInit() {
 - I bet it happened all the time, to my mother too in Saint-Malo, I heard, when she was with my dad on holiday.
 - My dad had been going there since he was a young man. I think he set my aunt Bernadette up who was sexually assaulted/raped on a trip to France when she was 16 and never recovered from the trauma.
 
+### Greenwood and the grooming gangs and Desa Ludwick
+
+- I'm contacted my David Greenwood part of the Rape Gang Inquiry efforts who asks me to sign a confidentiality agreement about content I might be sent related to this.
+- I tell him I'm hacked so nothing is confidential.
+- I tell him it's the Americans.
+- I also tell him about Desa Ludwick and how she blackmailed Chris Ludwick because she found out what he was doing with [the N8 band](../pre-2001/1990.md#n8), like Winston May and the Tottenham rape gangs this was also organized by the Americans through Geetha.
+- I send him a long email about this; I'll pop it in shortly.
+- I also mention that I believe the American activity with me due to Lockerbie, and related sex-offense free-for-alls because everyone knew what they had got the British police to do at Hillsborough, is the foundation of ALL the grooming gang activity, and the fact they seem to be able to get away with it - and they're only nicking the Muslims for it too, who don't bother with the sedating if it's with the girls from communities no-one cares about.
+- It's all their fault by slapping gagging orders re Lockerbie and Hillsborough on anyone trying to get help, and this will be well documented.
+
+### AirBnB and setup takedown teams
+
+- I remember when [Marianne visited me in Lourdes in 2014](../2011-to-2020/2014.md#marianne-from-the-uk-acim-community) and she advised me to stay in AirBnBs; these will be good for you, she said.
+- I thought that's a strange thing to say. Why? Why would such accommodation be good for me?
+- Well, if you were needing a place where you could send your spy teams into set up cameras, drugs, and poisoning, they're ideal aren't they.
+- In my rental apartment in Cauterets, the same old is happening, I do something in the house and it is reported online.
+- They sedated me twice for some reason, I don't know what, but I still have pain in my left breast/armpit region and I could hardly get up out of bed for it.
+- On the way out, I see the team ready to come in a takedown. I also see a couple of spy operatives who are leaving at the same time too.
+- I'm sick of it, get me out of here. We've got so much more important things to do and I'm sick and tired of being terrorized by perverts, and I want my children back. All of them. I have the table in the car I can heal them with your help. Jonathan has another table of mine too, as well as some children. The arrogance is just mind-blowing.
+
 ## Lourdes
+
+- My experience serving at the sanctuary of Lourdes this year is much like my experience in Jerusalem in August.
+- It's as if every evildoer involved in the raping, sedating, children-thieving, and all types of sick pornography from the region know I'm there, and have decided to pop in to say hello, to try and terrorize me more, and I don't know what they probably don't know themselves.
+- They're obviously scared though; just like the baby-thieves in Jerusalem were. 
+- It makes them careless, and then they tell me everything.
+
+### Spies out immediately
+
+- They also send their spies. 
+- One woman is very noticeable as she had "befriended" me in July 2025 while I was being poisoned by the Lopez-Cano's at the Arcadia and they were all prepping me for the Antonio is safe in Israel lie.
+- I'm worried about her. She's vulnerable.
+- She's been told something about me, which is obviously untrue, but not malicious because she's keen to hear what I have to say.
+
+### Emails to myself
+
+- I decide to communicate with them.
+- I do this by emailing messages to my own email account on my new mobile phone.
+- As usual I'm polite and calm.
+- Everything I say is picked up immediately by the pervert-spies (Americans) and passed onto their trusted friends at the sanctuary in record time.
+- How do I know? 
+- They respond to things I say on these emails I send to myself.
+- They ask questions of me, or trigger memories of the past in underhand ways, that I respond to (see Trump email) politely.
+- I tell them a lot.
+- Some seem to be interested in what I have to say, others not.
+- They try to upset me, a lot (words spoken so I can hear them, a man organizing to step on my toe outside the accommodation, sending their snickering female representatives - see Alletru - relentless bullying, a woman smelling of heather, and then likely a violent rape on All Saints Day after going to bed).
+- Eventually, they piss me off so much I decide I have no choice but to speak to Marie Therese again and give her the updates [since April](april.md#service-at-lourdes) - when I still thought, naively, that the Americans were friends.
+
+### I decide to tell everyone everything
+
+- It gets so bad, so constant, relentless bullying and snickering, even one of my own children (or a lookalike) at the grotto, I decide to tell everyone everything.
+- I write a message in English, French, Spanish, and Italian and show everyone.
+- They're shocked mostly, but the evildoers make it all about the transvestites and so seed the lies and distraction.
+- Brilliant really, it's gonna be the end of it all.
 
 ### In the trenches
 
