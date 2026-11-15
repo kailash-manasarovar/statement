@@ -101,10 +101,6 @@ function googleTranslateElementInit() {
 - Eventually, they piss me off so much I decide I have no choice but to speak to Marie Therese again and give her the updates [since April](april.md#service-at-lourdes) - when I still thought, naively, that the Americans were friends.
 - Find all [the emails here](https://github.com/kailash-manasarovar/statement/tree/main/docs/content/documents/emails/lourdes-emails). I will publish them shortly.
 
-### The blond man
-
-- wip
-
 ### I decide to tell everyone everything
 
 - It gets so bad, so constant, relentless bullying and snickering, they even one of my own children (or a lookalike) to the grotto, I decide to tell everyone everything.
@@ -128,7 +124,14 @@ function googleTranslateElementInit() {
 
 #### Trump
 
-- wip
+- I'm walking to the restaurant from the baths.
+- A man is walking towards me. He's wearing a Trump t-shirt.
+- As he passes me, he sticks his tongue out lasciviously and starts pretending to lick all around; it's a sexual reference and he's doing it so I see him.
+- I email or maybe in the trenches I mention how I remember telling mum one time that "I think Trump was there". A very vivid memory of having said that, but no idea when it was.
+- Later, I realize it could have been at [the Apprentice audition](../2011-to-2020/2019.md#the-apprentice-audition) in January 2019 when I started to have a massive panic attack after standing in the queue for hours, quietly politely chatting to people, it was a MASSIVE panic attack.
+- I was then explaining to myself and my therapist - who seemed to know more about me than I did - that this was part of my general state at the time - but it was EXTREME so very noticeable and I never had it before or after either, so unique in its intensity.
+- It'll be documented. I think I might have seen a shadowy version of it in Bali.
+- On my last day of the baths, the sanctuary police have arrested this man and are sitting on him restraining him.
 
 #### wip more 
 
