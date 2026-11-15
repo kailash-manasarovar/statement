@@ -64,7 +64,9 @@ function googleTranslateElementInit() {
 ### AirBnB and setup takedown teams
 
 - I remember when [Marianne visited me in Lourdes in 2014](../2011-to-2020/2014.md#marianne-from-the-uk-acim-community) and she advised me to stay in AirBnBs; these will be good for you, she said.
-- I thought that's a strange thing to say. Why? Why would such accommodation be good for me?
+- I'm certain she had no idea she was instructed to suggest this for egg-extraction-porn; the privileged spy men having bored of the baby-rape.
+- Now I guess it's the free for all terrorizing women across the world... what else might they be doing? This was 12 years ago.
+- Anyway, I thought that's a strange thing to say at the time. Why? Why would such accommodation be good for me?
 - Well, if you were needing a place where you could send your spy teams into set up cameras, drugs, and poisoning, they're ideal aren't they.
 - In my rental apartment in Cauterets, the same old is happening, I do something in the house and it is reported online.
 - They sedated me twice for some reason, I don't know what, but I still have pain in my left breast/armpit region and I could hardly get up out of bed for it.
@@ -100,6 +102,10 @@ function googleTranslateElementInit() {
 - The porn-addicts try to upset me, a lot (words spoken so I can hear them, a man organizing to step on my toe outside the accommodation, sending their snickering female representatives - see Alletru - relentless bullying, a woman smelling of heather, and then likely a violent rape on All Saints Day after going to bed).
 - Eventually, they piss me off so much I decide I have no choice but to speak to Marie Therese again and give her the updates [since April](april.md#service-at-lourdes) - when I still thought, naively, that the Americans were friends.
 - Find all [the emails here](https://github.com/kailash-manasarovar/statement/tree/main/docs/content/documents/emails/lourdes-emails). I will publish them shortly.
+- To be clear, I'm aware I'm speaking to the people that control the sanctuary; it's administration, everything that goes on there.
+- I'm also aware that my information is coming via North American porn-spy networks so it is filtered at that point, and then again on receipt in Lourdes.
+- Nevertheless I'm talking to them as if they might be able to help us sort this unprecedented nightmare out.
+- Silence like a cancer grows.
 
 ### I decide to tell everyone everything
 
