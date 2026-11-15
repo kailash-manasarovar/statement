@@ -99,7 +99,7 @@ function googleTranslateElementInit() {
 - I believe Interpol must be watching, so I tell them everything.
 - The porn-addicts try to upset me, a lot (words spoken so I can hear them, a man organizing to step on my toe outside the accommodation, sending their snickering female representatives - see Alletru - relentless bullying, a woman smelling of heather, and then likely a violent rape on All Saints Day after going to bed).
 - Eventually, they piss me off so much I decide I have no choice but to speak to Marie Therese again and give her the updates [since April](april.md#service-at-lourdes) - when I still thought, naively, that the Americans were friends.
-- Find all [the emails here](../../content/documents/emails/lourdes-emails/). I will publish them shortly.
+- Find all [the emails here](https://github.com/kailash-manasarovar/statement/tree/main/docs/content/documents/emails/lourdes-emails). I will publish them shortly.
 
 ### The blond man
 
