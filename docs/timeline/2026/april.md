@@ -133,6 +133,8 @@ function googleTranslateElementInit() {
 - And, it turns out, I'm a weapons designer for the IDF as well as everything else.
 - Antonio gave me what I had been wishing for online since October 7th 2023.
 - Or, it was another BS set up by the CIA they could use to make me think they were Israel.
+- I actually think it was because Madam who ran the rape-house in Queen's Avenue Muswell Hill N10 had been stalking me at the hairdressers, and had visited one time when dad came with me, to threaten him I guess.
+- I reckon she got the man to muller my hair on instruction from the Americans.
 - Here's the [archive of that account](../../content/documents/facebook-61561067270886-13_11_2026-9ynN9yLI.zip), I'm not sure what's in it probably a lot.
 
 ## Médiathèque de Lourdes
