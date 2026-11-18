@@ -734,6 +734,10 @@ function googleTranslateElementInit() {
 - He would turn up really late, or not at all, leaving her waiting around all day for him.
 - On a couple of occasions this tactic meant my mother was so exasperated she left him alone in the house for long periods while she went out to do the shopping.
 - Was he also employed to [install spy-cams](../2025/may.md#boil-porn)?
+- Sean Murphy came round sometime in 2025 while I was living there and dad and I bumped into him in the street.
+- He seemed shocked to see me. I went to shake his hand. It was utterly limp, like he didn't even have a hand.
+- He knew who I was, and how famous I am in sedated rape-porn.
+- After meeting him in person, I realized he looked a lot like an obvious spy on the Portsmouth-Bilbao ferry I had met just after I wrote the Liar (summer of 2013 going back to the UK - although this may have been 2014 after my stay in Lourdes) and I had thought he was a vatican spy. He had been attempting a sexual liaison with me. That shut him up and he left me alone.
 
 ### Boil porn and other things
 

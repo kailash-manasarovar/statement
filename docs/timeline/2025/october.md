@@ -8,6 +8,21 @@ function googleTranslateElementInit() {
 }
 </script>
 
+## Meeting THE Dennis at the Turkish restaurant with my parents
+
+- It's before I remember the switcheroo, and my dad running out of my bedroom door in Denia and the severe anal injury he gave me, and that I still have friends in Alaska and America, and I still think my parents love me and are my friends at least a little.
+- I take them to dinner at the Turkish restaurant at the top of Creighton Avenue.
+- Dennis is there, THE spy Dennis who dad has told me about repeatedly.
+- Dad is horrified to see him.
+- He comes over to our table and introduces himself, puts his hand gently on my shoulder.
+- I don't think I've seen my dad so embarrassed before in my life, he goes beetroot.
+- Dennis asks about Paddy.
+- Dad can hardly reply.
+- It's very interesting to me, I don't really understand what's going on but I know it's important.
+- I start to wonder if my dad and Paddy (his sister) murdered Bernadette their sister for her small amount of Pan Am compensation. Her death was always suspicious to me. I had asked my dad what happened to her one time, he said without telling me anything else, *it was very messy*. Paddy was bullying her, badly, before she apparently committed suicide back in 1991 or 1992, just like Geetha et al. bullied me when I was suffering PTSD from multiple and continuous (I realize now) rapes, exactly the same playbook. And, she had been raped about three times just before she apparently killed herself which I believe my dad would have easily been able to organize.
+- Bernadette, like me, had no-one on her side. The ideal victim. And she had been very beautiful as a teenager. I believe my dad set up the sex attack when she was 16 in France which left her with a massive depression and then, of course, a (fake) schizofrenia diagnosis, like they do.
+- Sitting ducks aren't we.
+
 ## Thunderbolt clarity
 
 - Right after getting home from Ireland, I suddenly become clear about who the trumpet teacher was.

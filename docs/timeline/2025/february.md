@@ -710,3 +710,18 @@ Anyway. With the best. Tell your team to come into the office pls.
 - On that visit, Michelle and I were walking just after I met her and - this was when I had started to notice agents everywhere I went in the UK - a woman (American spy dress) walks past us and does the *we don't like her* frown at Michelle as we walk by.
 - Putting distance between them and her?
 - I never hear from her again.
+
+### Michelle I believe is a friend
+
+- I think Michelle Gordon is a friend after all.
+- I think there's a lot of people, mostly women - and especially women who work for the government in some capacity and have been abused and then silenced with official secrets or other top secret gagging orders perverts are using to do what they want - who are starting (or have been seeing for some time) just how bad the porn-addicted men in power have become and what they have been doing with children.
+- I think Michelle and her teams might save the UK.
+
+## The shower at 31
+
+- Clearly the shower in the bathroom has been fitted up with spy-cams; probably back when the man came round (that dad thought was a spy) [to fit the stair lifts](../2024/november.md#spy-cams-at-my-london-address).
+- The genital boil confirmations I receive online come from here.
+- Also, my dad knew this too because they confirmed he had masturbated twice one morning in the shower by doing something shit at Costa Coffee later that day. These things were intended to keep me moving on, available for more egg extractions (it's just incredible how evil they became and how quickly).
+- Further, not only are there spy-cams in there, they fitted some kind of sexual manipulation chip to the shower unit.
+- I know this because I was having a shower, and I started to feel how I used to feel at my home in Denia, sexually aroused, and I knew it was fake; more so because of the confirmations online about what I had been doing in the bathroom.
+- I also suspect Antonio hacked the unit too because it explains a strange event whereby the shower unit made army marching music just after I had been talking to my parents about General George Patton and how he's probably an ancestor of my mum.

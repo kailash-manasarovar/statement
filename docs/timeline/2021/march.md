@@ -54,12 +54,13 @@ function googleTranslateElementInit() {
 - I file it away.
 - Did Matthew her husband tell her to say these things?
 - Anyway, Qredo was a scam company.
+- The CEO is called Anthony Foy; a false name no doubt to trigger the Denia gangs who are aware of something big going on with Antonio Ruiz that I'm yet to know for sure about but it may be that he makes the porn babies for everyone.
 - They had a backend system which was supposed to run millions of crypto transactions safely and securely, but in truth it was eight [Raspberry Pis](https://www.raspberrypi.com/), that kept failing, networked together with string, knots, and bandages.
 - (Raspberry Pis are how schoolkids learn about computing.)
 - I'm scratching my chin now, just like [Harsha did in 2018](../2011-to-2020/2018.md#hired-for-sport-again-at-weareadaptive) at Adaptive.
 - I'm tasked with writing their Whitepaper.
 - I produce a detailed and honest description of everything they have, without ever once saying *it's never gonna work*, which it won't and doesn't.
-- They quietly hire another writer I never meet, who works with the CTO (*he's the man*, Anita told me, in a kind of breathless reverence), who had been out of the company for a short period while he was in rehab - I was told. 
+- They quietly hire another writer I never meet, who works with the CTO Brian Spector (*he's the man*, Anita told me, in a kind of breathless reverence), who had been out of the company for a short period while he was in rehab - I was told. 
 - I wondered if they meant prison.
 - Anyway, the first time I notice that my entire UI can be hacked and rewritten (I'm on a company laptop), they publish my Whitepaper on their website, the honest one, but I can only see it from my laptop.
 - When I look the company up from a different device on a completely different network I see something very different.
