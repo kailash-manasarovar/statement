@@ -25,5 +25,5 @@ These two statements are inextricably linked.[^2]
 
 
 [^1]: [Daniel 9:27](https://www.biblegateway.com/passage/?search=Daniel%209:27&version=NIV), [Daniel 11:31](https://www.biblegateway.com/passage/?search=Daniel%2011%3A31&version=NIV), [Daniel 12:11](https://www.biblegateway.com/passage/?search=Daniel%2012%3A11&version=NIV), [Matthew 24:15](https://www.biblegateway.com/passage/?search=Matthew%2024%3A15&version=NIV), [Mark 13:14](https://www.biblegateway.com/passage/?search=%20Mark%2013%3A14&version=NIV).
-[^2]: *For wheresoever the carcase is, there will the vultures be gathered together.* Matthew 24:28
+[^2]: *Wherever there is a carcass, there the vultures will gather.* Matthew 24:28
 
