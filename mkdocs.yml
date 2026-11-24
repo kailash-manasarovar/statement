@@ -50,6 +50,41 @@ nav:
   - Dedication: dedication.md
   - Home: 
     - Summary: index.md
+  - How it all began:
+    - How it all began: timeline/how-it-began.md
+    - pre-2001:
+      - "1975": timeline/pre-2001/1975.md
+      - "1980": timeline/pre-2001/1980.md
+      - "1984": timeline/pre-2001/1984.md
+      - "1989": timeline/pre-2001/1989.md
+      - "1990": timeline/pre-2001/1990.md
+      - "1991": timeline/pre-2001/1991.md
+      - "1993": timeline/pre-2001/1993.md
+      - "1995": timeline/pre-2001/1995.md
+      - "1996": timeline/pre-2001/1996.md
+      - "1997": timeline/pre-2001/1997.md
+      - "1999": timeline/pre-2001/1999.md
+      - "2000": timeline/pre-2001/2000.md
+    - 2001 to 2010: 
+      - "2001": timeline/2001-to-2010/2001.md
+      - "2003": timeline/2001-to-2010/2003.md
+      - "2005": timeline/2001-to-2010/2005.md
+      - "2006": timeline/2001-to-2010/2006.md
+      - "2007": timeline/2001-to-2010/2007.md
+      - "2008": timeline/2001-to-2010/2008.md
+      - "2009": timeline/2001-to-2010/2009.md
+      - "2010": timeline/2001-to-2010/2010.md
+    - 2011 to 2020:
+      - "2011": timeline/2011-to-2020/2011.md
+      - "2012": timeline/2011-to-2020/2012.md
+      - "2013": timeline/2011-to-2020/2013.md
+      - "2014": timeline/2011-to-2020/2014.md
+      - "2015": timeline/2011-to-2020/2015.md
+      - "2016": timeline/2011-to-2020/2016.md
+      - "2017": timeline/2011-to-2020/2017.md
+      - "2018": timeline/2011-to-2020/2018.md
+      - "2019": timeline/2011-to-2020/2019.md
+      - "2020": timeline/2011-to-2020/2020.md
   - Day Of The Lord:
     - Day Of The Lord: timeline/day-of-the-lord.md
     - "2021":
@@ -124,41 +159,6 @@ nav:
       - September: timeline/2026/september.md
       - October: timeline/2026/october.md
       - November: timeline/2026/november.md
-  - How it all began:
-    - How it all began: timeline/how-it-began.md
-    - pre-2001:
-      - "1975": timeline/pre-2001/1975.md
-      - "1980": timeline/pre-2001/1980.md
-      - "1984": timeline/pre-2001/1984.md
-      - "1989": timeline/pre-2001/1989.md
-      - "1990": timeline/pre-2001/1990.md
-      - "1991": timeline/pre-2001/1991.md
-      - "1993": timeline/pre-2001/1993.md
-      - "1995": timeline/pre-2001/1995.md
-      - "1996": timeline/pre-2001/1996.md
-      - "1997": timeline/pre-2001/1997.md
-      - "1999": timeline/pre-2001/1999.md
-      - "2000": timeline/pre-2001/2000.md
-    - 2001 to 2010: 
-      - "2001": timeline/2001-to-2010/2001.md
-      - "2003": timeline/2001-to-2010/2003.md
-      - "2005": timeline/2001-to-2010/2005.md
-      - "2006": timeline/2001-to-2010/2006.md
-      - "2007": timeline/2001-to-2010/2007.md
-      - "2008": timeline/2001-to-2010/2008.md
-      - "2009": timeline/2001-to-2010/2009.md
-      - "2010": timeline/2001-to-2010/2010.md
-    - 2011 to 2020:
-      - "2011": timeline/2011-to-2020/2011.md
-      - "2012": timeline/2011-to-2020/2012.md
-      - "2013": timeline/2011-to-2020/2013.md
-      - "2014": timeline/2011-to-2020/2014.md
-      - "2015": timeline/2011-to-2020/2015.md
-      - "2016": timeline/2011-to-2020/2016.md
-      - "2017": timeline/2011-to-2020/2017.md
-      - "2018": timeline/2011-to-2020/2018.md
-      - "2019": timeline/2011-to-2020/2019.md
-      - "2020": timeline/2011-to-2020/2020.md
   - How's it going to end?:
     - We see him coming in the clouds: how-will-it-end/we-see-him-coming.md
     - Theories: how-will-it-end/theories.md
