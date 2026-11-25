@@ -51,7 +51,7 @@ function googleTranslateElementInit() {
 - I wonder if they wheeled the Valencia-based trumpet teacher out because I found the Dénia version so utterly abhorrent, and [I had *fallen in love* with the Valencia-based version](march.md#dreaming-of-the-trumpet-teacher), and so they needed to remind me of those feelings to retrigger the emotions and keep me hooked in?
 - Could teachers and staff at the conservatory of Dénia be this sick in the head?
 - Have they been doing the same to countless minors for decades?
-- Was the Dénia version of the trumpet teacher [Paco Sendra](../2001-to-2010/2007.md#hazel-smith), Hazel Smith's right-hand-man?
+- Was the Dénia version of the trumpet teacher [Paco Sendra](../2000-to-2010/2007.md#hazel-smith), Hazel Smith's right-hand-man?
 - Let's hope Paco does not play the trumpet, and that Antonio is an Aries.
 
 ## Muscle-men outside the tunnel
@@ -234,7 +234,7 @@ function googleTranslateElementInit() {
 - I say absolutely, yes.
 - It would be very much in the interests of the porn-gangs to make sure Alex never gets any true healing - I offered her TT a lot and she never took it up.
 - Did someone tell her to never enter my apartment due to the toxic load in there?
-- If Alex did get some decent help, she might remember some unusual events around the time of being manipulated into [believing she was sick](../2001-to-2010/2009.md#alessandra-gets-sick-or-does-she), in my view.
+- If Alex did get some decent help, she might remember some unusual events around the time of being manipulated into [believing she was sick](../2000-to-2010/2009.md#alessandra-gets-sick-or-does-she), in my view.
 
 ## Boring Ana
 

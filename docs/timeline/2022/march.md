@@ -37,7 +37,7 @@ function googleTranslateElementInit() {
 - He lives on one of the floors above me on my stairwell.
 - Sometimes he is with, what I assume to be, his later-years teenage daughter.
 - They are both fair haired. He is perhaps 45 and reasonably good looking.
-- She has exceedingly long blond hair and actually reminds me a little of [the woman on Dénia TV porn](../2001-to-2010/2008.md#denia-tv) in, what did you call it, standing spit? 🤮
+- She has exceedingly long blond hair and actually reminds me a little of [the woman on Dénia TV porn](../2000-to-2010/2008.md#denia-tv) in, what did you call it, standing spit? 🤮
 - She doesn't acknowledge me and has her head down looking at her phone.
 - The man grins at me again in a flirtatious way, but not quite flirtatious as he's not at all communicating with me.
 - I now believe he was involved from the start and perhaps was already watching me in my apartment. His grin, therefore, may have been rather more sinister.

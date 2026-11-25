@@ -83,7 +83,7 @@ function googleTranslateElementInit() {
 ## The sheer volume of it..
 
 - Is going to be the shock, isn't it - referring to the porn with me in.
-- I was wondering if people had seen it and thought I was conscious and consenting because of the open eyes, like [I had seen Yasmin do](../2001-to-2010/2008.md#yasmin-falls-asleep-with-her-eyes-open)?
+- I was wondering if people had seen it and thought I was conscious and consenting because of the open eyes, like [I had seen Yasmin do](../2000-to-2010/2008.md#yasmin-falls-asleep-with-her-eyes-open)?
 - And that's why so many were so appalled with me?
 - Could 95% of all the porn in circulation be of sedated-victims?
 

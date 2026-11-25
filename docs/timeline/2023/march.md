@@ -95,7 +95,7 @@ function googleTranslateElementInit() {
 
 - It seems likely the CIA had a big problem with Antonio early on - he may have recordings of the American Lockerbie bombers discussing the delay of Flight 103 - and the CIA may have murdered his daughter to keep him quiet about it.
 - Criminal gangs have been aware of who was behind the Lockerbie bombing for a very long time and there are suggestions that, specifically Liverpudlian for some reason, criminals have been paid off in the region of 300K for their silence about it and other matters related to it.
-- This is how Auggie was aware of my impending wealth; he was told about me and others by his CIA friends (possibly even via [the Liverpudlian gangster I mentioned](../2001-to-2010/2001.md#what-i-didnt-know-at-that-moment-was) who was in prison in Amsterdam - Curtis Warren) way back in 1998/1999 - they couldn't jail him in the UK obviously.
+- This is how Auggie was aware of my impending wealth; he was told about me and others by his CIA friends (possibly even via [the Liverpudlian gangster I mentioned](../2000-to-2010/2001.md#what-i-didnt-know-at-that-moment-was) who was in prison in Amsterdam - Curtis Warren) way back in 1998/1999 - they couldn't jail him in the UK obviously.
 - He never once suspected the CIA murdered Diana - some lies are even *that* big - but some did, especially Antonio who may also have some hacking evidence towards it or perhaps he was just suspicious that they would have tasked the Cano Lopez's with such an "important" (for them) crime. It didn't make sense.
 - And then, after the unexpected and massive reaction from the public, and then everyone heard how they didn't get paid, he knew.
 - It's curious that the police phoned my mum up about her white Fiat Uno in regards to the investigation - early hints maybe?
@@ -238,7 +238,7 @@ function googleTranslateElementInit() {
 ## zkSync
 
 - I start my new role at zkSync.
-- Looking back, I'm certain some of the men at zkSync were subscribing to the spy-cam porn and were aware of [my sedated rape-porn history](../2001-to-2010/2003.md#porn-fatwa).
+- Looking back, I'm certain some of the men at zkSync were subscribing to the spy-cam porn and were aware of [my sedated rape-porn history](../2000-to-2010/2003.md#porn-fatwa).
 - My role at zkSync was another fabulous job which turns sour the minute you walk through the door, really sour.
 - The men at zkSync build up the stress and tension, in-step with teachers and staff at the porn-school conservatory of Dénia, to extraordinary levels on the run up to [12th June 2023](../2023/june.md#monday-12th-june-2023), my "funeral", after which I resign.
 - I believe my resignation was a requirement from the gangs, and expected, especially by [Bruno who was ready to make his move](june.md#sunday-18th-june-alicante-airport).

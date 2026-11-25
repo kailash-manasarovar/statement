@@ -59,8 +59,8 @@ function googleTranslateElementInit() {
 
 ![Glastonbury Tor](../../content/images/glastonbury-tor.webp)
 
-- More curiously, perhaps, at least for me, is the fact that this was the B&B I stayed at when I studied shamanism in 2005, just after I got some money out of the blue, and my visit there may have marked one of the [first times I was very obviously monitored by British criminal gangs for the purposes of ... everything this statement is about](../2001-to-2010/2005.md#warrior-in-the-heart). 
-- [Richard stayed at the same B&B](../2001-to-2010/2005.md#richard-works-for-the-criminal-gangs) which means I was hacked way back then!
+- More curiously, perhaps, at least for me, is the fact that this was the B&B I stayed at when I studied shamanism in 2005, just after I got some money out of the blue, and my visit there may have marked one of the [first times I was very obviously monitored by British criminal gangs for the purposes of ... everything this statement is about](../2000-to-2010/2005.md#warrior-in-the-heart). 
+- [Richard stayed at the same B&B](../2000-to-2010/2005.md#richard-works-for-the-criminal-gangs) which means I was hacked way back then!
 - In July 2022, I visited again and stayed in another healing centre close by where they run colonic fasting retreats.
 - On the third night of my stay, the retreat leader asked me if I wanted to sleep with a powerful crystal in my room for the night.
 - I saw no reason why not to experiment, and agreed.
@@ -134,5 +134,5 @@ function googleTranslateElementInit() {
 - These are my suspicions:
     
     - Money into the first account was probably going directly to the landlady: December 2021-August 2022.
-    - After the meeting in Las Marinas in which [my demise was carefully planned and agreed](#crystal-dreaming), the recipient probably changed to the persons taking the most risk, i.e. the trumpet teacher and Domingo's gang, along with [local criminal organizations](../2001-to-2010/2007.md#hazel-smith) who were certain to trigger a mental breakdown, or worse, by their online actions; just as had happened to [Lorraine Blackbourn](../2021/july.md#lorraine-blackbourn-commits-suicide) and others no doubt: August 2022-August 2024.
+    - After the meeting in Las Marinas in which [my demise was carefully planned and agreed](#crystal-dreaming), the recipient probably changed to the persons taking the most risk, i.e. the trumpet teacher and Domingo's gang, along with [local criminal organizations](../2000-to-2010/2007.md#hazel-smith) who were certain to trigger a mental breakdown, or worse, by their online actions; just as had happened to [Lorraine Blackbourn](../2021/july.md#lorraine-blackbourn-commits-suicide) and others no doubt: August 2022-August 2024.
     - The third account, changed in August 2024 after even brave Paqui (unpaid) Fornet's plot failed, was probably that of Carmen Cano and/or associates tasked with finally finishing me off by poison, likely pesticides doused all over my belongings and hazardous levels of methanol added to the mains water which made me very unwell and included extraordinary hallucinations over the last two weeks I stayed there in October 2024.

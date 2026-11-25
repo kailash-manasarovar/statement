@@ -44,7 +44,7 @@ function googleTranslateElementInit() {
 
 - One of the men who lived in a ground floor flat in my building was sitting outside his apartment one afternoon as I came home.
 - He was upset.
-- [Ugly's friend](../2001-to-2010/2001.md#amsterdam), the poisoning and drugging, serial-sedating-rapist we met in the bar in Amsterdam, the man I would see again in [Benijembla in November 2022 with Chris BJ and Trish Penny](../2022/november.md#walking-in-benijembla-with-the-english-ladies), had been round that weekend and they'd had [parties and loud music](march.md#the-portuguese-man-next-door).
+- [Ugly's friend](../2000-to-2010/2001.md#amsterdam), the poisoning and drugging, serial-sedating-rapist we met in the bar in Amsterdam, the man I would see again in [Benijembla in November 2022 with Chris BJ and Trish Penny](../2022/november.md#walking-in-benijembla-with-the-english-ladies), had been round that weekend and they'd had [parties and loud music](march.md#the-portuguese-man-next-door).
 - No doubt Ugly's mate was up to something in my apartment whenever I was out praying at the Grotto.
 - I used to always smile and say hello to the French men, even though they were a bit rough and unruly.
 - I thought they were decent enough chaps and they always said hello to me too.

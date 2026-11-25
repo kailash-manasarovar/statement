@@ -251,7 +251,7 @@ function googleTranslateElementInit() {
 
 ![Knowth gestationary periods](../../content/images/knowth.webp)
 
-- It's Richard, the man who [popped up in Glastonbury](../2001-to-2010/2005.md#richard-works-for-the-criminal-gangs) way back in 2005 just after I had received the Lockerbie compensation and the [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) had begun in earnest.
+- It's Richard, the man who [popped up in Glastonbury](../2000-to-2010/2005.md#richard-works-for-the-criminal-gangs) way back in 2005 just after I had received the Lockerbie compensation and the [porn fatwa](../2000-to-2010/2003.md#porn-fatwa) had begun in earnest.
 - The man who had been tasked with stalking me by North London criminal gangs.
 - I'm so startled; I'm staring right at him.
 - It's his profile, exactly.

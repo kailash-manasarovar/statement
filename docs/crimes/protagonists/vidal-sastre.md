@@ -145,10 +145,10 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - Tall, muscular, bad-tempered, and always dressed in black; I would recognize this man immediately if I saw him again.
 - He was the man [Patricia Penny *introduced* me to in Benijembla](../../timeline/2022/november.md#walking-in-benijembla-with-the-english-ladies) the week before he turned up at class - after swapping with the [good-looking one who had just set up the love-triangle trick with Ana](../../timeline/2022/november.md#the-trumpet-teacher).
 - He was the man that [stalked me at Lourdes](../../timeline/2021/march.md#the-portuguese-man-next-door) in 2020, perhaps also setting up sedated-rape events in my studio there.
-- I remember him [driving Auggie](../../timeline/2001-to-2010/2001.md#amsterdam) in 2001 in Amsterdam, along with [the man who set up a fake job interview with me in 2016](#6-viktor-the-man-that-interviewed-me-for-a-job-in-2016). They were both in the bar the night before.
-- He was also [a student in an English class I gave in 2013](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn). 
+- I remember him [driving Auggie](../../timeline/2000-to-2010/2001.md#amsterdam) in 2001 in Amsterdam, along with [the man who set up a fake job interview with me in 2016](#6-viktor-the-man-that-interviewed-me-for-a-job-in-2016). They were both in the bar the night before.
+- He was also [a student in an English class I gave in 2013](../../timeline/2000-to-2010/2008.md#lorraine-blackbourn). 
 - He called himself Mark and I believe that is his name.
-- I [found him attractive](../../timeline/2001-to-2010/2008.md#lorraine-blackbourn), sitting right in front of my desk. He was flirting very gently with me.
+- I [found him attractive](../../timeline/2000-to-2010/2008.md#lorraine-blackbourn), sitting right in front of my desk. He was flirting very gently with me.
 - I was working for Lorraine Blackbourn at the time, and this Mark looked a lot like her husband who she hadn't yet left.
 - He was [the child trafficker giving instructions to a small boy in the street in 2015](../../timeline/2011-to-2020/2015.md#the-child-traffickers-instructions).
 - I remember seeing this man numerous times at the conservatory during the switcheroo scam, including but not limited to the following examples:
@@ -249,7 +249,7 @@ The chances of me being one of the eldest victims in the conservatory system (th
 - In the Autumn of 2023, I saw him [driving Ana Requena's (trumpet teacher girlfriend) blue car slowly past me](../../timeline/2023/october.md#the-trumpet-teacher-drives-past-me-in-his-car) close to my apartment.
 - He knew I'd recognize him as *trumpet teacher*.
 - My view today is that whenever he did this, he was about to enter, or just had been in my apartment while I was sedated. A few times I saw men that looked just like him in cars outside my apartment, but I never mistook any of them for the trumpet teacher. I knew they were relations though. Some of them were driving flash cars. I expect these men had been in my home too. I'd remember them as well as this man.
-- He was one of the men in the bar with [Brian in Amsterdam in 2001](../../timeline/2001-to-2010/2001.md#amsterdam) and in one of the cars the next morning. I may have told him he was greasy before going unconscious in the bar and being led back to our room.
+- He was one of the men in the bar with [Brian in Amsterdam in 2001](../../timeline/2000-to-2010/2001.md#amsterdam) and in one of the cars the next morning. I may have told him he was greasy before going unconscious in the bar and being led back to our room.
 - This man also [interviewed me online for a job where I would be looking at genitals all day](../../timeline/2011-to-2020/2016.md#march) in 2016, and I saw him in the town not long after.
 - At the time, he told me his name was Viktor, but I suspect his name is Dani for some reason.
 - This man, and the previous one, are the man (men) I gave [the nickname Vigas](../../timeline/2024/august.md#interview-with-the-hacker) to when nothing made any sense.

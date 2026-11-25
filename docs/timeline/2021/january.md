@@ -41,7 +41,7 @@ function googleTranslateElementInit() {
 - Well you wouldn't want me hanging around if you knew murderous gitano porn-gangs had me in their sights, would you.
 
 !!! tip "An alternative motive"
-    - Given what was coming up for me had been [in planning for decades](../2001-to-2010/2003.md#porn-fatwa), and given the very lucrative tech-bro porn-addict market which I was centred in professionally, there is another potential motive for this ridiculous contract.
+    - Given what was coming up for me had been [in planning for decades](../2000-to-2010/2003.md#porn-fatwa), and given the very lucrative tech-bro porn-addict market which I was centred in professionally, there is another potential motive for this ridiculous contract.
     - Perhaps Chronicle were tasked with assessing my tech skills and understanding, to check if I would notice the most obvious scam at [Qredo](march.md#qredo).
     - Their close contacts in the industry, such as Adaptive, never bothered to give me any actual work, or talk to or treat me like a human being, so they would have assumed I was an idiot.
     - Did Chronicle spend three weeks assessing whether or not I really was an idiot, and report back that I was, just like every female-tech-colleague?
@@ -55,7 +55,7 @@ function googleTranslateElementInit() {
 - There were multiple threads:
     1. Porn-gang manipulation through tailored social media, search results, manipulated travel and decision making, conspiratorial work contracts, and drugging and poisoning in my food, water and toiletries probably from as early as March of this year.
     1. Porn-gang training through US TV special, Mad Men, which was hackingly decorated with *actual* gay porn with the main main *popping up* somehow on my social media or search results. Interesting and extremely unappealing. In fact, I couldn't watch much of this repeated woman-humiliating lifetime spree it was so awful.
-    1. On one occasion the main man from Mad Men was mentioned as being "greasy" on my hacked social media which is a direct reference to something I told one of [Ugly's mates](../2001-to-2010/2001.md#amsterdam) and [switcheroo trumpet-teachers](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man) at the bar in Amsterdam in 2001.
+    1. On one occasion the main man from Mad Men was mentioned as being "greasy" on my hacked social media which is a direct reference to something I told one of [Ugly's mates](../2000-to-2010/2001.md#amsterdam) and [switcheroo trumpet-teachers](../../crimes/protagonists/vidal-sastre.md#5-dark-thick-curly-haired-deep-set-man) at the bar in Amsterdam in 2001.
     1. Spy training through French crime TV special, Le Bureau. This show was *amazing*, albeit a bit French from time to time with excessive and unnecessary sex, and some obvious (euphemistic) paranoid nonsense too.
     1. Spiritual training through Israeli TV special, Shtisel. I loved this show so much.
     1. Spiritual training from Mary and her angels, all day every day.

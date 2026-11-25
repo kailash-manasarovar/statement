@@ -139,7 +139,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 
 ### Hazel Smith tries to murder me by poisoning in 2007
 
-- British serial killers living safely in Dénia targeted me [directly in 2007](timeline/2001-to-2010/2007.md#hazel-smith) and it took a long while to figure out why.
+- British serial killers living safely in Dénia targeted me [directly in 2007](timeline/2000-to-2010/2007.md#hazel-smith) and it took a long while to figure out why.
 - Hazel Smith had been tasked with poisoning me by the Americans I had met the week before at a Kabbalah conference in Barcelona.
 - I survived.
 - I don't believe Hazel and others realized the implications of this at the time; but I'm certain my future helpers did.
@@ -183,7 +183,7 @@ However, I am aware of growing international support for my endeavors; and a sol
 - At the end of October 2024, I was supposed to die by poisoning with brake-fluid, anti-freeze, pesticides, and methanol [added maliciously to the water and air vents in my flat](timeline/2024/october.md#serious-poisoning-with-intent-to-kill), doused over all my belongings, and added to my bathroom products for absorption through the skin.
 - In [July 2025 in Lourdes](timeline/2025/july.md#lourdes), the Lopez Cano gang tried again to murder me with digitalis and other substances on American and UN orders.
 - In June 2026, the Americans tried once again to [murder me by poison at Everest Base Camp](timeline/2026/june.md#kailash-team-who-dun-it) and whatever they used was so toxic I nearly went blind and I suffered intense fatigue for weeks.
-- Previously, Hazel Smith had tried to [murder me by poisoning in 2007](timeline/2001-to-2010/2007.md#hazel-tries-to-kill-me), and I wonder if perhaps Patrick Evers - a man I had met in Mallorca in 1999 - had tried and failed in the year 2000 when I ended up in hospital in Amsterdam with blood poisoning.
+- Previously, Hazel Smith had tried to [murder me by poisoning in 2007](timeline/2000-to-2010/2007.md#hazel-tries-to-kill-me), and I wonder if perhaps Patrick Evers - a man I had met in Mallorca in 1999 - had tried and failed in the year 2000 when I ended up in hospital in Amsterdam with blood poisoning.
 
 ### Sedated-rape
 
@@ -192,11 +192,11 @@ However, I am aware of growing international support for my endeavors; and a sol
 - It turns out, they had been sedating and raping me for years already, long before the "switcheroo" events and my sex-slave porn-stardom at the Vilamar apartments of Carrer Furs, Dénia, between 2022 and 2024.
 - I was repeatedly sedated, raped, and filmed in my homes in Joan Fuster between 2014-2016, Passeig Periodista Ramon Ortega between 2012-2014, and even in Cami Llavador between 2006-2009.
 - My father brought my mother to Dénia for the same reason in 2016.
-- I was sedated and raped in [Amsterdam in 2001](timeline/2001-to-2010/2001.md#amsterdam) by my boyfriend Brian and his criminal associates from North London and Dénia.
+- I was sedated and raped in [Amsterdam in 2001](timeline/2000-to-2010/2001.md#amsterdam) by my boyfriend Brian and his criminal associates from North London and Dénia.
 - One of those criminal associates, a man with a severe facial disfigurement who may be related to another ex-boyfriend of mine Matthew Copeland, was set up to [repeat that event](timeline/2024/august.md#ugly) in France in 2024 when the porn-gangs were panicking and needed someone to throw under the bus.
 - I was sedated and raped repeatedly in August-September of 1989 in Tottenham by North London rape-gangs.
-- I was sedated and raped by a multitude while believing I was a member of [the N8 band](timeline/pre-2001/1990.md#n8) between 1990-1992, and all the boyfriends I have had since then knew me for this reason and so continued the sedate-and-rape efforts.
-- It is likely that [Ray Archer's house in Queen's Avenue Muswell Hill](timeline/pre-2001/1996.md#ray-archer) was a brothel/rape-house that even my father and his mates visited.
+- I was sedated and raped by a multitude while believing I was a member of [the N8 band](timeline/the-90s/1990.md#n8) between 1990-1992, and all the boyfriends I have had since then knew me for this reason and so continued the sedate-and-rape efforts.
+- It is likely that [Ray Archer's house in Queen's Avenue Muswell Hill](timeline/the-90s/1996.md#ray-archer) was a brothel/rape-house that even my father and his mates visited.
 - And of course, not forgetting crypto-giant [Polygon's conference in Bali in May 2024](timeline/2024/may.md#bali) where I was sedated-and-raped for a whole week, multiple famous men in attendance.
 - Throughout my life, I have continually met other women who I now believe have suffered similarly.
 - It is my view, this morning, that my extreme and exaggerated experience of sedated-rape throughout my life is meant to survive a mighty purpose: resetting the human mind, making us sane again. 

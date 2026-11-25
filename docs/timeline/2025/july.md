@@ -459,7 +459,7 @@ function googleTranslateElementInit() {
 
 ## Damning updates
 
-- I write a number of damning updates such as [Alessandra's fake illness](../2001-to-2010/2009.md#alessandra-gets-sick-or-does-she) and [Lorraine's daughter's online grooming](../2011-to-2020/2013.md#lorraines-trans-child).
+- I write a number of damning updates such as [Alessandra's fake illness](../2000-to-2010/2009.md#alessandra-gets-sick-or-does-she) and [Lorraine's daughter's online grooming](../2011-to-2020/2013.md#lorraines-trans-child).
 - An account follows me immediately afterwards.
 - Note they are even able to manipulate the date of the follow to two days previous.
 

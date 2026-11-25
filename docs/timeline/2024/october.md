@@ -355,7 +355,7 @@ function googleTranslateElementInit() {
 - Trish or whoever (via the `@january_myth` account) informs me the twin trumpet-teacher brothers can't make the walk because they don't want to be photographed.
 - This is where I was at with my manipulated and very faulty understanding of everything that had happened to me by October 2024.
 - In my perma-spiked-high perception, there was still only one trumpet teacher I loved, but he had a twin brother that [I'd seen in the street](../2023/december.md#the-trumpet-teacher-has-a-brother).
-- This faulty understanding is further reinforced by [the angel picture](../2001-to-2010/2001.md#memories-of-the-past-triggered-on-x) soon to be posted on X, which will remind me of [something even more startling and related](../2001-to-2010/2001.md#amsterdam).
+- This faulty understanding is further reinforced by [the angel picture](../2000-to-2010/2001.md#memories-of-the-past-triggered-on-x) soon to be posted on X, which will remind me of [something even more startling and related](../2000-to-2010/2001.md#amsterdam).
 - After I pass the Mena restaurant, I see a family out walking with a young person (clearly part of the trans cult) who looks very unwell.
 - I wonder if they've been taking puberty blockers, and it looks like they may have even had top surgery.
 - They all look very sad.
@@ -508,7 +508,7 @@ function googleTranslateElementInit() {
 - His wife is embarrassed and looking down in the passenger seat. 
 - How does he know I'll be at the bins so he can glare at me? 
 - What's he trying to say to me?
-- The two look familiar, and I think they might be part of the Dénia TV crowd I've seen online or even on [terrestrial TV back in the day](../2001-to-2010/2008.md#denia-tv).
+- The two look familiar, and I think they might be part of the Dénia TV crowd I've seen online or even on [terrestrial TV back in the day](../2000-to-2010/2008.md#denia-tv).
 - They also remind me of people that attended the [June 2023 piano concert](../2023/june.md#june-9th-piano-concert).
 - They sat in the row in front of us.
 - I remain amazed that anyone could be angry at the person they have been terrorizing relentlessly for years.
@@ -565,7 +565,7 @@ function googleTranslateElementInit() {
 - It feels like industrial-scale woman-hating and tacitly-accepted sexual grooming of minors, and worse.
 - Her words suggest thousands of ignored complaints.
 - No wonder Dénia happened.
-- I then tell her about Hazel and Sandra Smith, and how I have known who and what they are since 2007, about how they were at the Old Bailey for honey-trapping, poisoning, and murdering wealthy elderly people in London in the 90s and how they were found not guilty, about how they've been free to target the ex-pat elderly in the Marina Alta, about how Hazel is the accountant for hundreds of vulnerable British people, and about how [she tried to murder me by poisoning in 2007](../2001-to-2010/2007.md#hazel-smith).
+- I then tell her about Hazel and Sandra Smith, and how I have known who and what they are since 2007, about how they were at the Old Bailey for honey-trapping, poisoning, and murdering wealthy elderly people in London in the 90s and how they were found not guilty, about how they've been free to target the ex-pat elderly in the Marina Alta, about how Hazel is the accountant for hundreds of vulnerable British people, and about how [she tried to murder me by poisoning in 2007](../2000-to-2010/2007.md#hazel-smith).
 - I tell Paloma that the Smiths are working with the Spanish criminals based at the conservatory.
 - Inma says she remembers me mentioning something in 2007.
 - I had told Inma back then that I had seen well-known British criminals in the Marina Alta, Las Marinas to be precise, without giving any details.
@@ -663,7 +663,7 @@ function googleTranslateElementInit() {
 - I used to think it was because of my anti-woke, women's rights activities and the extraordinary manner in which an industrial spy (Nadim) was free to cause enormous trouble with the backend tech systems, and find out about my private political activities and stick the boot in for me, just weeks after I started.
 - I was wrong about Nadim.
 - [He was an actor](../2023/november.md#nadim-kobesi), hired to abuse me for a criminal porn-addict community.
-- The [porn fatwa](../2001-to-2010/2003.md#porn-fatwa) had made me part of a very lucrative porn genre; the *female-tech-colleague-you-despise* genre.
+- The [porn fatwa](../2000-to-2010/2003.md#porn-fatwa) had made me part of a very lucrative porn genre; the *female-tech-colleague-you-despise* genre.
 - Everything I did in my life was monitored and manipulated by hackers for the paying porn addicts, and these were often men working alongside me in tech companies.
 - Furthermore, anyone at Polygon who knew what had happened to me at [the Bali offsite](may.md#bali), and what was happening to me at the hands of criminal gangs in Denia, will have probably known I was going to murdered soon; it's what they do.
 - Did they get a tip off via Paloma or the criminals, advising them to fire me before I was murdered?

@@ -141,7 +141,7 @@ function googleTranslateElementInit() {
     - Standing spit - referencing a sedated porn position.
     - Three-legged dog - referencing my neighbors dog in Las Marinas who may have starred in porn with me.
     - *Just another lemon tree*, musical backing track to applied hyno-tech in 2023 - proof that the salmon mousses were hacking me alongside the porn-gangs in Las Marinas.
-    - *Project Jonathan* - constant references online to this and a few times at the centre. This is in relation to [Jonathan, Mrs Wasserman's nephew, getting an egg](../2025/september.md#jonathan-tells-me-he-has-the-shingles-virus) from me. This makes me think in August when I'm in Jerusalem that they've set the Jews up to take the blame for this. Or did they have another evil scheme in mind, who knows. Perhaps they're aware my internal injuries are not going to be ignorable for so long. Ironically, throwing the Jews under the bus like this becomes significant and top-of-mind, and gets me thinking about [Michael Sullivan who worked for Pan Am](../pre-2001/1989.md#sullivan).
+    - *Project Jonathan* - constant references online to this and a few times at the centre. This is in relation to [Jonathan, Mrs Wasserman's nephew, getting an egg](../2025/september.md#jonathan-tells-me-he-has-the-shingles-virus) from me. This makes me think in August when I'm in Jerusalem that they've set the Jews up to take the blame for this. Or did they have another evil scheme in mind, who knows. Perhaps they're aware my internal injuries are not going to be ignorable for so long. Ironically, throwing the Jews under the bus like this becomes significant and top-of-mind, and gets me thinking about [Michael Sullivan who worked for Pan Am](../pre-1990/1989.md#sullivan).
     - You can help so many sick people in the world - suggesting because I survive poisoning there's something inherent in my body that can help them: their total and utter reinterpretation of Jesus.
     - I practice naked yoga - one of the men says this. Urgh.
     - Dr. Strange - the first slide in physiology class. I was curious about how he made that contextual but I was so disassociated I never found out.
@@ -439,7 +439,7 @@ function googleTranslateElementInit() {
 
 ### Another criminal is brought around the world for viewing
 
-- This time, they bring [Rene from Australia](../2001-to-2010/2003.md#turtles); I've literally just remembered her at the turtle beach and written about the strange incident with her in 2003 just two or three days before.
+- This time, they bring [Rene from Australia](../2000-to-2010/2003.md#turtles); I've literally just remembered her at the turtle beach and written about the strange incident with her in 2003 just two or three days before.
 - It's only a short hop to Australia so they could have hauled her out quite easily, especially if she was in prison which is likely.
 - She's sitting with an agent by the pool one afternoon when I turn up.
 - She keeps the towel over her face.
@@ -490,7 +490,7 @@ function googleTranslateElementInit() {
 - I can see it's definitely me, however.
 - I'm naked and apparently sitting up, although the camera man could be taking the photo from above, I guess, while my head is propped up on a pillow.
 - Incidentally, my silhouetted head is exactly the same shape (maybe size too, I've got a big ole bonce) as General George Patton's, my ancestor (not yet confirmed but likely).
-- I'm looking down my naked body - I'm not sure if my eyes are open but I guess they will be as that's how [the Dénia gang's sedating substances function - see Zoe's daughter Yasmin in 2008](../2001-to-2010/2008.md#yasmin-falls-asleep-with-her-eyes-open).
+- I'm looking down my naked body - I'm not sure if my eyes are open but I guess they will be as that's how [the Dénia gang's sedating substances function - see Zoe's daughter Yasmin in 2008](../2000-to-2010/2008.md#yasmin-falls-asleep-with-her-eyes-open).
 - Around my groin and genital area is the back of a man's head. You can see messy hair.
 - I try to figure out the date of this outrage but it's too difficult as my face is in shadow.
 - I guess it could have been anytime up to [poisoning in October 2024](../2024/october.md#serious-poisoning-with-intent-to-kill) when I started to put excessive weight on around my vital organs, because I couldn't see any evidence of that.
@@ -640,7 +640,7 @@ function googleTranslateElementInit() {
 - No, they don't operate this way: *loving and kind*.
 - The irony is that *loving and kind* is true strength - and that doesn't include saying *be kind* to everyone and being quite the opposite.
 - Auto-violence and violation as core process is a mighty declaration of weakness.
-- In any case, they owe me billions since [Tanya (Tanya!! omg) recruited me for the intuitive program in April 2006](../2001-to-2010/2006.md#total-eclipse-of-the-sun), without my consent or conscious awareness, and I helped bring down a real thorn in their side, single-handedly, while they knew I could be counted on to be raped, murdered, whatever... and no-one would give a damn.
+- In any case, they owe me billions since [Tanya (Tanya!! omg) recruited me for the intuitive program in April 2006](../2000-to-2010/2006.md#total-eclipse-of-the-sun), without my consent or conscious awareness, and I helped bring down a real thorn in their side, single-handedly, while they knew I could be counted on to be raped, murdered, whatever... and no-one would give a damn.
 - Actually, I think I was recruited right after Lockerbie and Winston May and his gang were tasked by the CIA to start up the required trauma and immersion into porn world I would need to fit right in in Dénia. And I think I know how and who set that up too.
 - And *that* is the main reason their attitude towards me prevails, while leading me into fiery furnaces they cannot even have imagined back then; that I, an innocent tax-paying civilian that has done the impossible, am utterly worthless, apart from my eggs which they'll literally murder to get hold of.
 - Adams and the porn-gangs of Spain knew, didn't they, and that's why they were astronomically outrageous with me, isn't it. 

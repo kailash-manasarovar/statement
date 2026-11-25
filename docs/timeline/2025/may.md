@@ -26,7 +26,7 @@ function googleTranslateElementInit() {
 - She looks at me intently but does not say anything.
 - I note this.
 - She does it in exactly the same way the [Naama Levy lookalike looked at me in Bangkok in November 2024](../2024/november.md#a-woman-who-looks-like-naama-levy-is-in-reception), as if they've both attended the same formal training course on this.
-- Me and mum met Tanya on the [eclipse tour of 2006 in Egypt](../2001-to-2010/2006.md#total-eclipse-of-the-sun) and I told mum I had seen her in Dublin when I got back to London.
+- Me and mum met Tanya on the [eclipse tour of 2006 in Egypt](../2000-to-2010/2006.md#total-eclipse-of-the-sun) and I told mum I had seen her in Dublin when I got back to London.
 - Tanya and I had gone to dinner together in Cairo and shared personal stories on sedated rape; and her experience, she said, had been on a dinner date in Italy.
 - I believe that this is where I was first signed up without my knowledge or consent for the CIA's intuitive program whose main goal was to keep an eye on the criminal gangs of Dénia, some of whom have been a major thorn in their side.
 - Mum still has Tanya on her Facebook. Here she is: 
@@ -219,7 +219,7 @@ function googleTranslateElementInit() {
 ## Meeting Chris & Desa before I fly to Israel
 
 - I meet old friends Chris and Desa Ludwick who live in Stevenage near Luton airport.
-- I was in [the N8 band with Chris Ludwick in 1990](../pre-2001/1990.md#n8) and we've been great friends ever since.
+- I was in [the N8 band with Chris Ludwick in 1990](../the-90s/1990.md#n8) and we've been great friends ever since.
 - For a long time, they were the only friends I had in the world.
 - I'm staying at a hotel in Luton the night before I fly out because the flight is so early.
 - We meet for dinner, drinks, a chat and a walk in the grounds of the hotel.
@@ -238,7 +238,7 @@ function googleTranslateElementInit() {
 - And Chris is my friend, so I don't like it.
 - I explain all this over dinner this evening because it all comes up again - Desa explaining how much she likes Matthew Copeland.
 - Some backstory required.
-- Early on in their relationship, I tell [Matthew Copeland](../pre-2001/1993.md#matthew-copeland) that I don't really like Desa very much and I tell him why - she's always putting Chris down.
+- Early on in their relationship, I tell [Matthew Copeland](../the-90s/1993.md#matthew-copeland) that I don't really like Desa very much and I tell him why - she's always putting Chris down.
 - We all go to dinner one time, the four of us. I'm guessing this is 2007 when I visit Matthew, but it could have been a lot earlier. They weren't yet married at the time so it may have even been around 2002.
 - We have dinner near the old snooker club (or maybe in a restaurant that replaced the snooker club) in Tottenham Lane opposite the YMCA.
 - We're having dinner, and Matthew declares: *Kate doesn't like you*, to Desa.

@@ -20,7 +20,7 @@ function googleTranslateElementInit() {
 - Whenever he visited, on usually a Sunday or Monday night, he got together with some of the younger men there and they had loud drinking sessions into the night and played loud rave music.
 - The staff at the Acacia will remember him; as will the male residents who drank with him, some of whom I will know too.
 - Was he sent by British criminal gangs to hack into my home network and begin poisoning me so that I became brain damaged, making me unable to recognize differences in objects out of context - and so believe [a bunch of different men to be the same one man](../../crimes/protagonists/vidal-sastre.md#eight-distinct-men-posing-as-trumpet-teacher)?
-- I also believe that [he was one of Ugly's drivers](../2001-to-2010/2001.md#amsterdam) back in 2001, and he probably wanted to test I didn't recognize him from then either.
+- I also believe that [he was one of Ugly's drivers](../2000-to-2010/2001.md#amsterdam) back in 2001, and he probably wanted to test I didn't recognize him from then either.
 
 !!! tip "Thoughts on this startling realization"
     - Gypsies usually speak multiple languages fluently, and I suspect it would not be hard to convince the French staff he was Portuguese not Spanish, except for identification documents.
@@ -40,13 +40,13 @@ function googleTranslateElementInit() {
 
 - Soon after the [Chronicle Software](january.md#chronicle-software) role goes sour, I'm offered a new contract with a crypto company [Qredo](https://www.qredo.com/), now broken try [Qredo Network](https://qredo.network/app) also broken; interestingly now **wiped** off LinkedIn (time of writing September 2026) which would need some backend mousse help. 
 - On the first day, I see a name fly-by on Slack: *Anita Diamond* - (oh, is Anita Diamond a salmon mousse operative? Does she know about it?).
-- You may remember [Anita and her husband visiting me in Dénia in 2006](../2001-to-2010/2006.md#matthew-goes-upstairs-on-his-own), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../2001-to-2010/2006.md#dave-porter-on-guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel (Fiona) Smith](../2001-to-2010/2007.md#hazel-smith) and her manipulation-tech associates.
+- You may remember [Anita and her husband visiting me in Dénia in 2006](../2000-to-2010/2006.md#matthew-goes-upstairs-on-his-own), just before the [Dave Porter Guardian Soulmates porn-fatwa fiasco](../2000-to-2010/2006.md#dave-porter-on-guardian-soulmates), orchestrated online by [world-famous poisoner and serial-killer Hazel (Fiona) Smith](../2000-to-2010/2007.md#hazel-smith) and her manipulation-tech associates.
 - This is a huge coincidence - or is it?
 - Anita Diamond, it turns out, is also working as a technical writer for the company, the role I've just been hired for.
 - Did they really need two?
 - I'm very surprised to see Anita, an old, dear, and vulnerable friend who has suffered from serious mental health issues ever since she was a teenager.
 - Like all porn-gang-tailored relationships, something happens when they're done with you that ensures you don't maintain communication.
-- Anita and Matthew had been [rather unpleasant with me](../2001-to-2010/2006.md#matthew-and-anita-say-something-i-only-mentioned-online) after they visited, so I'm not entirely thrilled to see her and wonder how things are going to be.
+- Anita and Matthew had been [rather unpleasant with me](../2000-to-2010/2006.md#matthew-and-anita-say-something-i-only-mentioned-online) after they visited, so I'm not entirely thrilled to see her and wonder how things are going to be.
 - We reconnect, and I'm friendly and happy to see her.
 - I am delighted to see her, in fact, and remember only the good things I always loved about her when we were at school together.
 - Nevertheless, something is off.
@@ -85,7 +85,7 @@ function googleTranslateElementInit() {
 ### Anita tells me about her experience as a female-tech-colleague-you-hate
 
 - During one of our early chats before our relationship breaks down (monitored online and manipulated no doubt), Anita describes a time she was working for another crypto tech-firm in the City of London, pre-covid.
-- She details word-for-word the sort of thing I have experienced continually in my contract tech roles, and her story very much reminds me of [my time at Adaptive](../2011-to-2020/2018.md#hired-for-sport-again-at-weareadaptive) and [working for Mike Wenham](../2001-to-2010/2010.md#mike-wenham).
+- She details word-for-word the sort of thing I have experienced continually in my contract tech roles, and her story very much reminds me of [my time at Adaptive](../2011-to-2020/2018.md#hired-for-sport-again-at-weareadaptive) and [working for Mike Wenham](../2000-to-2010/2010.md#mike-wenham).
 - I wondered if men had gone so totally mad that they only hire us for sport these days.
 - But we've had good experiences at work too, so it doesn't make any real sense to generalize like this.
 - Today, I wonder if Anita had also starred in a series of the *female-tech-colleague-you-despise* porn genre.

@@ -128,7 +128,7 @@ function googleTranslateElementInit() {
 
 - At least I kept them busy. 
 - Here's an example from August in which I replied to a fake account on Signal.
-- At the time I thought it must be [Hazel Smith](../2001-to-2010/2007.md#hazel-smith).
+- At the time I thought it must be [Hazel Smith](../2000-to-2010/2007.md#hazel-smith).
 - Reading this back today, I wonder if I was, in fact, speaking to [Ugly](#ugly), and he mistook it for an invitation, and took me up on it?
 
 ![](../../content/images/signal-2.jpg)
@@ -410,7 +410,7 @@ function googleTranslateElementInit() {
 - I do not screenshot the profile or keep a link to it.
 - To be fair to the man, his ugliness looks like the result of being beaten up extraordinarily badly so that he ended up disfigured.
 - Someone had intended to kill him decades ago, I guess, and failed, it looked like.
-- The child with him looks exactly like Marie Fielding's (or Henderson, [Zoe BJ's](../2001-to-2010/2008.md#zoe-bj) friend) young daughter.
+- The child with him looks exactly like Marie Fielding's (or Henderson, [Zoe BJ's](../2000-to-2010/2008.md#zoe-bj) friend) young daughter.
 - I don't notice this at the time although my brain registers it today. I had assumed it was his daughter.
 - Marie has two daughters, I met them back in 2012 or earlier; one was about eight and the other twelve or so.
 - The photo could have been either of the daughters when they were about eight.
@@ -442,7 +442,7 @@ function googleTranslateElementInit() {
 ![Supplementary handwritten letter](../../content/images/supplementary-handwritten-letter.png)
 
 - And most curiously, I think I know who this person is.
-- And was he the same ugly man [I saw in Amsterdam](../2001-to-2010/2001.md#amsterdam) all those years ago?
+- And was he the same ugly man [I saw in Amsterdam](../2000-to-2010/2001.md#amsterdam) all those years ago?
 - And ChatGPT is working miracles today because that's *exactly* what they were wearing!
 
 ## Suspected targets 

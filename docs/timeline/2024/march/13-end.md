@@ -552,7 +552,7 @@ function googleTranslateElementInit() {
 - Reigniting communication with my family is, sadly, the very last thing I want to do but I feel I have no choice anymore. I even mention why this is the case in the letter.
 - Nevertheless, I have to explain what's happening to them in case I'm murdered or something horrible happens to me.
 - I have also become concerned that Dénia hackers have been trying to get personal information about my family in order to rob them too.
-- Little did I know my *whole* family had all been targeted by North London criminal gangs with Spanish connections from the moment we received the [Lockerbie compensation](../../2001-to-2010/2006.md#lockerbie), if not before.
+- Little did I know my *whole* family had all been targeted by North London criminal gangs with Spanish connections from the moment we received the [Lockerbie compensation](../../2000-to-2010/2006.md#lockerbie), if not before.
 - I date the handwritten letter the following day and the next morning I send it by registered mail to London from the post office near to my hotel.
 - This is the first contact I have had with my family for nearly 3 years.
     - [Letter to parents of 15th March](../../../content/documents/letters/letter-to-parents-march-15.pdf).
@@ -1051,7 +1051,7 @@ function googleTranslateElementInit() {
 
 - Mike Wenham was my boss at my first ever programming job with British Telecom in 2010 in High Wycombe.
 - It had been my sole ambition to be a software engineer and build systems and services to help make the world a better place.
-- I had found it very hard to get a break into software development, even with a PhD in computer science, so I had done professional Java certifications in India in 2010, the same time I "bumped into" [Jitendra Das](../../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star).
+- I had found it very hard to get a break into software development, even with a PhD in computer science, so I had done professional Java certifications in India in 2010, the same time I "bumped into" [Jitendra Das](../../2000-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star).
 - When I returned to the UK, I got a job pretty much immediately.
 - Mike told me that my tech interview test had been the best anyone had ever done on it, and he also liked me so gave me the job.
 - Mike had obviously asked the cleaning lady to interrogate me about my romantic life. It was as if he knew about Jitendra already but couldn't come out with it himself or I'd know I'd been hacked, or worse that something more sinister was going on.
@@ -1440,7 +1440,7 @@ It has masses of followers and appears to be well-known in the online gender-cri
 - The purpose behind accounts like these I can only assume is in support of criminal gangs.
 - What's terrifying is that there are 1000s of them in any particular graph, all connected, and all in support of each other. One wonders if they have a Slack to keep contact while they work.
 - It makes me realize that when you send your kids onto social media, it's literally like sending them all alone and naked into a sex club.
-- Curiously, this account posted the pic I mention [in the first timeline entry](../../2001-to-2010/2001.md#amsterdam) that reminded me of a weird event from so long before.
+- Curiously, this account posted the pic I mention [in the first timeline entry](../../2000-to-2010/2001.md#amsterdam) that reminded me of a weird event from so long before.
 
 ![wounded angel](../../../content/images/wounded-angel.jpeg)
 

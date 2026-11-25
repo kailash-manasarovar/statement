@@ -257,7 +257,7 @@ function googleTranslateElementInit() {
 - I realize that the hackers of Dénia have full administration access down to the inner hardware workings of my phone.
 - They seem to be able to rewrite the machine code and even reprogram the chips.
 - I wonder what evil that capability could wreak in the world?
-- I heard certain frequencies coupled with trigger-images can manipulate people into believing they're sick; see [Alessandra, for example](../2001-to-2010/2009.md#alessandra-gets-sick-or-does-she) or even my belief I had a weak heart.
+- I heard certain frequencies coupled with trigger-images can manipulate people into believing they're sick; see [Alessandra, for example](../2000-to-2010/2009.md#alessandra-gets-sick-or-does-she) or even my belief I had a weak heart.
 - I had that for years while I was *depressed* and it was total nonsense!
 - Can the porn-gangs of Dénia make people sick by rewriting the chips to produce low-volume frequencies on hacked devices?
 - Is this another way they make you sexually aroused too?
@@ -418,7 +418,7 @@ function googleTranslateElementInit() {
 
 - A direct message pops up on my X UI: "Who's paying you?", it says.
 - This sort of comment from hackers - I believe this was Hazel directly - made me even more sure that my situation had shifted into something new.
-- [Hazel Smith](../2001-to-2010/2007.md#hazel-smith), and others, end up having a long conversation with me in Thailand; every word of it monitored by law enforcement.
+- [Hazel Smith](../2000-to-2010/2007.md#hazel-smith), and others, end up having a long conversation with me in Thailand; every word of it monitored by law enforcement.
 
 ### Hiring a lawyer to help me fight Polygon's illegal dismissal
 
@@ -673,7 +673,7 @@ function googleTranslateElementInit() {
 ![Wounded angel](../../content/images/wounded-angel.jpeg)
 
 - But, the *very intentional* memory trigger didn't hit consciousness until after I had chatted with Brian on Facebook.
-- I think the day after we chatted, the memory flew in and I remembered the unusual incident in Amsterdam in 2001 where [I had seen the very ugly man in the back of the car](../2001-to-2010/2001.md#amsterdam) as we were driving out of the hotel for the ferry back to the UK.
+- I think the day after we chatted, the memory flew in and I remembered the unusual incident in Amsterdam in 2001 where [I had seen the very ugly man in the back of the car](../2000-to-2010/2001.md#amsterdam) as we were driving out of the hotel for the ferry back to the UK.
 - Of course, I contact Brian immediately again to ask him if he remembers the events.
 - He writes something like, *we were very high in those days", and blocks me.
 - I think nothing of it, or I'm unable to think more on it, because I continue to be drugged clandestinely throughout 2024 and 2025, until October 2025 when I figure out [the switcheroo porn scam](../2025/october.md#thunderbolt-clarity).

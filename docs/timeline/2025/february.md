@@ -82,7 +82,7 @@ function googleTranslateElementInit() {
 - A whole community of porn-addicts knows very well about [*Batman and little girl*](../../evidence/memes-and-triggers.md#batman-and-little-girl), an early meme from the very famous [switcheroo days](../../crimes/protagonists/vidal-sastre.md#seven-devils) where Batman was one of the taller more muscular men pretending to be a school teacher at the conservatory, a genuinely good looking man, but a total twat in his behavior.
 - Was he the dummy good-looking trumpet teacher who was a little bit thick who seemed to have never spoken to a woman in his whole life; someone they always relied on for the film star element of the love affair trick?
 - I have this man down in [second place, one of at least four potentials](../../crimes/protagonists/vidal-sastre.md#seven-devils), next to [the first man](../../crimes/protagonists/vidal-sastre.md#the-older-slimmer-shorter-greyer-man-the-angel) who does seem like he could be some sort of relation.
-- I can state, categorically, that I will remember each and every one of the men that turned up to classes at the conservatory when I see pictures of them again, and certainly even some of the men that turned up in my bedroom too, some of whom I was familiar with from [over twenty-five years ago](../2001-to-2010/2001.md#amsterdam).
+- I can state, categorically, that I will remember each and every one of the men that turned up to classes at the conservatory when I see pictures of them again, and certainly even some of the men that turned up in my bedroom too, some of whom I was familiar with from [over twenty-five years ago](../2000-to-2010/2001.md#amsterdam).
 - Even Maria Hontanilla would mention *Batman and little girl* at piano classes while the switcheroo porn was being filmed live at the conservatory.
 - I do a double take when I see the Batman mural on the El Pais office wall and I decide to go into the offices the following day to talk to a reporter.
 - I go in and I explain I have a major story and ask to speak to a reporter.
@@ -437,7 +437,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I would come in regularly for a while, then not for months when I was traveling. There was nothing unusual about me being there.
 - Does she know I was being sedated and raped in my apartment?
 - Do they all watch Dénia TV for the latest on the multiple spy-cam sex slaves they've set up in the region?
-- Did she assume I'd left Dénia because she hadn't seen me on [the sedate-and-rape-specials](../2001-to-2010/2008.md#denia-tv) for months?
+- Did she assume I'd left Dénia because she hadn't seen me on [the sedate-and-rape-specials](../2000-to-2010/2008.md#denia-tv) for months?
 - You know, if it wasn't because of the obvious animosity between Hazel and Lorraine back in 2008 or earlier, and Lorraine finding out things (Hazel sedating young famous good-looking Spanish men and then blackmailing them with sex films most likely), and the vindictiveness of Hazel generally, they might have had me at "trans kids"... but not a chance in hell that isn't fully part of their hypno-tech.
 - Of course it is, something arising from sick porn genres that they grabbed onto and ran with, and then the lie spreads and other evil groups realize its value to them, and so it grows and grows and apparently normal people are totally fooled by it, and no-one knows how to contain it anymore... and it is such a sick and twisted lie; an obvious world-destroying whopper.
 - It's amazing how so many believe it... but they should maybe have a look inside, especially at the stomach and heart emotions whenever someone says something against the lie, and perhaps notice how angry they are... violently angry, often, ready to kill, and know that this is how it starts, murderous mass-psychosis.
@@ -536,7 +536,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - He talks about Jerry Brady a lot and how Jerry Brady drives Marky Mark around when he comes to the UK.
 - Is he trying to set up a "date"?
 - Was Jerry involved in the ugly sedating business?
-- Jerry was mates with my boyfriend Brian at the time [Auggie and his pals from Dénia sedated-and-raped me in Amsterdam with Brian's help](../2001-to-2010/2001.md#amsterdam).
+- Jerry was mates with my boyfriend Brian at the time [Auggie and his pals from Dénia sedated-and-raped me in Amsterdam with Brian's help](../2000-to-2010/2001.md#amsterdam).
 - Did Jerry and his missus know about all that too? 
 - Paul keeps suggesting we go swimming regularly, something we used to do in the 90s.
 - I decline. It's a strange request that takes me a while to figure out.
@@ -552,7 +552,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - Interestingly, Malta is where [Qredo](../2021/march.md#qredo) are based.
 - Paul knows Anita Diamond too and often talks about her, how she was bullied by another girl (but he's actually talking about me, it was very boring of him to do that...).
 - Anyway.
-- My view is that Paul's insistence on us going swimming was so that he could make a bit of money "pimping" me out, as it were, just like [Ray did](../pre-2001/1996.md#ray-archer) in the 90s, or my dad and brother even, just like [Sandra, cat-porn star,](../2011-to-2020/2014.md#sandra-rita-diaz) did in Lourdes and her insistence I visit and stay with her in Paris, and just like [Janet my election volunteer's](../2024/june.md#so-janet) insistence I stay with her in North London.
+- My view is that Paul's insistence on us going swimming was so that he could make a bit of money "pimping" me out, as it were, just like [Ray did](../the-90s/1996.md#ray-archer) in the 90s, or my dad and brother even, just like [Sandra, cat-porn star,](../2011-to-2020/2014.md#sandra-rita-diaz) did in Lourdes and her insistence I visit and stay with her in Paris, and just like [Janet my election volunteer's](../2024/june.md#so-janet) insistence I stay with her in North London.
 - I was making so much money for porn-world, everyone thought they'd try and get a share in it.
 - Malta was likely North London's finest's attempt to get me back making money on the porn-networks as soon as possible; the porn-gangs having lost one of their most lucrative revenue streams, unconscious, naked, raped-and-humiliated me.
 - They made an international rape-porn star of me, didn't they, which put me in constant danger everywhere I went in the world!
@@ -589,7 +589,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 - I ask him how.
 - He says he gets the rod, sticks it down into where the fatberg is blocking everything, and just keeps poking.
 - *You just keep poking at it and eventually it gives*, he says.
-- In the Autumn of this year, I will ask [Lea Batton](../pre-2001/1991.md#lea-batton), life-long friend and compadre of Paul on Facebook to tell Paul - who has blocked me since I found out about [Ugly and the gang](../2001-to-2010/2001.md#amsterdam) - my story is like a fatberg, *you just keep poking at it for long enough and eventually it gives*.
+- In the Autumn of this year, I will ask [Lea Batton](../the-90s/1991.md#lea-batton), life-long friend and compadre of Paul on Facebook to tell Paul - who has blocked me since I found out about [Ugly and the gang](../2000-to-2010/2001.md#amsterdam) - my story is like a fatberg, *you just keep poking at it for long enough and eventually it gives*.
 - Paul, Lea, Matthew Copeland, and all their mates, most of North London it transpires, including my boyfriend Brian and his family (probably not his sister, you know the way they are) from 2001, know [Ugly - sedating and rapist ex-friend of the Dénia porn-gangs](../2024/august.md#ugly) - pretty well by all accounts.
 - Let the fatberg release.
 
@@ -662,7 +662,7 @@ Anyway. With the best. Tell your team to come into the office pls.
 
 ## Michelle (I'm not being funny, but) Gordon
 
-- I already wrote about [meeting Michelle Gordon in 2010](../2011-to-2020/2013.md#richard-recommends-hot-yoga-taryn-and-michelle-gordon-are-there), just after I returned from India where I had been starring without my knowledge in [a month-long porn special with Jitendra Das](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star).
+- I already wrote about [meeting Michelle Gordon in 2010](../2011-to-2020/2013.md#richard-recommends-hot-yoga-taryn-and-michelle-gordon-are-there), just after I returned from India where I had been starring without my knowledge in [a month-long porn special with Jitendra Das](../2000-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star).
 - We had taken a Bikram hot-yoga class together in Old Street - possibly taught by [Taryn from Loka Yoga](../2026/july.md#loka-yoga) - and I believe it was her invitation; although I spoke with Richard Freed about the experience later too.
 - Michelle Gordon is an old school friend from Christ Church North Finchley and at the time she was working for Deutsche Bank or similar.
 - We had a coffee and a chat after the class in Angel Islington.

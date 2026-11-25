@@ -22,7 +22,7 @@ function googleTranslateElementInit() {
 ![lost access Taru Ann](../../content/images/lost-access-1.JPG)
 
 - Then two people like a post that is very suggestive of the situation.
-- Zee and Luke are references to [Zoe BJ](../2001-to-2010/2008.md#zoe-bj) and [Luke BJ](../2001-to-2010/2008.md#meeting-luke-braganza-jones) from Denia.
+- Zee and Luke are references to [Zoe BJ](../2000-to-2010/2008.md#zoe-bj) and [Luke BJ](../2000-to-2010/2008.md#meeting-luke-braganza-jones) from Denia.
 
 ![lost access Zee and Luke](../../content/images/lost-access-2.JPG)
 
@@ -311,7 +311,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 
 ![stay alive](../../content/images/stay-alive.JPG)
 
-- Remember, Karolina is the name of the woman [Mike Wenham murdered](../2001-to-2010/2010.md#mike-wenham).
+- Remember, Karolina is the name of the woman [Mike Wenham murdered](../2000-to-2010/2010.md#mike-wenham).
 - One of the fake accounts [I posted earlier](august.md#4) likes one of my posts again. 
 - I challenge them. 
 
@@ -473,7 +473,7 @@ The woman in the pic above I believe is the [innocent lady groomed into porn](au
 - I will see him again and again over the next 18 months.
 - I always thought he was familiar.
 - I wonder if he believed I'd never remember him due to brain-damage?
-- This guy, now, was he also the same man who said he was an "opera singer" who was at Anita and Matthew Diamond's house with his wife (the statistician) [that time they mentioned the "petrol money"](../2001-to-2010/2006.md#dave-porter-on-guardian-soulmates)?
+- This guy, now, was he also the same man who said he was an "opera singer" who was at Anita and Matthew Diamond's house with his wife (the statistician) [that time they mentioned the "petrol money"](../2000-to-2010/2006.md#dave-porter-on-guardian-soulmates)?
 - I see him again [in Cauterets in May 2026](../2026/may.md#desas-colleague-in-cauterets).
 
 ## My Belgian friend says he will help me

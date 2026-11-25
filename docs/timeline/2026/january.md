@@ -25,8 +25,8 @@ function googleTranslateElementInit() {
     1. Of course, there was [the invitation from Grace to meet her and Nadim](../2023/november.md#starting-my-new-job) (and others I suppose) in Barcelona just after I started at Polygon; which didn't happen because I found out online that [Nadim is an actor](../2023/november.md#nadim-kobesi) - and everyone knew I had found out due to constant hacking - and he got himself fired immediately.
     1. In October 2007, I traveled by bus to Barcelona to attend a Kabbalah conference. I shared a hotel room with my friend Richard so there's no chance of any funny business on this occasion.
     1. In early 2006, I traveled to Barcelona to attend a Vipasana course which I got thrown out of for being utterly depressed and irreverent (I had just remembered gang-rape at an Iboga retreat in Montpelier). I don't remember where I stayed before and after the course but I got the train to Barcelona from Madrid that time.
-    1. In January 2005, I traveled to Barcelona to attend a women's well-being retreat with [Sat Santokh](../2001-to-2010/2005.md#womens-self-esteem-retreat-with-sat-santokh) and three other women, but we all slept on the floor in the Kundalini yoga studio... you never know though.
-    1. On Thursday 1st December 2005, on my way to the Iboga retreat near Montpelier from Madrid, where I would remember, for the first time, sedated gang rape by Jamaican rape-gangs in Tottenham in 1989, I stayed one night at the hotel inside the main train station. My room had a picture of a lounging devil with a huge phallus over the bed which I found sinister and unsettling. I had a terrible bunch of dreams that night. I dreamt of [Jitendra Das's teeth](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star) (realizing this was so when I meet him five years later). I also dreamt of a young Spanish man at the foot of the bed on his knees and pleading for his life with a bunch of horrible men standing over him pointing guns at his head and threatening to kill him. Was he going to be someone I know? I guess this night is also a favorite.
+    1. In January 2005, I traveled to Barcelona to attend a women's well-being retreat with [Sat Santokh](../2000-to-2010/2005.md#womens-self-esteem-retreat-with-sat-santokh) and three other women, but we all slept on the floor in the Kundalini yoga studio... you never know though.
+    1. On Thursday 1st December 2005, on my way to the Iboga retreat near Montpelier from Madrid, where I would remember, for the first time, sedated gang rape by Jamaican rape-gangs in Tottenham in 1989, I stayed one night at the hotel inside the main train station. My room had a picture of a lounging devil with a huge phallus over the bed which I found sinister and unsettling. I had a terrible bunch of dreams that night. I dreamt of [Jitendra Das's teeth](../2000-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star) (realizing this was so when I meet him five years later). I also dreamt of a young Spanish man at the foot of the bed on his knees and pleading for his life with a bunch of horrible men standing over him pointing guns at his head and threatening to kill him. Was he going to be someone I know? I guess this night is also a favorite.
 
     !!! tip "Iboga retreats"
         - The gangs would have been aware I was going on these retreats, and aware that Iboga often surfaces hidden events from the past. Many attendees are curing hard-drug addictions this way.
@@ -36,7 +36,7 @@ function googleTranslateElementInit() {
 ## Byron lookalike 
 
 - Everywhere I go around the Fitkoh gym I'm seeing the same man.
-- He's dressed up to remind me of Byron, particularly his hair which gives credence to [those two Brits at Sinai being agents in 1997](../pre-2001/1997.md#agents).
+- He's dressed up to remind me of Byron, particularly his hair which gives credence to [those two Brits at Sinai being agents in 1997](../the-90s/1997.md#agents).
 - I can think of no reason they would do this.
 
 ## UN woman
@@ -120,7 +120,7 @@ function googleTranslateElementInit() {
 
 ## Could Brian have known who Ugly was back in 2001?
 
-- Pathologically inclined to think the best of everyone - not a bad thing - I start to wonder if the [weird occurrence with the ugly man](../2001-to-2010/2001.md) in Amsterdam in 2001 implies that Brian - my boyfriend at the time - knew who he was?
+- Pathologically inclined to think the best of everyone - not a bad thing - I start to wonder if the [weird occurrence with the ugly man](../2000-to-2010/2001.md) in Amsterdam in 2001 implies that Brian - my boyfriend at the time - knew who he was?
 - In November 2024, Brian and I had a long forgiving chat about the past on Facebook which was really healing.
 - A few days later, [I remembered Ugly in the back of the car at the Holiday Inn in Amsterdam](../2024/december.md#unable-to-access-my-laptop) after a stalker account posted a triggering picture on X.
 - I continue the Facebook chat with Brian, and I ask him if he remembered the weird event with the ugly man, or even me telling him about it?
@@ -334,7 +334,7 @@ function googleTranslateElementInit() {
 - Curiously, in my pathologically-inclined-to-think-the-best-of-everyone's mind, I didn't realize they were wishing me dead until decades later.
 - I thought it was just a silly song, but it was obvious they hated me.
 - Anyway, there was no reason for it really, unless they had been instructed or manipulated against me by the Labour-party parents, because of my dad's obvious behavior in scuppering the East Finchley Labour candidate's chances against Margaret Thatcher in 1979... which is ridiculous anyway, there's no way she wouldn't have got in.
-- But even world-famous serial-killing poisoner [Hazel Smith](../2001-to-2010/2007.md#hazel-smith) knew about that, somehow, didn't she, so it is important to the story, and I'll keep tying it all together in the hope that I may continue to avoid murder and maybe, one day, someone will help the women and children of the Marina Alta, Spain.
+- But even world-famous serial-killing poisoner [Hazel Smith](../2000-to-2010/2007.md#hazel-smith) knew about that, somehow, didn't she, so it is important to the story, and I'll keep tying it all together in the hope that I may continue to avoid murder and maybe, one day, someone will help the women and children of the Marina Alta, Spain.
 - Incidentally, I really fancied the Labour Party candidate Laurence Spiegel, in the way 7-year olds do.
 - He looked like Mr Hooper from Jaws.
 

@@ -83,7 +83,7 @@ function googleTranslateElementInit() {
 - It's very threatening.
 - But, I realize I know this man.
 - He's the man who tried to rob H. Samuel the jewelers with a fake credit card while I was on the till in Brent Cross in ... you guessed it ... the summer of 1989, just before the North London rape-gangs got hold of me.
-- I knew that immediately; what I didn't realize until later is he is also the man [I dreamt about when I was seven](../pre-2001/1980.md#a-nightmare-about-my-brother), the man who imprisoned my brother with an evil matchbox mechanism that grabbed his forearm.
+- I knew that immediately; what I didn't realize until later is he is also the man [I dreamt about when I was seven](../pre-1990/1980.md#a-nightmare-about-my-brother), the man who imprisoned my brother with an evil matchbox mechanism that grabbed his forearm.
 - Could he also be the same *really nice geezer* my brother met in Lamai in 2010?
 - The man who gave my brother the drugs and instructions on how to buy them at the pharmacy, just before he totally lost his mind.
 - The same man who it was *really important* my brother told me about having met - while he was grinding his teeth, still furious with me, when he popped into the Spa the last time I would see him relatively conscious in Thailand.
@@ -137,8 +137,8 @@ function googleTranslateElementInit() {
 
 ## The trumpet teacher's real name
 
-- The original commit of this section is when a sudden memory returned about something Hazel Smith told me [in 2007](../2001-to-2010/2007.md#hazel-smith) at dinner with her *mum* the night we went out dancing, a few nights before she tried to murder me by poisoning.
-- At the moment I remembered this, I believed the trumpet teacher's real name must be Paco Sendra, the married man [Hazel Smith told she was having an affair with](../2001-to-2010/2007.md#i-put-people-in-boxes) back in 2007.
+- The original commit of this section is when a sudden memory returned about something Hazel Smith told me [in 2007](../2000-to-2010/2007.md#hazel-smith) at dinner with her *mum* the night we went out dancing, a few nights before she tried to murder me by poisoning.
+- At the moment I remembered this, I believed the trumpet teacher's real name must be Paco Sendra, the married man [Hazel Smith told she was having an affair with](../2000-to-2010/2007.md#i-put-people-in-boxes) back in 2007.
 - I still believe there is only one trumpet teacher at this stage; not the six or seven, or more that I have been recognizing as the same one man due to brain-damaging poisons.
 - It turns out Paco Sendra is the name of a famous footballer, but probably Hazel Smith would not have known that at the time.
 - Sendra, it turns out, is the name of one of the crime families in the region involved in destroying women and children and babies for porn, and is likely the name of the trumpet teacher who has been helping me all these years too.
@@ -188,7 +188,7 @@ function googleTranslateElementInit() {
 
 !!! danger "Asking for help"
     - When a sexual abuse victim asks for help they are typically ignored, fastidiously disbelieved, sometimes even attacked, rarely heard.
-    - Before it became obvious to me that I had been mass-targeted by British and Spanish criminal gangs for decades, I used to think that [Hazel had tried to poison me back in 2007](../2001-to-2010/2007.md#hazel-tries-to-kill-me) as an unconscious and irrational attack on a similarly sexually abused person.
+    - Before it became obvious to me that I had been mass-targeted by British and Spanish criminal gangs for decades, I used to think that [Hazel had tried to poison me back in 2007](../2000-to-2010/2007.md#hazel-tries-to-kill-me) as an unconscious and irrational attack on a similarly sexually abused person.
     - This urge would have come from her belief in the lie that attacking someone just like her would somehow help her heal from her own experience - or deflect the guilt rather - the human mind is very insane after all.
     - I told people I had been physically attacked by someone because I was a victim of sexual abuse for that reason - without telling anyone the fuller story. 
     - This was how I understood what had happened to me at her hands in 2007; criminal psychopathy triggered by someone reminding her of her own experience of sexual abuse.
@@ -221,8 +221,8 @@ function googleTranslateElementInit() {
 - Paul never got over it and, to this day, he believes Dennis was a force for good in his life.
 - In fact, I believe this is what drew me and Paul together as friends in the 90s - aside from the pedophile porn I was starring in that everyone knew about except me.
 - Our shared child sexual grooming experiences made escape with drugs and alcohol very appealing.
-- I wasn't to know until late 2025 that Paul knew all about [Ugly and my ex-boyfriend Brian's criminal sex-offending activities in Amsterdam in 2001](../2001-to-2010/2001.md#amsterdam) (Paul and Brian were very close mates at the time), and I suspect there was a potential repeat of the sedating-and-raping in Hastings with the boys not long after.
-- In fact, the last time I ever saw Paul was that night [he turned up with the boys](../2001-to-2010/2001.md#the-boys-come-round) and Brian became apoplectic with jealousy about something he wouldn't tell me about, and the boys left before anyone else got up and I never saw any of them again.
+- I wasn't to know until late 2025 that Paul knew all about [Ugly and my ex-boyfriend Brian's criminal sex-offending activities in Amsterdam in 2001](../2000-to-2010/2001.md#amsterdam) (Paul and Brian were very close mates at the time), and I suspect there was a potential repeat of the sedating-and-raping in Hastings with the boys not long after.
+- In fact, the last time I ever saw Paul was that night [he turned up with the boys](../2000-to-2010/2001.md#the-boys-come-round) and Brian became apoplectic with jealousy about something he wouldn't tell me about, and the boys left before anyone else got up and I never saw any of them again.
 - Did they scurry away ashamed; unable to face looking me in the eye the next morning?
 - Seems likely.
 - It is a common MO with these sedating rapists after all, cos, mainly, they're total cowards.
@@ -250,7 +250,7 @@ function googleTranslateElementInit() {
 - He conspired with Brian, my boyfriend at the time.
 - We lived together in Hastings and Brian's small children came to stay with us every week!
 - Paul knows everything.
-- He may have participated in the [party rape back in 1991](../pre-2001/1991.md#a-party-in-hornsey). That is where I met him.
+- He may have participated in the [party rape back in 1991](../the-90s/1991.md#a-party-in-hornsey). That is where I met him.
 - He pretended to be my friend - it's what they do to all of us - while secretly conspiring to rape us without us ever knowing.
 - When I think about men doing this, I'm overwhelmed and gobsmacked by the levels of cowardice this involves.
 - Anyway, he let slip even back then the way they do, tell-tale tics, although I only noticed these last years.
@@ -268,7 +268,7 @@ function googleTranslateElementInit() {
 - The palace in Alexandra Palace; I assumed he meant she was walking there.
 - Of course, any mention of rape to an unhealed rape-survivor sends us into a spin so I had nothing more to say about this because I felt the terror rising myself.
 - I think Paul knew very well that he could say these things to women about other women, knowing we would not talk to each other about it because it was so painful.
-- I think Jen had just been sedated-and-gang-raped at this party also in Hornsey or nearby; just like I had at the [other party in Hornsey](../pre-2001/1991.md#a-party-in-hornsey) I wrote about before.
+- I think Jen had just been sedated-and-gang-raped at this party also in Hornsey or nearby; just like I had at the [other party in Hornsey](../the-90s/1991.md#a-party-in-hornsey) I wrote about before.
 
 ## Ritzy
 
@@ -657,7 +657,7 @@ function googleTranslateElementInit() {
 - I remember telling Lauren Ott back in 2015 that my mother would probably make an excellent witness for the London rape-gang defense she hates me so much.
 - Lauren didn't respond to that sad-but-true statement at the time.
 - I bet it's pretty commonplace for mothers to hate their abused daughters. The betrayal, for me, is off the scale, but nothing compared to my dad's betrayal.
-- Robert my brother continues to seethe, continues to ignore what's been happening for me, just like he has since 2011 when he [lost his mind in Thailand](../2001-to-2010/2010.md#my-brother-loses-his-mind-in-thailand) and signed up for whatever the porn-gangs needed help with - conspiracy to murder me, or convince me to kill myself with the help of my work colleagues at WeAreAdaptive perhaps (I wonder what treasonous data processes they're running in their massive server farms).
+- Robert my brother continues to seethe, continues to ignore what's been happening for me, just like he has since 2011 when he [lost his mind in Thailand](../2000-to-2010/2010.md#my-brother-loses-his-mind-in-thailand) and signed up for whatever the porn-gangs needed help with - conspiracy to murder me, or convince me to kill myself with the help of my work colleagues at WeAreAdaptive perhaps (I wonder what treasonous data processes they're running in their massive server farms).
 - Mother only got worse over 2025, and especially so when I remembered that my dad had starred in a sedated-anal-rape-porn video at my house in Joan Fuster in 2015 which caused me injury, and that he is pretty famous all over porn-world because of how he hid in the bathroom grinning and snickering when I saw him running out of my room after being injured enough to wake up out of sedation, and I ran after him and waited for him to come out of the bathroom, which he did with his hands over his face, hiding his snicker (although the spy-cams caught it to great applause across criminal porn-world, a *legend* they think of him).
 - Dad didn't say anything to me suggesting he disbelieved any of the information in this statement in January 2025, and in fact gave me heaps of information about the gangs and his own outrageous betrayals over 2025, including how he helped the North London gangs try to murder me, on request by one of them at the Red Lion pub in Barnet in July 2025 (except they failed again, of course).
 - When challenged with his actions at two of my houses in Dénia, including when he brought my mother with him to the town and she had a panic attack and went to A&E, and when I remembered he had excitedly told my cousin to visit Dénia, because something *very very good* was happening there at my apartment specifically, that Igor kept mentioning to me, but I couldn't understand what he was referencing cos no-one told me I was being sedated and raped there fairly regularly, and so my cousin Igor took his young family to learn Spanish with TLC for two weeks one summer on my dad's recommendation (another sedated-rape conspirator organization like the rest of them), and he got so angry... he threatened, *I'm going to phone Igor to tell him*... but I wondered what he was going to say to Igor... *just deny everything* maybe? Like they do.
@@ -863,7 +863,7 @@ function googleTranslateElementInit() {
 - All of a sudden, out of the blue, for no reason at all, Paul starts rattling on about devil worshippers.
 - And I've no idea why he would bring this up, it's very extraneous, and he goes on about devil worshippers for a short while, then he stops.
 - I'm not sure what to say to him.
-- 18-months later, I remember [a related event from 2008](../2001-to-2010/2008.md#ssp-shamanic-conference-in-compton-dundon-somerset-uk) where a woman, Susan McNaughton, tried to frighten me at the Yew tree and elsewhere with her devil worshipping nonsense.
+- 18-months later, I remember [a related event from 2008](../2000-to-2010/2008.md#ssp-shamanic-conference-in-compton-dundon-somerset-uk) where a woman, Susan McNaughton, tried to frighten me at the Yew tree and elsewhere with her devil worshipping nonsense.
 - For sure it's a gang connection, but for what purpose?
 - Another pick at frightening and destabilizing me so that my mind hasn't the space to figure out [the switcheroo scam](../../crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel)?
 - Or to make a link to something ridiculous so that I could be discredited easily, just like [Paloma had tried to do in Madrid the October previous](../2024/october.md#meeting-inma-and-paloma-the-spanish-official-in-madrid)?
@@ -909,7 +909,7 @@ function googleTranslateElementInit() {
 - And that is all he says.
 - At the time I thought a statement like this was not entirely appropriate, but I couldn't really figure out why.
 - I think if I had been in Paul's position, I would have reacted differently; alarmed, shocked, angry, upset, trying to think of ways to help.
-- Paul's quiet statement perhaps reflects a sense of knowing exactly what had been going on, and knowing way more than what I just told him including the severity of the continuous sexual and violent attacks while sedated, and just not caring much at all about it while being careful not to incriminate himself given he was well aware of [the Ugly business from twenty-five years previous](../2001-to-2010/2001.md#amsterdam).
+- Paul's quiet statement perhaps reflects a sense of knowing exactly what had been going on, and knowing way more than what I just told him including the severity of the continuous sexual and violent attacks while sedated, and just not caring much at all about it while being careful not to incriminate himself given he was well aware of [the Ugly business from twenty-five years previous](../2000-to-2010/2001.md#amsterdam).
 - Did Paul have a subscription to my sedated sex-slave stardom, or know someone who did who told him all about it?
 - Was *going mad* a betting outcome for me for the porn-addicts worldwide?
 - Seems likely.

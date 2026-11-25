@@ -91,7 +91,7 @@ function googleTranslateElementInit() {
 - Incidentally, this is the same time I remember [the Daniel incident](../2011-to-2020/2013.md#daniel) and I believe that was their main intention with it.
 - I think this was when I meet the Australian-Italian gypsy woman at the laundry, who was a lovely lady by the way and we had a nice chat, but right after I felt like I'd been heavily sedated.
 - She looks like a woman, *Anat*, an artist that friends me on Facebook (Anat) shortly afterwards, and posts multiple mousse messages - including Snoopy roasting on a spit after [they roasted me in Dublin](#a-first-roasting).
-- However, [my thumbnail ridges (Beau's lines)](../2001-to-2010/2006.md#beaus-lines) mark poisoning and maybe even drugging events too, and there have been multiple occasions.
+- However, [my thumbnail ridges (Beau's lines)](../2000-to-2010/2006.md#beaus-lines) mark poisoning and maybe even drugging events too, and there have been multiple occasions.
 
 ### Mrs Wasserman is outside my door at the Mercure
 
@@ -151,7 +151,7 @@ function googleTranslateElementInit() {
 
 ### Olly on the plane
 
-- On the flight over from Lourdes, I see Olly from the iboga retreats in Montpelier around 2005/6, friend of [Sean Hamman](../2001-to-2010/2005.md#sean-hamman) and thus implicated in the sedated-rape conspiracy.
+- On the flight over from Lourdes, I see Olly from the iboga retreats in Montpelier around 2005/6, friend of [Sean Hamman](../2000-to-2010/2005.md#sean-hamman) and thus implicated in the sedated-rape conspiracy.
 - He saw me too, and tried to hide.
 - I have to wonder if I was sedated and raped on those courses too. They were full of heaps of extremely aggressive men and a sprinkling of disingenuous women.
 - Bizarrely, like Richard from the same era who [I see in September 2025 at Newgrange with Steve](../2025/september.md#richard-at-newgrange), he's putting on a ridiculous Irish accent.
@@ -202,7 +202,7 @@ function googleTranslateElementInit() {
 
 ### I see Auggie Augustus
 
-- You remember [Ugly from 2001](../2001-to-2010/2001.md#asking-brian-if-he-remembered-ugly-in-2024) and then again in [August 2024](../2024/august.md#ugly) as the gangs were panicking especially due to [mine and Antonio's military service I just mentioned](#facebook-shuts-me-down) which upset the Americans when I mentioned it, a lot.
+- You remember [Ugly from 2001](../2000-to-2010/2001.md#asking-brian-if-he-remembered-ugly-in-2024) and then again in [August 2024](../2024/august.md#ugly) as the gangs were panicking especially due to [mine and Antonio's military service I just mentioned](#facebook-shuts-me-down) which upset the Americans when I mentioned it, a lot.
 - I've started calling him Auggie after a film I saw in Jerusalem in July 2026 at the Dan Panorama about a little boy with a facial disfigurement which may or may not be a #GreatRay given that Auggie is obviously in the Bible: Isaiah 52 to be precise.
 - Well, his face is hidden in his jacket but they've set up a meet as I'm walking back to Beckett Locke from the Avila centre one evening.
 - God sees him clearly and makes me gnash my teeth at him.

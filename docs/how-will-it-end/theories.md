@@ -49,7 +49,7 @@ function googleTranslateElementInit() {
 ### Auggie
 
 - In August 2024, the lupins send [Auggie to Cauterets](../timeline/2024/august.md#ugly).
-- A few weeks later, the salmon mousses, or perhaps the good lupins, it's unclear who exactly, triggered [my memory of Auggie from 2001](../timeline/2001-to-2010/2001.md#amsterdam) with a picture of what I had seen in Amsterdam on the `@taruann` account who I thought on a loop was squirrel, then Trish, then Hazel, then mostly Hazel :).
+- A few weeks later, the salmon mousses, or perhaps the good lupins, it's unclear who exactly, triggered [my memory of Auggie from 2001](../timeline/2000-to-2010/2001.md#amsterdam) with a picture of what I had seen in Amsterdam on the `@taruann` account who I thought on a loop was squirrel, then Trish, then Hazel, then mostly Hazel :).
 - Auggie believed the rogue lupins had offered him up - because the situation had started to become unstable for the criminals around that time due to the help I was getting from the good lupins - and so he defected to the salmon mousse side.
 - I can say this for certain because [I saw him in Dublin in April 2026 with a mousse operative](../timeline/2026/april.md#i-see-auggie-augustus) and they were all over me like scabies at that time.
 - So, his mistake was that he defected to the same side essentially; thinking he was exercising vengeance.

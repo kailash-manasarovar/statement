@@ -17,11 +17,11 @@ function googleTranslateElementInit() {
 - The idea that I was lured to my apartment online in 2021, and that it is set up with spy-cams, and that I'm an online porn sensation internationally, and that everyone in Dénia, man woman and child, is aware of this, is something utterly incomprehensible to me.
 - The porn-gangs are now preparing for Bali, after which I assume the intention is that I am completely destroyed by porn world; psychologically, emotionally, sexually, and of course financially.
 - To that end, online stalking ramps up with constant threats, suggestions of violent relationships, and abusive put downs in what I assume is an attempt to weaken me so I don't make *such a fuss* when the time comes.
-- Is this what [Zoe was trying to do](../2001-to-2010/2008.md#lauding-male-violence) whenever she spoke to me relentlessly about violent relationships?
+- Is this what [Zoe was trying to do](../2000-to-2010/2008.md#lauding-male-violence) whenever she spoke to me relentlessly about violent relationships?
 - The criminal gangs only had a few weeks before Bali.
 - [I had just been porn-prepped after being drugged by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) on my way home from dinner, and I remember this whole period and on into June and beyond as being a time when I was *constantly* high.
 - Everyone involved - thousands of porn-addicts around the world including very famous people - are certain that no-one is going to help me, that I will never survive the mass assault.
-- Consequently, [Hazel Smith](../2001-to-2010/2007.md#hazel-smith) doesn't even bother trying to hide anymore.
+- Consequently, [Hazel Smith](../2000-to-2010/2007.md#hazel-smith) doesn't even bother trying to hide anymore.
 - My view on this in June 2026 is she was instructed to ramp up the online stalking to fever-pitched levels in order to distract me from the true criminal intentions which was the [preparatory sedating-raping-and-orgasm sessions](april.md#the-golden-fleece-of-the-rapist-sex-offender-and-rape-porn-addict-the-victims-orgasm) prior to the [Polygon Bali conference](#bali), and she and many others just like her had no choice, apparently, but to obey the mass rapists in their targeting of unusually lucrative victims.
 - Am I right? Of course I am.
 
@@ -42,7 +42,7 @@ function googleTranslateElementInit() {
 
 [![Don't M people Hazel](../../content/tweets/may-2024/not-want-to-M-people.jpg)](https://x.com/1FRGVN/status/1785410648802734485)
 
-- Of course, I'm referring to [what happened between us in 2007](../2001-to-2010/2007.md#hazel-smith), something *no one else* knows about.
+- Of course, I'm referring to [what happened between us in 2007](../2000-to-2010/2007.md#hazel-smith), something *no one else* knows about.
 - She doesn't like me saying this.
 
 [![I like you Haze, I really do](../../content/tweets/may-2024/i-like-you-haze.jpg)](https://x.com/1FRGVN/status/1785411297124732950)
@@ -538,7 +538,7 @@ function googleTranslateElementInit() {
 - They certainly don't want me working for them while that's happening so they're making sure I will leave my job post-Bali.
 - I don't leave.
 - It's clear to me that something very sinister happened to me in Bali without my knowledge because I was [re-programmed into feeling extraordinarily sexually aroused by the gypsies](april.md#drugged-in-the-street-by-denia-gypsies) just before traveling to Bali.
-- Extraordinarily sinister things happened *with* my conscious awareness too; such as the bizarre meetings with the [Pakistani Yorkshire-man](#the-pakistani-yorkshire-man) who I believe intentionally looks like [Jitendra Das](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star) and is supposed to remind me of the Pakistani rape-gangs.
+- Extraordinarily sinister things happened *with* my conscious awareness too; such as the bizarre meetings with the [Pakistani Yorkshire-man](#the-pakistani-yorkshire-man) who I believe intentionally looks like [Jitendra Das](../2000-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star) and is supposed to remind me of the Pakistani rape-gangs.
 - Was what happened to me in Bali supposed to have happened in [November 2023 with Nadim](../2023/november.md#nadim-kobesi) except something spooked him and he got out quick?
 - I remain high and euphoric and extraordinarily sexually aroused throughout the trip.
 - Every morning at Bali, until I have to replace my shampoo mid-week, I'm unusually sexually aroused and masturbate in the bathroom, often in a curious way (see the [next section](#my-shampoo-goes-missing-from-my-room)).
@@ -553,7 +553,7 @@ function googleTranslateElementInit() {
 - Sometimes, I do yoga at the same time.
 - I have no idea why I would do this; I have never done anything like this before or since in my whole life.
 - I normally don't masturbate. As I may have mentioned, I have been celibate since 2010 and that included masturbation until [April 2023](../2023/april.md#hanuman-jayanti) when the porn-gangs of Denia started drugging me with aphrodisiacs.
-- Did they manipulate the yoga by setting up a [Jitendra Das](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star) memory trigger with the [Pakistani Yorkshireman that I'm about to meet](#the-pakistani-yorkshire-man)?
+- Did they manipulate the yoga by setting up a [Jitendra Das](../2000-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star) memory trigger with the [Pakistani Yorkshireman that I'm about to meet](#the-pakistani-yorkshire-man)?
 - Or was I making subconscious connections between things that were happening at the conference and in a sedated state?
 - It's very strange.
 - If I'm in yet more porn, filmed in my hotel bathroom at the Polygon Bali conference, you'll see me masturbating in tree pose.
@@ -583,7 +583,7 @@ function googleTranslateElementInit() {
 - A man sitting in that row looks up, and looks directly at me.
 - He is grinning right at me.
 - The man looks to be Indian. He has long black hair and enormous grinning white teeth. 
-- He looks exactly like [Jitendra Das the yoga teacher](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star); the teeth especially.
+- He looks exactly like [Jitendra Das the yoga teacher](../2000-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star); the teeth especially.
 - The man walks over to me; I did not invite him.
 - He introduces himself as Aziz (or similar), a Rust engineer that has started that very day.
 - I'm amazed that someone would start their job on the first day of a conference, and at the conference.
@@ -728,7 +728,7 @@ function googleTranslateElementInit() {
 - He was with me at the airport on arrivals, on the bus, and sat with me at dinner a few times.
 - I saw him doing his arm ring thing in the gym one evening too, Jordi was also there that time.
 - Another guy I have just realized I may have seen before in Dénia, one of the ones who walked off in horror when I mentioned the forgivenet.
-- He may have even been at [the weird retreat at the Buddhist monastery](../2001-to-2010/2008.md#the-chi-kung-course-at-the-monastery) as well: a short, balding man with longish fairish hair who talks a lot, too much. Wouldn't that be crazy!
+- He may have even been at [the weird retreat at the Buddhist monastery](../2000-to-2010/2008.md#the-chi-kung-course-at-the-monastery) as well: a short, balding man with longish fairish hair who talks a lot, too much. Wouldn't that be crazy!
 - This man was at [the Beach Club](#missing-time-at-the-beach-club) and I remember him at the Hyatt beach dinner too.
 - I didn't see him anywhere else, he was never in amongst the employees for breakfast or work sessions.
 - Oh, and they may have kept the innocent devs away from it all by getting them to work on "urgent" deployments every night.
@@ -752,7 +752,7 @@ function googleTranslateElementInit() {
 - They all leave quickly, as if my physical presence is somehow appalling to them.
 - Could it be guilt?
 - Many of the other men did the same to me that week. It was like they gulped and went silent whenever I turned up next to them conscious and tried to speak to them. 
-- It reminds me of another occasion at my apartment, back in 2001, when we'd had a bunch of "mates" around for drinks.. but this was just a couple of months [after Ugly in Amsterdam](../2001-to-2010/2001.md#amsterdam).
+- It reminds me of another occasion at my apartment, back in 2001, when we'd had a bunch of "mates" around for drinks.. but this was just a couple of months [after Ugly in Amsterdam](../2000-to-2010/2001.md#amsterdam).
 - The next morning, when I woke up everyone had left before I got up, which in retrospect is very weird and implies guilt.
 - I wonder if you got some footage of that "date" too Ugly?
 - One man stays behind to talk to me, the restaurant is empty now.
@@ -762,7 +762,7 @@ function googleTranslateElementInit() {
 #### Paul Gebheim's interest in me
 
 - I will see Paul Gebheim again in [Jerusalem in August 2026](../2026/august.md#where-are-my-friends-father), just as I am discovering that not only was I being sedated and raped repeatedly for porn-world's enjoyment, but that other sinister groups had been organizing multiple sedated surgeries where they might steal my eggs.
-- If this is true, and they did extract egg(s) from me in Bali, one of which ended up forming Ruth who attended the Transforming Touch courses in May and September 2025, then this is the link to Hazel Smith being tasked to [murder me by poisoning in 2007](../2001-to-2010/2007.md#hazel-tries-to-kill-me), the [Kabbalah conference with Richard Freed](../2001-to-2010/2007.md#kabbalah-conference) the week before, my survival, and her mother Sandra taking me to Trudy's [A Course In Miracles workshop](../2001-to-2010/2008.md#a-course-in-miracles) the following year.
+- If this is true, and they did extract egg(s) from me in Bali, one of which ended up forming Ruth who attended the Transforming Touch courses in May and September 2025, then this is the link to Hazel Smith being tasked to [murder me by poisoning in 2007](../2000-to-2010/2007.md#hazel-tries-to-kill-me), the [Kabbalah conference with Richard Freed](../2000-to-2010/2007.md#kabbalah-conference) the week before, my survival, and her mother Sandra taking me to Trudy's [A Course In Miracles workshop](../2000-to-2010/2008.md#a-course-in-miracles) the following year.
 
 ### People telling me they're leaving, some promotions
 
@@ -832,14 +832,14 @@ function googleTranslateElementInit() {
 - She wouldn't have known about the spy-cam and sedating porn going on at my apartment in Dénia at the time. I didn't know myself.
 - She certainly wouldn't have known how I had been [starring online internationally in *switcheroo* porn with teachers and staff at the conservatory of Dénia since November 2022](../../crimes/protagonists/vidal-sastre.md#seven-devils-and-one-angel).
 - My male colleagues knew about that.
-- Although none of my colleagues will have known how I had been a target for [criminal porn-gangs since 2003](../2001-to-2010/2003.md#porn-fatwa) when I came into a lot of money from the Lockerbie air terrorist attack compensation that they decided they would rob me of (and didn't, but instead made billions on non-consenting and sedated porn with me starring).
+- Although none of my colleagues will have known how I had been a target for [criminal porn-gangs since 2003](../2000-to-2010/2003.md#porn-fatwa) when I came into a lot of money from the Lockerbie air terrorist attack compensation that they decided they would rob me of (and didn't, but instead made billions on non-consenting and sedated porn with me starring).
 - Anyway, shortly after Bali, maybe the next week, Alicia leaves the firm.
 - Hurriedly. 
 - In her leaving note on Slack, she mentions *the worst thing in the world happened* at Bali, and how Sandeep Naiwal had helped her out at the time.
 - I wondered what *the worst thing in the world* was and if it was sexual in content.
 - God help us I hope it wasn't something to do with the [sexually threatening Pakistani Yorkshireman that I had reported to Miriam already](#the-pakistani-yorkshire-man).
 - I have reached out to Alicia in case what happened to her at Bali is relevant to this story and to the global tech-bro porn conspiracy, and to bringing down the baby-rape and sex-murder capital of the world that organizes all of this for the tech-bro pornocracy.
-- The little town in Spain where even [world-famous serial killers are protected](../2001-to-2010/2007.md#hazel-smith).
+- The little town in Spain where even [world-famous serial killers are protected](../2000-to-2010/2007.md#hazel-smith).
 - She does not respond.
 - Alicia is now CMO of a crypto company.
 
@@ -1113,7 +1113,7 @@ function googleTranslateElementInit() {
 
 ### `@1frgvn`
 
-- Why am I up after 3am reminding everyone I've been hacked with key-loggers for nearly a year, or I should say for nearly a year they've wanted me to know about it? I'd say I've been key-logged probably since 2005 or earlier even, as soon as I got a [wad of cash](../2001-to-2010/2007.md#hazel-smith) I dare say.
+- Why am I up after 3am reminding everyone I've been hacked with key-loggers for nearly a year, or I should say for nearly a year they've wanted me to know about it? I'd say I've been key-logged probably since 2005 or earlier even, as soon as I got a [wad of cash](../2000-to-2010/2007.md#hazel-smith) I dare say.
 
 [![When they took over my keyboard](../../content/tweets/may-2024/reminding-everyone-im-hacked.jpg)](https://x.com/1FRGVN/status/1794467120207765821)
 

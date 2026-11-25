@@ -56,7 +56,7 @@ function googleTranslateElementInit() {
 - I'm contacted my David Greenwood part of the Rape Gang Inquiry efforts who asks me to sign a confidentiality agreement about content I might be sent related to this.
 - I tell him I'm hacked so nothing is confidential.
 - I tell him it's the Americans.
-- I also tell him about Desa Ludwick and how she blackmailed Chris Ludwick because she found out what he was doing with [the N8 band](../pre-2001/1990.md#n8), like Winston May and the Tottenham rape gangs this was also organized by the Americans through Geetha.
+- I also tell him about Desa Ludwick and how she blackmailed Chris Ludwick because she found out what he was doing with [the N8 band](../the-90s/1990.md#n8), like Winston May and the Tottenham rape gangs this was also organized by the Americans through Geetha.
 - I send him a long email about this; I'll pop it in shortly.
 - I also mention that I believe the American activity with me due to Lockerbie, and related sex-offense free-for-alls because everyone knew what they had got the British police to do at Hillsborough, is the foundation of ALL the grooming gang activity, and the fact they seem to be able to get away with it - and they're only nicking the Muslims for it too, who don't bother with the sedating if it's with the girls from communities no-one cares about.
 - It's all their fault by slapping gagging orders re Lockerbie and Hillsborough on anyone trying to get help, and this will be well documented.

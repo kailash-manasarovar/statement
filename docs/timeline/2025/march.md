@@ -42,7 +42,7 @@ function googleTranslateElementInit() {
 - I remember Winston May was keen for me to take him to H. Samuels; he kept saying he'd go in there with me to get my week-in-hand (which they didn't pay me for weeks on end).
 - I was due to start A Levels very soon: Maths, English, Music, and CS.
 - Marvelously, the man that came in with the stolen credit card, and made a beeline for me to serve him, was the same man that [bared his teeth at me](january.md#a-man-i-recognize-bares-his-teeth-at-me) at the Spa in Koh Samui in January 2025 the day I was leaving.
-- The same [really nice geezer](../2001-to-2010/2010.md#my-brother-loses-his-mind-in-thailand) that got my brother to do terrible things in Samui in 2010; things that would justify, for my brother, throwing me to the lions.
+- The same [really nice geezer](../2000-to-2010/2010.md#my-brother-loses-his-mind-in-thailand) that got my brother to do terrible things in Samui in 2010; things that would justify, for my brother, throwing me to the lions.
 - He can confirm, of course, they both can.
 - The woman in the car at Brent Cross looked exactly like the black woman Denise who worked with me at H. Samuels - she was on the gold section - just a bit older.
 - She has aged well.
@@ -223,7 +223,7 @@ function googleTranslateElementInit() {
 - Or was he trying to communicate with my dad?
 - When I went to the toilet and left my dad alone with them, did they talk?
 - As we left, another British Muslim man turned up and walked past me, and I think I recognized him.
-- He was either Alkesh from North Finchley who went to prison for theft who was at [the party in 1991](../pre-2001/1991.md#a-party-in-hornsey); or he could have also been the father of Winston May's sister's twins - the man that had brought down a bunch of Northern Pakistanis to London to sedate and rape us back in 1989, that Willow does not remember but I do.
+- He was either Alkesh from North Finchley who went to prison for theft who was at [the party in 1991](../the-90s/1991.md#a-party-in-hornsey); or he could have also been the father of Winston May's sister's twins - the man that had brought down a bunch of Northern Pakistanis to London to sedate and rape us back in 1989, that Willow does not remember but I do.
 - He looked unwell.
 - In an earlier draft of this section I had wondered if the man was trying to do deals with whoever he thought was interested at the time, just like they seemed to be doing constantly online.
 - I deleted that comment for some reason but I think the question still stands, and perhaps more firmly today.

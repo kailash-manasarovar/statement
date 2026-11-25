@@ -149,7 +149,7 @@ function googleTranslateElementInit() {
 
 - I bump into Ben in the hotel foyer on my way back from conference sessions.
 - He is standing in the middle of the corridor, in my way, and he comes up to me and has a bit of a rant.
-- Except, he's repeating the same words I said to [mushroom man in Bali](may.md#the-pakistani-yorkshire-man), when he was distracting me while the conference hall emptied and the [Jitendra Das lookalike](../2001-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star), Aziz the Rust developer, could introduce himself.
+- Except, he's repeating the same words I said to [mushroom man in Bali](may.md#the-pakistani-yorkshire-man), when he was distracting me while the conference hall emptied and the [Jitendra Das lookalike](../2000-to-2010/2010.md#jitendra-das-yoga-teacher-porn-star), Aziz the Rust developer, could introduce himself.
 - I guess those words were recorded and broadcast to the paying porn addicts worldwide.
 - Ben had famously [spent months looking for Azif, the British/Pakistani Rust engineer](may.md#ben-finds-a-rust-developer), or whatever his name was. 
 - He reported this in every management meeting and, just a few weeks before Bali, he announced that he'd found him.
@@ -320,7 +320,7 @@ function googleTranslateElementInit() {
 
 ## Zoe and the transvestite
 
-- I "bump" into [Zoe BJ](../2001-to-2010/2008.md#zoe-bj) on the Calle Diana.
+- I "bump" into [Zoe BJ](../2000-to-2010/2008.md#zoe-bj) on the Calle Diana.
 - Zoe has been called in to talk to me; perhaps to see how I'm doing and report back on my state of mind.
 - She is with a transvestite.
 - Perhaps she rented him for the afternoon.
