@@ -184,7 +184,8 @@ function googleTranslateElementInit() {
 
 ### Local women think all the activity is because they're investigating my brother's rape in 2011
 
-- They helpfully give me a description of it.
+- They've been checking me out a bit, making sure I'm an honest person. They've been told *a lot* of shit about me over the years by the Americans.
+- They helpfully give me a description of the rape: *three hours, both arms, very tired*.
 - What happens when the world finds out the American's ordered his rape, that Lamai in particular was turning into another Denia, and they shut everything down for years to stop it, ensuring total control of the place when it opened again.
 - Place is riddled with spies whenever I'm there.
 
