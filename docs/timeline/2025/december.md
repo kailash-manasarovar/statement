@@ -182,6 +182,12 @@ function googleTranslateElementInit() {
 - I guess we had to get *every last one of them*, innit.
 - The last statement being confirmation of [things I had been hearing](november.md#every-last-one-of-them) from agents in Thailand.
 
+### Local women think all the activity is because they're investigating my brother's rape in 2011
+
+- They helpfully give me a description of it.
+- What happens when the world finds out the American's ordered his rape, that Lamai in particular was turning into another Denia, and they shut everything down for years to stop it, ensuring total control of the place when it opened again.
+- Place is riddled with spies whenever I'm there.
+
 ## Another (fake) bridge collapses
 
 - What's the capital of Assyria?
