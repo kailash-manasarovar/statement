@@ -79,6 +79,18 @@ function googleTranslateElementInit() {
 - This is what they've been like all these years I've been trying to get help.
 - They do a similar thing, using the same font, with the doorbell on my door in Cauterets in September 2026 which has a label, [*Madame Sordes*, meaning *Mrs Sordid*](../2026/september.md#madame-sordes).
 
+### Did all that just happen
+
+- It was so intense.
+- Antonio being rescued and taken to Israel.
+- All the chatter on my X account and elsewhere.
+- How I was feeling throughout and everything I said here already.
+- I type "did all that just happen!", one quiet morning then go out.
+- A man walks past me at the door to my apartment and says, loudly, "SI", into his phone.
+- This is the same man that was standing beside me at the indoor leg jets while they were passing the toddler around.
+- And, I believe, it is the same man who was lying next to me in the refuge Oulettes the year before when I got sick.
+- Could it be possible. Tall, slim, balding, late 50s early 60s. George Taylor springs to mind as a reference, but cleaner.
+
 ## A song to the mountains
 
 - The mountains give me time to reflect and get my head straight.
