@@ -48,6 +48,7 @@ function googleTranslateElementInit() {
 - I have no idea what they're trying to do with all this.
 - I told a good joke at dinner about swimming pools and children, but they did set it up for me.
 - I don't know why, but I heard her saying *she knows she's a star*, and I can't imagine why she'd say that if she did.
+- Unless, of course, she's a porn-Big Brother subscriber too; and it wasn't that I knew I was famous, it was that you were all so bloody obvious (without me really knowing what you were up to!) so I played along.
 - I wonder how many of them know what the Americans were really up to.
 - My guess is very few because it is so utterly appalling.
 
